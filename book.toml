@@ -1,0 +1,21 @@
+[book]
+authors = ["Joseph Louthan"]
+language = "en"
+multilingual = false
+src = "src"
+title = "Theologicus"
+description = "No pen, no words, no image can express to you the loveliness of my only, only Lord Jesus. - Samuel Rutherford"
+
+[rust]
+edition = "2021"
+
+[build]
+build-dir = "book"
+create-missing = false
+
+[preprocessor.index]
+
+[preprocessor.links]
+
+[output.html.search]
+limit-results = 25
