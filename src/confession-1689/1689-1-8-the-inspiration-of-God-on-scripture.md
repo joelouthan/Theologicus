@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 1.8 The Inspiration of God on Holy Scripture"
-author: Joseph Louthan
-publishDate: 2022-11-02
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.1 Of the Holy Scriptures"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "What is mind boggling about the Hebrew and the Greek manuscripts is that despite the minor differences and errors, no, none, zero primary and secondary doctrines were changed and affected. The gospel is always the gospel. Christ is still Christ. The Triune God is still Triune. Creeds are still the Creeds. Confessions (that came 1200 years after the Creeds) are still Confessional. You and I don't have to worry that we have missed something. We have God. We haven't missed a thing."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 1.8 The Inspiration of God on Holy Scripture"
 ## The Text
 
 >Psalms 119:72 (CSB) Instruction from your lips is better for me than thousands of gold and silver pieces.
 
 ## The Chapter
 
-```text
-The Old Testament in Hebrew (which was the native language of the people of God of old), and the New Testament in Greek (which at the time of the writing of it was most generally known to the nations), being immediately inspired by God, and by his singular care and providence kept pure in all ages, are therefore authentic; so as in all controversies of religion, the church is finally to appeal to them. But because these original tongues are not known to all the people of God, who have a right unto, and interest in the Scriptures, and are commanded in the fear of God to read and search them, therefore they are to be translated into the vulgar language of every nation unto which they come, that the Word of God dwelling plentifully in all, they may worship him in an acceptable manner, and through patience and comfort of the Scriptures may have hope.
-```
+>>The Old Testament in Hebrew (which was the native language of the people of God of old), and the New Testament in Greek (which at the time of the writing of it was most generally known to the nations), being immediately inspired by God, and by his singular care and providence kept pure in all ages, are therefore authentic; so as in all controversies of religion, the church is finally to appeal to them. But because these original tongues are not known to all the people of God, who have a right unto, and interest in the Scriptures, and are commanded in the fear of God to read and search them, therefore they are to be translated into the vulgar language of every nation unto which they come, that the Word of God dwelling plentifully in all, they may worship him in an acceptable manner, and through patience and comfort of the Scriptures may have hope.
 
 ## The Confession
 

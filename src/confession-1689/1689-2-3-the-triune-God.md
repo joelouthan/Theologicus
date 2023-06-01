@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 2.3 The Triune God"
-author: Joseph Louthan
-publishDate: 2023-02-08
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.2 Of the Triune God"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "And it was when Jesus Christ began his ministry on the earth that he massively unveils one of the greatest mysteries of the Old Testament, second only to how will God finally rescue his people. The answer to greatest mystery of the gospel of God in the OT is the Lord Jesus Christ. And with the revealing of the Lord Jesus Christ and the proclamation from his mouth, he reveals that God is three subsistences or three hypostases or three real beings: God the Father, God the Holy Spirit and himself, the Word, that is, God the Son."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 2.3 The Triune God"
 ## The Text
 
 >Matthew 28:16–20 (CSB) The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, **“All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”**
 
 ## The Chapter
 
-```text
-In this divine and infinite Being there are three subsistences, the Father, the Word or Son, and Holy Spirit, of one substance, power, and eternity, each having the whole divine essence, yet the essence undivided: the Father is of none, neither begotten nor proceeding; the Son is eternally begotten of the Father; the Holy Spirit proceeding from the Father and the Son; all infinite, without beginning, therefore but one God, who is not to be divided in nature and being, but distinguished by several peculiar relative properties and personal relations; which doctrine of the Trinity is the foundation of all our communion with God, and comfortable dependence on him.
-```
+>>In this divine and infinite Being there are three subsistences, the Father, the Word or Son, and Holy Spirit, of one substance, power, and eternity, each having the whole divine essence, yet the essence undivided: the Father is of none, neither begotten nor proceeding; the Son is eternally begotten of the Father; the Holy Spirit proceeding from the Father and the Son; all infinite, without beginning, therefore but one God, who is not to be divided in nature and being, but distinguished by several peculiar relative properties and personal relations; which doctrine of the Trinity is the foundation of all our communion with God, and comfortable dependence on him.
 
 ## The Confession
 

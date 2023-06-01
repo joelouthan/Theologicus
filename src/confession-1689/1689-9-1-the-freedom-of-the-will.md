@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 9.1 The Freedom of the Will"
-author: Joseph Louthan
-publishDate: 2024-01-17
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.9 Of Free Will"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "This is not a forced decision. This is a not a reprogramming or a flip of the switches. Again, our wills are corrupted. Our souls are in decay. Our minds follow the flesh. Our hearts are cold as rocks. Try reprogramming a rock. Doesn't make sense, does it? Then why would God flip a couple switches in our minds, hearts, and wills as though we are some kind of robots?"
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 9.1 The Freedom of the Will"
 ## The Text
 
 >Genesis 1:27 (CSB) So God created man in his own image; he created him in the image of God; he created them male and female.
 
 ## The Chapter
 
-```text
-God hath endued the will of man with that natural liberty and power of acting upon choice, that it is neither forced, nor by any necessity of nature determined to do good or evil.
-```
+>>God hath endued the will of man with that natural liberty and power of acting upon choice, that it is neither forced, nor by any necessity of nature determined to do good or evil.
 
 ## The Confession
 

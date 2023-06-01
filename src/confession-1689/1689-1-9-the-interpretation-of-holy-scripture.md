@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 1.9 The Interpretation of Holy Scripture"
-author: Joseph Louthan
-publishDate: 2022-11-09
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.1 Of the Holy Scriptures"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "The Reformers would call this tenet, sola Scriptura, in Latin, meaning, 'according to Scriptures alone.' Not prooftexting or taking out of context, but all 66 books, every word, every jot, every tittle perfectly and completely explaining what God has said to us."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 1.9 The Interpretation of Holy Scripture"
 ## The Text
 
 >1 John 2:2 (CSB) He himself is the atoning sacrifice for our sins, and not only for ours, but also for those of the whole world.
 
 ## The Chapter
 
-```text
-The infallible rule of interpretation of Scripture is the Scripture itself; and therefore when there is a question about the true and full sense of any Scripture (which is not manifold, but one), it must be searched by other places that speak more clearly.
-```
+>>The infallible rule of interpretation of Scripture is the Scripture itself; and therefore when there is a question about the true and full sense of any Scripture (which is not manifold, but one), it must be searched by other places that speak more clearly.
 
 ## The Confession
 

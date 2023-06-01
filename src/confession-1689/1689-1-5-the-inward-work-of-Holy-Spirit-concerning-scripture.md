@@ -1,24 +1,4 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 1.5 The Inward Work of the Holy Spirit Concerning the Scriptures"
-author: Joseph Louthan
-publishDate: 2022-09-21
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.1 Of the Holy Scriptures"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "When you, as a mortal man, even arming yourself with your grasp on logic and reason approach something supernatural as natural, you are going to fall short of understanding it."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 1.5 The Inward Work of the Holy Spirit Concerning the Scriptures"
 ## The Text
 
 >John 16:13 (CSB)  When the Spirit of truth comes, he will guide you into all the truth. For he will not speak on his own, but he will speak whatever he hears. He will also declare to you what is to come.
@@ -33,9 +13,7 @@ And
 
 ## The Chapter
 
-```text
-We may be moved and induced by the testimony of the church of God to an high and reverent esteem of the Holy Scriptures; and the heavenliness of the matter, the efficacy of the doctrine, and the majesty of the style, the consent of all the parts, the scope of the whole (which is to give all glory to God), the full discovery it makes of the only way of man's salvation, and many other incomparable excellencies, and entire perfections thereof, are arguments whereby it doth abundantly evidence itself to be the Word of God; yet notwithstanding, our full persuasion and assurance of the infallible truth, and divine authority thereof, is from the inward work of the Holy Spirit bearing witness by and with the Word in our hearts.
-```
+>>We may be moved and induced by the testimony of the church of God to an high and reverent esteem of the Holy Scriptures; and the heavenliness of the matter, the efficacy of the doctrine, and the majesty of the style, the consent of all the parts, the scope of the whole (which is to give all glory to God), the full discovery it makes of the only way of man's salvation, and many other incomparable excellencies, and entire perfections thereof, are arguments whereby it doth abundantly evidence itself to be the Word of God; yet notwithstanding, our full persuasion and assurance of the infallible truth, and divine authority thereof, is from the inward work of the Holy Spirit bearing witness by and with the Word in our hearts.
 
 ## The Confession
 

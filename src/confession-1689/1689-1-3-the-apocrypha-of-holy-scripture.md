@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith: Chapter 1.3 The Apocrypha of Holy Scripture"
-author: Joseph Louthan
-publishDate: 2022-06-15
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.1 Of the Holy Scriptures"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "Yet, time and time again, God will say one thing and mankind will take it upon themselves to add on or to take away from what God has said. If the preaching ministry of Jesus did nothing else, he came to preach the good news that belief and trust in God was not as back-breaking as man will make it out to be."
-
----
-
+# 1689 Baptist Confession of Faith: Chapter 1.3 The Apocrypha of Holy Scripture"
 ## The Text
 
 >Luke 24:25-27 (CSB) He said to them, “How foolish you are, and how slow to believe all that the prophets have spoken! Wasn’t it necessary for the Messiah to suffer these things and enter into his glory?” Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
 
 ## The Chapter
 
-```text
-The books commonly called Apocrypha, not being of divine inspiration, are no part of the canon or rule of the Scripture, and, therefore, are of no authority to the church of God, nor to be any otherwise approved or made use of than other human writings.
-```
+>>The books commonly called Apocrypha, not being of divine inspiration, are no part of the canon or rule of the Scripture, and, therefore, are of no authority to the church of God, nor to be any otherwise approved or made use of than other human writings.
 
 ## The Confession
 
@@ -70,21 +48,13 @@ Repent, for the kingdom of God is now.
 
 ## The Discussion
 
-```text
-1. If the Bible is the supreme authority on all that God has revealed, what else is it authority on?
-```
+>>1. If the Bible is the supreme authority on all that God has revealed, what else is it authority on?
 
-```text
-2. Is the Bible a theological or a science book?
-```
+>>2. Is the Bible a theological or a science book?
 
-```text
-3. How do we know science?
-```
+>>3. How do we know science?
 
-```text
-4. What has God revealed to us about creation?
-```
+>>4. What has God revealed to us about creation?
 
 ## The Prayer
 
@@ -92,13 +62,11 @@ Repent, for the kingdom of God is now.
 The Word of God
 </div>
 
-```text
-Like prayer, we do not read and hear your word as we ought. But we praise you for your grace that you have on us.
+>>Like prayer, we do not read and hear your word as we ought. But we praise you for your grace that you have on us.
 
 Reveal yourself to us. Keep us in your presence.
 
 Amen.
-```
 
 ## The Resources
 

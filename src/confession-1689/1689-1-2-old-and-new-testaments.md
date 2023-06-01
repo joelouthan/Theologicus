@@ -1,24 +1,4 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 1.2 The Old and New Testaments of Holy Scripture"
-author: Joseph Louthan
-publishDate: 2022-06-08
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.1 Of the Holy Scriptures"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "And if you don't know your Bible well, you might be tempted to dismiss this altogether by saying, 'Well, the Bible contradict itself so what does it matter.' Let me consider that you, probably not a Biblical scholar, little to no knowledge of the ancient Biblical languages, are going to make such baseless claims not because you know (which you don't) but rather, is it, are you afraid of what is in this Bible might be true. Because if it is true, then you have to decide--do you want to live or do you want to die?"
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 1.2 The Old and New Testaments of Holy Scripture"
 ## The Text
 
 >2 Timothy 3:16 - 4:5 (CSB) All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
@@ -27,15 +7,13 @@ description: "And if you don't know your Bible well, you might be tempted to dis
 
 ## The Chapter
 
-```text
-Under the name of Holy Scripture, or the Word of God written, are now contained all the books of the Old and New Testaments, which are these:
+>>Under the name of Holy Scripture, or the Word of God written, are now contained all the books of the Old and New Testaments, which are these:
 
 OF THE OLD TESTAMENT: Genesis, Exodus, Leviticus, Numbers, Deuteronomy, Joshua, Judges, Ruth, I Samuel, II Samuel, I Kings, II Kings, I Chronicles, II Chronicles, Ezra, Nehemiah, Esther, Job, Psalms, Proverbs, Ecclesiastes, The Song of Solomen, Isaiah, Jeremiah, Lamentations,Ezekiel, Daniel, Hosea, Joel, Amos, Obadiah, Jonah, Micah, Nahum, Habakkuk, Zephaniah, Haggai, Zechariah, Malachi
 
 OF THE NEW TESTAMENT: Matthew, Mark, Luke, John, The Acts of the Apostles, Paul's Epistle to the Romans, I Corinthians, II Corinthians, Galatians, Ephesians, Philippians, Colossians, I Thessalonians, II Thessalonians, I Timothy, II Timothy, To Titus, To Philemon, The Epistle to the Hebrews, Epistle of James, The first and second Epistles of Peter, The first, second, and third Epistles of John, The Epistle of Jude, The Revelation
 
 All of which are given by the inspiration of God, to be the rule of faith and life. 
-```
 
 ## The Confession
 
@@ -69,17 +47,11 @@ Christ has returned from the dead. Will you repent of your sins? Will you trust 
 
 ## The Discussion
 
-```text
-1. Have you ever read the Apocrypha?
-```
+>>1. Have you ever read the Apocrypha?
 
-```text
-2. Have you ever read any of the early church fathers like Augustine?
-```
+>>2. Have you ever read any of the early church fathers like Augustine?
 
-```text
-3. Give an example of an apparent contradiction at first glance.
-```
+>>3. Give an example of an apparent contradiction at first glance.
 
 >Romans 4:3-4 (CSB) For what does the Scripture say? Abraham believed God, and it was credited to him for righteousness. Now to the one who works, pay is not credited as a gift, but as something owed.
 
@@ -87,9 +59,7 @@ Christ has returned from the dead. Will you repent of your sins? Will you trust 
 
 >Ephesians 2:10 (CSB) For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
 
-```text
-4. How was your time in the word today?
-```
+>>4. How was your time in the word today?
 
 ## The Prayer
 
@@ -97,15 +67,13 @@ Christ has returned from the dead. Will you repent of your sins? Will you trust 
 My Precious Savior
 </div>
 
-```text
-Speak to us. Your word is light unto my path of life that leads back to you.
+>>Speak to us. Your word is light unto my path of life that leads back to you.
 
 Open our ears. Open our eyes. Change our minds. Exchange our hearts.
 
 Dwell in us, God. We cannot understand your will unless you live in us.
 
 Amen.
-```
 
 ## The Resources
 

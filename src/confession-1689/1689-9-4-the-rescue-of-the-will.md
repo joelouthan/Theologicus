@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 9.4 The Rescue of the Will"
-author: Joseph Louthan
-publishDate: 2024-02-07
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.9 Of Free Will"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "Your will, before the intervention of God in your life, was a free as a prisoner in their cell. You had freedom to roam the confines of your own sin."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 9.4 The Rescue of the Will"
 ## The Text
 
 >Romans 8:20-21 (CSB) For the creation was subjected to futility — not willingly, but because of him who subjected it — in the hope that the creation itself will also be set free from the bondage to decay into the glorious freedom of God’s children.
 
 ## The Chapter
 
-```text
-When God converts a sinner, and translates him into the state of grace, he freeth him from his natural bondage under sin, and by his grace alone enables him freely to will and to do that which is spiritually good; yet so as that by reason of his remaining corruptions, he doth not perfectly, nor only will, that which is good, but doth also will that which is evil.
-```
+>>When God converts a sinner, and translates him into the state of grace, he freeth him from his natural bondage under sin, and by his grace alone enables him freely to will and to do that which is spiritually good; yet so as that by reason of his remaining corruptions, he doth not perfectly, nor only will, that which is good, but doth also will that which is evil.
 
 ## The Confession
 

@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 4.1 Creation--The Manifestation of the Glory of God"
-author: Joseph Louthan
-publishDate: 2023-06-07
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.4 Of Creation"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "To say God created the world or us out of the overflow of his love is selling God short. It is here that the 1689 rightfully says that it pleased the Triune God to speak the creation into existence. Why did the Father, Son, and Spirit created the heavens and earth? Because it pleased him. It was his will. It was his desire. It was his pleasure. Why for?"
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 4.1 Creation--The Manifestation of the Glory of God"
 ## The Text
 
 >Genesis 1:1-2 (CSB) In the beginning God created the heavens and the earth. Now the earth was formless and empty, darkness covered the surface of the watery depths, and the Spirit of God was hovering over the surface of the waters.
 
 ## The Chapter
 
-```text
-In the beginning it pleased God the Father, Son, and Holy Spirit, for the manifestation of the glory of his eternal power, wisdom, and goodness, to create or make the world, and all things therein, whether visible or invisible, in the space of six days, and all very good.
-```
+>>In the beginning it pleased God the Father, Son, and Holy Spirit, for the manifestation of the glory of his eternal power, wisdom, and goodness, to create or make the world, and all things therein, whether visible or invisible, in the space of six days, and all very good.
 
 ## The Confession
 

@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 8.6 The Eternalness of the Messiah"
-author: Joseph Louthan
-publishDate: 2023-12-06
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.8 Of Christ the Mediator"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "Our Lord who is all wise and all knowing and therefore is incapable of learning or discovering anything additional because he knows all things."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 8.6 The Eternalness of the Messiah"
 ## The Text
 
 >Revelation 1:8 (CSB) “I am the Alpha and the Omega,” says the Lord God, “the one who is, who was, and who is to come, the Almighty.”
 
 ## The Chapter
 
-```text
-Although the price of redemption was not actually paid by Christ till after his incarnation, yet the virtue, efficacy, and benefit thereof were communicated to the elect in all ages, successively from the beginning of the world, in and by those promises, types, and sacrifices wherein he was revealed, and signified to be the seed which should bruise the serpent's head; and the Lamb slain from the foundation of the world, being the same yesterday, and to-day and for ever.
-```
+>>Although the price of redemption was not actually paid by Christ till after his incarnation, yet the virtue, efficacy, and benefit thereof were communicated to the elect in all ages, successively from the beginning of the world, in and by those promises, types, and sacrifices wherein he was revealed, and signified to be the seed which should bruise the serpent's head; and the Lamb slain from the foundation of the world, being the same yesterday, and to-day and for ever.
 
 ## The Confession
 

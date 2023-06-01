@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 7.2 The Covenant of Grace"
-author: Joseph Louthan
-publishDate: 2023-10-11
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.7 Of God's Covenant"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "See what God has done for the world. Hear what God has proclaimed since the moment sin entered into the world. Reach out for this free gift of God!"
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 7.2 The Covenant of Grace"
 ## The Text
 
 >Romans 6:23 (CSB) For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
 
 ## The Chapter
 
-```text
-Moreover, man having brought himself under the curse of the law by his fall, it pleased the Lord to make a covenant of grace, wherein he freely offereth unto sinners life and salvation by Jesus Christ, requiring of them faith in him, that they may be saved; and promising to give unto all those that are ordained unto eternal life, his Holy Spirit, to make them willing and able to believe.
-```
+>>Moreover, man having brought himself under the curse of the law by his fall, it pleased the Lord to make a covenant of grace, wherein he freely offereth unto sinners life and salvation by Jesus Christ, requiring of them faith in him, that they may be saved; and promising to give unto all those that are ordained unto eternal life, his Holy Spirit, to make them willing and able to believe.
 
 ## The Confession
 

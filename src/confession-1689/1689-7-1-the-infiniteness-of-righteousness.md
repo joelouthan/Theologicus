@@ -1,24 +1,4 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 7.1 The Infiniteness of Righteousness"
-author: Joseph Louthan
-publishDate: 2023-10-04
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.7 Of God's Covenant"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "It is because of our fallen state and in sin, each child of Adam is wholly presumptuous that we, somehow, bridge an infinite gap between us and God. This sin in us clouds our judgment, keeps us blind, and fills us with hubris to fool ourselves that we are have done enough good not be damned to hell, that God grades on a curve because we are certainly not as bad as 'that guy', or worst yet, bet our entire existence on the asinine notion that there is no God."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 7.1 The Infiniteness of Righteousness"
 ## The Text
 
 >Psalms 97:9 (CSB) For you, LORD,  
@@ -31,9 +11,7 @@ description: "It is because of our fallen state and in sin, each child of Adam i
 
 ## The Chapter
 
-```text
-The distance between God and the creature is so great, that although reasonable creatures do owe obedience to him as their creator, yet they could never have attained the reward of life but by some voluntary condescension on God's part, which he hath been pleased to express by way of covenant.
-```
+>>The distance between God and the creature is so great, that although reasonable creatures do owe obedience to him as their creator, yet they could never have attained the reward of life but by some voluntary condescension on God's part, which he hath been pleased to express by way of covenant.
 
 ## The Confession
 

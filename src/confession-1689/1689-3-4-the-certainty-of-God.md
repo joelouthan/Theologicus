@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 3.4 The Certainty of God"
-author: Joseph Louthan
-publishDate: 2023-05-10
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.3 Of God's Decree"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "We know that salvation is of the Lord. That means every facet of salvation--from election to calling to atonement to justification to adoption to sanctification to glorification is on the Lord alone."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 3.4 The Certainty of God"
 ## The Text
 
 >Luke 12:7 (CSB) Indeed, the hairs of your head are all counted. Don’t be afraid; you are worth more than many sparrows.
 
 ## The Chapter
 
-```text
-These angels and men thus predestinated and foreordained, are particularly and unchangeably designed, and their number so certain and definite, that it cannot be either increased or diminished.
-```
+>>These angels and men thus predestinated and foreordained, are particularly and unchangeably designed, and their number so certain and definite, that it cannot be either increased or diminished.
 
 ## The Confession
 

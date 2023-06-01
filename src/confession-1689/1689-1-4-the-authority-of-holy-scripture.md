@@ -1,24 +1,4 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 1.4 The Authority of Holy Scripture "
-author: Joseph Louthan
-publishDate: 2022-09-14
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.1 Of the Holy Scriptures"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "But rather, God himself has spoken. And his words were not merely touch upon the ears of man for one time. But those words were instructed by the same great God to be written down for his people in the ages to come."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 1.4 The Authority of Holy Scripture "
 ## The Text
 
 >Psalm 19 (CSB)  
@@ -52,9 +32,7 @@ description: "But rather, God himself has spoken. And his words were not merely 
 
 ## The Chapter
 
-```text
-The authority of the Holy Scripture, for which it ought to be believed, dependeth not upon the testimony of any man or church, but wholly upon God (who is truth itself), the author thereof; therefore it is to be received because it is the Word of God.
-```
+>>The authority of the Holy Scripture, for which it ought to be believed, dependeth not upon the testimony of any man or church, but wholly upon God (who is truth itself), the author thereof; therefore it is to be received because it is the Word of God.
 
 ## The Confession
 

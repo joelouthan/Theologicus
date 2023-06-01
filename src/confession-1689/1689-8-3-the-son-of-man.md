@@ -1,5 +1,4 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 8.3 The Son of Man"
+# 1689 Baptist Confession of Faith, Chapter 8.3 The Son of Man"
 author: Joseph Louthan
 publishDate: 2023-11-15
 categories:
@@ -61,9 +60,7 @@ g { color: Green }
 
 ## The Chapter
 
-```text
-The Lord Jesus, in his human nature thus united to the divine, in the person of the Son, was sanctified and anointed with the Holy Spirit above measure, having in Him all the treasures of wisdom and knowledge; in whom it pleased the Father that all fullness should dwell, to the end that being holy, harmless, undefiled, and full of grace and truth, he might be throughly furnished to execute the office of mediator and surety; which office he took not upon himself, but was thereunto called by his Father; who also put all power and judgement in his hand, and gave him commandment to execute the same.
-```
+>>The Lord Jesus, in his human nature thus united to the divine, in the person of the Son, was sanctified and anointed with the Holy Spirit above measure, having in Him all the treasures of wisdom and knowledge; in whom it pleased the Father that all fullness should dwell, to the end that being holy, harmless, undefiled, and full of grace and truth, he might be throughly furnished to execute the office of mediator and surety; which office he took not upon himself, but was thereunto called by his Father; who also put all power and judgement in his hand, and gave him commandment to execute the same.
 
 ## The Confession
 
@@ -125,8 +122,7 @@ Fighting for the truth in the theology of Christ has gone back to the first cent
 
 Nicene Creed's excerpt on the Jesus Christ as fully God and fully human:
 
-```text
-I believe in one Lord Jesus Christ,
+>>I believe in one Lord Jesus Christ,
 the Only Begotten Son of God,
 born of the Father before all ages.
 God from God, Light from Light,
@@ -137,12 +133,10 @@ For us men and for our salvation
 he came down from heaven,
 and by the Holy Spirit was incarnate of the Virgin Mary,
 and became man.
-```
 
 And the same from the Athanasian Creed:
 
-```text
-That we believe and confess
+>>That we believe and confess
  that our Lord Jesus Christ, God's Son,
  is both God and human, equally.
 
@@ -165,7 +159,6 @@ Although he is God and human,
  but by the unity of his person.
  For just as one human is both rational soul and flesh,
  so too the one Christ is both God and human.
-```
 
 The fight was long won by the grace of God. But we must be vigilant and fight the good fight of faith. We must be ready to give an answer for the hope that is within us. We must be ready to defend the faith once for all delivered to the saints.
 

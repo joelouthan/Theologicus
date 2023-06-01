@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 8.10 The Prophet, Priest and King"
-author: Joseph Louthan
-publishDate: 2024-01-03
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.8 Of Christ the Mediator"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: ""
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 8.10 The Prophet, Priest and King"
 ## The Text
 
 TODO:
 
 ## The Chapter
 
-```text
-This number and order of offices is necessary; for in respect of our ignorance, we stand in need of his prophetical office; and in respect of our alienation from God, and imperfection of the best of our services, we need his priestly office to reconcile us and present us acceptable unto God; and in respect to our averseness and utter inability to return to God, and for our rescue and security from our spiritual adversaries, we need his kingly office to convince, subdue, draw, uphold, deliver, and preserve us to his heavenly kingdom.
-```
+>>This number and order of offices is necessary; for in respect of our ignorance, we stand in need of his prophetical office; and in respect of our alienation from God, and imperfection of the best of our services, we need his priestly office to reconcile us and present us acceptable unto God; and in respect to our averseness and utter inability to return to God, and for our rescue and security from our spiritual adversaries, we need his kingly office to convince, subdue, draw, uphold, deliver, and preserve us to his heavenly kingdom.
 
 ## The Confession
 

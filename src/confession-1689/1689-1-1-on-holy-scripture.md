@@ -1,24 +1,4 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 1.1 Of the Holy Scriptures"
-author: Joseph Louthan
-publishDate: 2022-06-01
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.1 Of the Holy Scriptures"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "Christ came in as a nobody yet, the entire basis of the Jewish faith prophesied that this was to be start. Starting with Genesis and ending with Malachi. Over 200 prophecies about the upcoming Messiah."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 1.1 Of the Holy Scriptures"
 ## The Text
 
 >1 Corinthians 2:12-16 (CSB) Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God. We also speak these things, not in words taught by human wisdom, but in those taught by the Spirit, explaining spiritual things to spiritual people. But the person without the Spirit does not receive what comes from God’s Spirit, because it is foolishness to him; he is not able to understand it since it is evaluated spiritually. The spiritual person, however, can evaluate everything, and yet he himself cannot be evaluated by anyone. For  
@@ -29,9 +9,7 @@ description: "Christ came in as a nobody yet, the entire basis of the Jewish fai
 
 ## The Chapter
 
-```text
-The Holy Scripture is the only sufficient, certain, and infallible rule of all saving knowledge, faith, and obedience, although the light of nature, and the works of creation and providence do so far manifest the goodness, wisdom, and power of God, as to leave men inexcusable; yet are they not sufficient to give that knowledge of God and his will which is necessary unto salvation. Therefore it pleased the Lord at sundry times and in divers manners to reveal himself, and to declare that his will unto his church; and afterward for the better preserving and propagating of the truth, and for the more sure establishment and comfort of the church against the corruption of the flesh, and the malice of Satan, and of the world, to commit the same wholly unto writing; which maketh the Holy Scriptures to be most necessary, those former ways of God's revealing his will unto his people being now ceased.
-```
+>>The Holy Scripture is the only sufficient, certain, and infallible rule of all saving knowledge, faith, and obedience, although the light of nature, and the works of creation and providence do so far manifest the goodness, wisdom, and power of God, as to leave men inexcusable; yet are they not sufficient to give that knowledge of God and his will which is necessary unto salvation. Therefore it pleased the Lord at sundry times and in divers manners to reveal himself, and to declare that his will unto his church; and afterward for the better preserving and propagating of the truth, and for the more sure establishment and comfort of the church against the corruption of the flesh, and the malice of Satan, and of the world, to commit the same wholly unto writing; which maketh the Holy Scriptures to be most necessary, those former ways of God's revealing his will unto his people being now ceased.
 
 ## The Confession
 
@@ -185,21 +163,13 @@ The word of God is beyond "without error". It is perfect. Is it easy to understa
 
 ## The Discussion
 
-```text
-1. "by their unrighteousness suppress the truth" - How can mankind be saved if in our nature we keep suppressing the truth of God?
-```
+>>1. "by their unrighteousness suppress the truth" - How can mankind be saved if in our nature we keep suppressing the truth of God?
 
-```text
-2. What advantages and disadvantages we have being placed by God in the age of information--nearly 600 years after the invention of the printing press?
-```
+>>2. What advantages and disadvantages we have being placed by God in the age of information--nearly 600 years after the invention of the printing press?
 
-```text
-3. "those former ways of God’s revealing His will unto His people being now ceased" - how does that sit with you? Does it make sense or does it grinds your gears?
-```
+>>3. "those former ways of God’s revealing His will unto His people being now ceased" - how does that sit with you? Does it make sense or does it grinds your gears?
 
-```text
-4. Do you believe the Bible? Why or why not?
-```
+>>4. Do you believe the Bible? Why or why not?
 
 >>“One of these days some simple soul will pick up the Book of God, read it, and believe it. Then the rest of us will be embarrassed. We have adopted the convenient theory that the Bible is a Book to be explained, whereas first and foremost it is a Book to be believed (and after that to be obeyed).”
 >>
@@ -211,11 +181,9 @@ The word of God is beyond "without error". It is perfect. Is it easy to understa
 My Source of Light
 </div>
 
-```text
-I believe. Help me in my disbelief!
+>>I believe. Help me in my disbelief!
 
 Amen.
-```
 
 ## The Resources
 

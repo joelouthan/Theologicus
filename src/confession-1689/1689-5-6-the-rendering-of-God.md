@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 5.6 The Rendering of God"
-author: Joseph Louthan
-publishDate: 2023-08-02
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.5 Of Divine Providence"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "All that established, that should suffice for those who ponder and ask, 'What of personal responsibility?' If God allowed it to happen, can we be held responsible for our sins? If we were robots, then I suppose so. But since we are not robots, the answer is undoubtedly no. If God is not the author of sin, then who is the author of sin? That is an incomplete question. The more precise question is, who is the author of your sin?"
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 5.6 The Rendering of God"
 ## The Text
 
 >Hebrews 6:4-6 (CSB) For it is impossible to renew to repentance those who were once enlightened, who tasted the heavenly gift, who shared in the Holy Spirit, who tasted God’s good word and the powers of the coming age, and who have fallen away. This is because, to their own harm, they are recrucifying the Son of God and holding him up to contempt.
 
 ## The Chapter
 
-```text
-As for those wicked and ungodly men whom God, as the righteous judge, for former sin doth blind and harden; from them he not only withholdeth his grace, whereby they might have been enlightened in their understanding, and wrought upon their hearts; but sometimes also withdraweth the gifts which they had, and exposeth them to such objects as their corruption makes occasion of sin; and withal, gives them over to their own lusts, the temptations of the world, and the power of Satan, whereby it comes to pass that they harden themselves, under those means which God useth for the softening of others.
-```
+>>As for those wicked and ungodly men whom God, as the righteous judge, for former sin doth blind and harden; from them he not only withholdeth his grace, whereby they might have been enlightened in their understanding, and wrought upon their hearts; but sometimes also withdraweth the gifts which they had, and exposeth them to such objects as their corruption makes occasion of sin; and withal, gives them over to their own lusts, the temptations of the world, and the power of Satan, whereby it comes to pass that they harden themselves, under those means which God useth for the softening of others.
 
 ## The Confession
 

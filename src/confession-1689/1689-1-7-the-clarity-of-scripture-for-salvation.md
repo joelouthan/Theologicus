@@ -1,24 +1,4 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 1.7 The Clarity of Holy Scripture for Salvation"
-author: Joseph Louthan
-publishDate: 2022-10-26
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.1 Of the Holy Scriptures"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "We assume that we are mature and that can we demystified the mysteries of God. I am not saying don't study. Do study. But do so with your brothers and sisters. Dig deep into the salvation of God and his great grace and mercy and love for us."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 1.7 The Clarity of Holy Scripture for Salvation"
 ## The Text
 
 >Luke 23:32–43 (CSB)  
@@ -48,9 +28,7 @@ description: "We assume that we are mature and that can we demystified the myste
 
 ## The Chapter
 
-```text
-All things in Scripture are not alike plain in themselves, nor alike clear unto all; yet those things which are necessary to be known, believed, and observed, for salvation, are so clearly propounded and opened in some place of Scripture or other, that not only the learned, but the unlearned, in a due use of the ordinary means, may attain unto a sufficient understanding of them.
-```
+>>All things in Scripture are not alike plain in themselves, nor alike clear unto all; yet those things which are necessary to be known, believed, and observed, for salvation, are so clearly propounded and opened in some place of Scripture or other, that not only the learned, but the unlearned, in a due use of the ordinary means, may attain unto a sufficient understanding of them.
 
 ## The Confession
 

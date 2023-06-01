@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 6.5 The Nature of Mankind"
-author: Joseph Louthan
-publishDate: 2023-09-20
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.6 Of the Fall of Man, Of Sin, And of the Punishment Thereof"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "I cannot account for all of Christian history, but seemingly, especially in Evangelistic circles, the debate surrounding Romans 7:7-25. And the debate is attempting to answer this: In this passage, is Paul describing the Christian life, or is he describing the life of the unbeliever? The answer lies in verse 22."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 6.5 The Nature of Mankind"
 ## The Text
 
 >2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
 ## The Chapter
 
-```text
-The corruption of nature, during this life, doth remain in those that are regenerated; and although it be through Christ pardoned and mortified, yet both itself, and the first motions thereof, are truly and properly sin.
-```
+>>The corruption of nature, during this life, doth remain in those that are regenerated; and although it be through Christ pardoned and mortified, yet both itself, and the first motions thereof, are truly and properly sin.
 
 ## The Confession
 

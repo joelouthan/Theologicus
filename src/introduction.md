@@ -8,8 +8,10 @@ bgy {
 
 # Introduction
 
-## What is this?
-
 Once upon a time, my kids were curious about the books in my office, and asked, "Papa, what are all these books about." I told them, "Mostly, they all say the same thing--that Jesus loves me, this I know, for the Bible tells me so."
 
-This is my humble attempt to be a part of books that say nothing but how much Jesus loves me.
+Theologicus is my humble attempt to be a part of those same set of books. For Samuel Rutherford once said:
+
+>>No pen, no words, no image can express to you the loveliness of my only, only Lord Jesus.
+
+I know that is true but I am going to try anyway.

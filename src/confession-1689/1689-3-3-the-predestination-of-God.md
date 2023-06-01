@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 3.3 The Predestination & Foreordination of God"
-author: Joseph Louthan
-publishDate: 2023-05-03
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.3 Of God's Decree"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "The judgment and the punishment and the everlasting wrath of the Son upon the wicked and the cursed and the damn is still to the praise of the glorious grace of God. Sin is what broke God's good creation. And in the end, it will be eradicated with extreme prejudice."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 3.3 The Predestination & Foreordination of God"
 ## The Text
 
 >1 Timothy 1:17 (CSB) Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
 
 ## The Chapter
 
-```text
-By the decree of God, for the manifestation of his glory, some men and angels are predestinated, or foreordained to eternal life through Jesus Christ, to the praise of his glorious grace; others being left to act in their sin to their just condemnation, to the praise of his glorious justice.
-```
+>>By the decree of God, for the manifestation of his glory, some men and angels are predestinated, or foreordained to eternal life through Jesus Christ, to the praise of his glorious grace; others being left to act in their sin to their just condemnation, to the praise of his glorious justice.
 
 ## The Confession
 

@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 8.9 The Office of the Mediator"
-author: Joseph Louthan
-publishDate: 2023-12-27
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.8 Of Christ the Mediator"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: ""
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 8.9 The Office of the Mediator"
 ## The Text
 
 >Hebrews 9:15 (CSB) Therefore, he is the mediator of a new covenant, so that those who are called might receive the promise of the eternal inheritance, because a death has taken place for redemption from the transgressions committed under the first covenant.
 
 ## The Chapter
 
-```text
-This office of mediator between God and man is proper only to Christ, who is the prophet, priest, and king of the church of God; and may not be either in whole, or any part thereof, transferred from him to any other.
-```
+>>This office of mediator between God and man is proper only to Christ, who is the prophet, priest, and king of the church of God; and may not be either in whole, or any part thereof, transferred from him to any other.
 
 ## The Confession
 

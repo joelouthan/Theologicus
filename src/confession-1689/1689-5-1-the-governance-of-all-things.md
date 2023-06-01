@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 5.1 The Governance of All Things"
-author: Joseph Louthan
-publishDate: 2023-06-28
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.5 Of Divine Providence"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "God created the heavens and the earth. There is no contesting this among Christians. But what is might be contested is the idea that God is actively involved in the day to day affairs of the world. It is the oft debate of the neo-atheists that, if God exists, then surely he just created the world and let it go on its own as thought God is some sort of divine watchmaker who wound up the world like a clock."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 5.1 The Governance of All Things"
 ## The Text
 
 >Revelation 1:8 (CSB) “I am the Alpha and the Omega,” says the Lord God, “the one who is, who was, and who is to come, the Almighty.”
 
 ## The Chapter
 
-```text
-God the good Creator of all things, in His infinite power and wisdom does uphold, direct, dispose, and govern all creatures and things, from the greatest even to the least, by His most wise and holy providence, to the end for the which they were created, according unto His infallible foreknowledge, and the free and immutable counsel of His own will; to the praise of the glory of His wisdom, power, justice, infinite goodness, and mercy.
-```
+>>God the good Creator of all things, in His infinite power and wisdom does uphold, direct, dispose, and govern all creatures and things, from the greatest even to the least, by His most wise and holy providence, to the end for the which they were created, according unto His infallible foreknowledge, and the free and immutable counsel of His own will; to the praise of the glory of His wisdom, power, justice, infinite goodness, and mercy.
 
 ## The Confession
 

@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 7.3 The Preaching of the First Gospel"
-author: Joseph Louthan
-publishDate: 2023-10-18
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.7 Of God's Covenant"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "Our original parents failed and fallen. They introduced sin into our existence and broke everything. The cosmos descends into ruins. Murder, rape, abuse, trauma, stealing, disobedience and a myriad of other negative words will become familiar in our world as the air we breath.  But our God was not phased by this. Not shook. Not scared. Not angry. Not frightened. He took his stand in the garden, stared Satan right between the eyes, and proclaimed defiantly, 'My Son is coming and he will smash your head.'"
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 7.3 The Preaching of the First Gospel"
 ## The Text
 
 >Ephesians 1:3-8 (CSB) Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One. In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace that he richly poured out on us with all wisdom and understanding.
 
 ## The Chapter
 
-```text
-This covenant is revealed in the gospel; first of all to Adam in the promise of salvation by the seed of the woman, and afterwards by farther steps, until the full discovery thereof was completed in the New Testament; and it is founded in that eternal covenant transaction that was between the Father and the Son about the redemption of the elect; and it is alone by the grace of this covenant that all the posterity of fallen Adam that ever were saved did obtain life and blessed immortality, man being now utterly incapable of acceptance with God upon those terms on which Adam stood in his state of innocency.
-```
+>>This covenant is revealed in the gospel; first of all to Adam in the promise of salvation by the seed of the woman, and afterwards by farther steps, until the full discovery thereof was completed in the New Testament; and it is founded in that eternal covenant transaction that was between the Father and the Son about the redemption of the elect; and it is alone by the grace of this covenant that all the posterity of fallen Adam that ever were saved did obtain life and blessed immortality, man being now utterly incapable of acceptance with God upon those terms on which Adam stood in his state of innocency.
 
 ## The Confession
 

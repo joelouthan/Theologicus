@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 6.2 The Death of Mankind"
-author: Joseph Louthan
-publishDate: 2023-08-30
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.6 Of the Fall of Man, Of Sin, And of the Punishment Thereof"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "Just as the Spirit of God left Adam--the one who held dominion over the earth--so too did the Spirit of God leave Saul--who held dominion over all of Israel. But in the same sense, when the King of kings, who now holds dominion all over creation,took on all of our sins upon the cross, his spirit left him."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 6.2 The Death of Mankind"
 ## The Text
 
 >Romans 7:24 (CSB) What a wretched man I am! Who will rescue me from this body of death?
 
 ## The Chapter
 
-```text
-Our first parents, by this sin, fell from their original righteousness and communion with God, and we in them whereby death came upon all: all becoming dead in sin, and wholly defiled in all the faculties and parts of soul and body.
-```
+>>Our first parents, by this sin, fell from their original righteousness and communion with God, and we in them whereby death came upon all: all becoming dead in sin, and wholly defiled in all the faculties and parts of soul and body.
 
 ## The Confession
 

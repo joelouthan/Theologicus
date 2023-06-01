@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 5.3 The Freedom of God"
-author: Joseph Louthan
-publishDate: 2023-07-12
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.5 Of Divine Providence"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "The God of details of all logistics of the providence. But what about the actions and events. We know that God is the first cause of all things and even when we sin against him, his first cause still caused the good and evil without being responsible for the sinful action of the rebels of God."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 5.3 The Freedom of God"
 ## The Text
 
 >Ephesians 1:9-10 (CSB) He made known to us the mystery of his will, according to his good pleasure that he purposed in Christ as a plan for the right time — to bring everything together in Christ, both things in heaven and things on earth in him.
 
 ## The Chapter
 
-```text
-God, in his ordinary providence maketh use of means, yet is free to work without, above, and against them at his pleasure.
-```
+>>God, in his ordinary providence maketh use of means, yet is free to work without, above, and against them at his pleasure.
 
 ## The Confession
 

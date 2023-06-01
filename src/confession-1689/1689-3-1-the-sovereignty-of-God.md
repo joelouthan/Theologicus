@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 3.1 The Sovereignty of God"
-author: Joseph Louthan
-publishDate: 2023-04-19
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.3 Of God's Decree"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "It is one thing to read and observe the attributes of God which are just found in the previous chapter of the 1689 confession. And not to make little of who God is, the question begs, 'So what?' In other words, God is a being of all power, all knowing and wisdom, and ever present everywhere. What does a being like that do?"
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 3.1 The Sovereignty of God"
 ## The Text
 
 >Ephesians 1:3–6 (CSB) Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
 
 ## The Chapter
 
-```text
-God hath decreed in himself, from all eternity, by the most wise and holy counsel of his own will, freely and unchangeably, all things, whatsoever comes to pass; yet so as thereby is God neither the author of sin nor hath fellowship with any therein; nor is violence offered to the will of the creature, nor yet is the liberty or contingency of second causes taken away, but rather established; in which appears his wisdom in disposing all things, and power and faithfulness in accomplishing his decree.
-```
+>>God hath decreed in himself, from all eternity, by the most wise and holy counsel of his own will, freely and unchangeably, all things, whatsoever comes to pass; yet so as thereby is God neither the author of sin nor hath fellowship with any therein; nor is violence offered to the will of the creature, nor yet is the liberty or contingency of second causes taken away, but rather established; in which appears his wisdom in disposing all things, and power and faithfulness in accomplishing his decree.
 
 ## The Confession
 

@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 9.2 The Power of the Will"
-author: Joseph Louthan
-publishDate: 2024-01-24
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.9 Of Free Will"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "Within that freedom comes boundaries and boundaries come in the form of the law of God. In our original free will, we could choose to go to the left or the right or straight ahead. We do not know how long Adam and Eve lived in perfection--chosen to go ahead straight--but they always had the ability to go left or right of center."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 9.2 The Power of the Will"
 ## The Text
 
 >Joshua 24:15 (CSB) But if it doesn’t please you to worship the LORD, **choose for yourselves today: Which will you worship** — the gods your ancestors worshiped beyond the Euphrates River or the gods of the Amorites in whose land you are living? As for me and my family, we will worship the LORD.
 
 ## The Chapter
 
-```text
-Man, in his state of innocency, had freedom and power to will and to do that which was good and well- pleasing to God, but yet was unstable, so that he might fall from it.
-```
+>>Man, in his state of innocency, had freedom and power to will and to do that which was good and well- pleasing to God, but yet was unstable, so that he might fall from it.
 
 ## The Confession
 

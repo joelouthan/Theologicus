@@ -1,26 +1,4 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 8.1 The Pleasure of God"
-author: Joseph Louthan
-publishDate: 2023-11-01
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.8 Of Christ the Mediator"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "The priests of old had to stand continuous for the work of cleansing the people from their sins was never ending. And, not only that, what they did only ceremoniously did so--those animal sacrifices didn't cleansed them once bit. What made all the people of God was their faith and trust in the Messiah.
-
-But Christ, the Priest forever, has sat down."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 8.1 The Pleasure of God"
 ## The Text
 
 >Psalm 16 (CSB)  
@@ -50,9 +28,7 @@ But Christ, the Priest forever, has sat down."
 
 ## The Chapter
 
-```text
-It pleased God, in His eternal purpose, to choose and ordain the Lord Jesus, his only begotten Son, according to the covenant made between them both, to be the mediator between God and man; the prophet, priest, and king; head and saviour of the church, the heir of all things, and judge of the world; unto whom he did from all eternity give a people to be his seed and to be by him in time redeemed, called, justified, sanctified, and glorified.
-```
+>>It pleased God, in His eternal purpose, to choose and ordain the Lord Jesus, his only begotten Son, according to the covenant made between them both, to be the mediator between God and man; the prophet, priest, and king; head and saviour of the church, the heir of all things, and judge of the world; unto whom he did from all eternity give a people to be his seed and to be by him in time redeemed, called, justified, sanctified, and glorified.
 
 ## The Confession
 

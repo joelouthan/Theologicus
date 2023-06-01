@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 8.7 The Two Natures of Jesus"
-author: Joseph Louthan
-publishDate: 2023-12-13
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.8 Of Christ the Mediator"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "And because of the times in which I write this exposition, I must explicitly protest and contest the modern-day revival of the heresy we call the Eternal Subordination (or Submission) of the Son. Whatever you want to call it, my friend calls it heterodoxy because he is a gracious and kind man. I call it heresy because it stands in contrast to the Nicene and Athanasian Creeds."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 8.7 The Two Natures of Jesus"
 ## The Text
 
 >John 3:14-18 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life. For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him. Anyone who believes in him is not condemned, but anyone who does not believe is already condemned, because he has not believed in the name of the one and only Son of God.
 
 ## The Chapter
 
-```text
-Christ, in the work of mediation, acteth according to both natures, by each nature doing that which is proper to itself; yet by reason of the unity of the person, that which is proper to one nature is sometimes in Scripture, attributed to the person denominated by the other nature.
-```
+>>Christ, in the work of mediation, acteth according to both natures, by each nature doing that which is proper to itself; yet by reason of the unity of the person, that which is proper to one nature is sometimes in Scripture, attributed to the person denominated by the other nature.
 
 ## The Confession
 
@@ -49,8 +27,7 @@ Which in itself is harmful because it is not Orthodox Christianity. But then, if
 
 I have said often: ESS goes against the Creeds. In case you are not familiar, in dealing with the two natures of Christ, here is what the Athanasian Creed says:
 
-```text
-  That we believe and confess
+>>  That we believe and confess
   that our Lord Jesus Christ, God's Son,
   is both God and human, equally.
 
@@ -65,7 +42,6 @@ I have said often: ESS goes against the Creeds. In case you are not familiar, in
 
   Although he is God and human,
   yet Christ is not two, but one.
-```
 
 I would love to exposit the Athanasian Creed, but that is another book for another day. The point I am driving here is that we **do not** have to re-toil the work of the relationship between the Father and the Son because we have over 2,000 years of Historical Orthodox Christianity to draw from. And the ESS heresy is not Orthodox Christianity.
 

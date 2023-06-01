@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 3.6 The Free Purpose of the Will of God"
-author: Joseph Louthan
-publishDate: 2023-05-24
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.3 Of God's Decree"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "It is this point, I want to jump on a table and yell, 'Have you not known!' No! We have not known because we don't know who is elect! Who all has God chosen? We don't know. Who has God chosen thus far? Ah, it is you and me because we believe in the Holy One of God."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 3.6 The Free Purpose of the Will of God"
 ## The Text
 
 >Romans 5:12 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.
 
 ## The Chapter
 
-```text
-As God hath appointed the elect unto glory, so he hath, by the eternal and most free purpose of his will, foreordained all the means thereunto; wherefore they who are elected, being fallen in Adam, are redeemed by Christ, are effectually called unto faith in Christ, by his Spirit working in due season, are justified, adopted, sanctified, and kept by his power through faith unto salvation; neither are any other redeemed by Christ, or effectually called, justified, adopted, sanctified, and saved, but the elect only.
-```
+>>As God hath appointed the elect unto glory, so he hath, by the eternal and most free purpose of his will, foreordained all the means thereunto; wherefore they who are elected, being fallen in Adam, are redeemed by Christ, are effectually called unto faith in Christ, by his Spirit working in due season, are justified, adopted, sanctified, and kept by his power through faith unto salvation; neither are any other redeemed by Christ, or effectually called, justified, adopted, sanctified, and saved, but the elect only.
 
 ## The Confession
 

@@ -1,24 +1,4 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 8.5 The Slaying of the Lamb"
-author: Joseph Louthan
-publishDate: 2023-11-29
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.8 Of Christ the Mediator"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "And for the doctrine of atonement--that Christ died once for all time to cover the sins of his people and to satisfy the wrath of God--Latimer and Ridley were willing to die"
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 8.5 The Slaying of the Lamb"
 ## The Text
 
 >Revelation 5:12-13 (CSB) They said with a loud voice,  
@@ -33,9 +13,7 @@ description: "And for the doctrine of atonement--that Christ died once for all t
 
 ## The Chapter
 
-```text
-The Lord Jesus, by his perfect obedience and sacrifice of himself, which he through the eternal Spirit once offered up unto God, hath fully satisfied the justice of God, procured reconciliation, and purchased an everlasting inheritance in the kingdom of heaven, for all those whom the Father hath given unto Him.
-```
+>>The Lord Jesus, by his perfect obedience and sacrifice of himself, which he through the eternal Spirit once offered up unto God, hath fully satisfied the justice of God, procured reconciliation, and purchased an everlasting inheritance in the kingdom of heaven, for all those whom the Father hath given unto Him.
 
 ## The Confession
 

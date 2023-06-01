@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 6.3 The Corruption of Mankind"
-author: Joseph Louthan
-publishDate: 2023-09-06
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.6 Of the Fall of Man, Of Sin, And of the Punishment Thereof"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "There are too paths for mankind to proceed after sin entered the world: reproduce or die. There is no third option. Despite the brokenness of the world, there are some couples who have been blessed by God to have babies. But these babies born, since we are all born sons and daughters of Adam, have been conceived with indwelling sin."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 6.3 The Corruption of Mankind"
 ## The Text
 
 >Titus 3:3 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
 
 ## The Chapter
 
-```text
-They being the root, and by God's appointment, standing in the room and stead of all mankind, the guilt of the sin was imputed, and corrupted nature conveyed, to all their posterity descending from them by ordinary generation, being now conceived in sin, and by nature children of wrath, the servants of sin, the subjects of death, and all other miseries, spiritual, temporal, and eternal, unless the Lord Jesus set them free.
-```
+>>They being the root, and by God's appointment, standing in the room and stead of all mankind, the guilt of the sin was imputed, and corrupted nature conveyed, to all their posterity descending from them by ordinary generation, being now conceived in sin, and by nature children of wrath, the servants of sin, the subjects of death, and all other miseries, spiritual, temporal, and eternal, unless the Lord Jesus set them free.
 
 ## The Confession
 

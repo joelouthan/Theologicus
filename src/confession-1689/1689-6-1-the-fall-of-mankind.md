@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 6.1 The Fall of Mankind"
-author: Joseph Louthan
-publishDate: 2023-08-23
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.6 Of the Fall of Man, Of Sin, And of the Punishment Thereof"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "Let me contend to you that God is giving the consequences of breaking his holy law because those are the consequences. In other words, God didn't make up a law and then randomly assigned a consequence to breaking said law. The breaking of his law is disobedience of the Holy and Eternal God. This is not a random, arbitrary consequence.God was telling us about sin and death from the beginning."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 6.1 The Fall of Mankind"
 ## The Text
 
 >Matthew 4:8-10 (CSB) Again, the devil took him to a very high mountain and showed him all the kingdoms of the world and their splendor. And he said to him, “I will give you all these things if you will fall down and worship me.” Then Jesus told him, “Go away, Satan! For it is written: Worship the Lord your God, and serve only him.”
 
 ## The Chapter
 
-```text
-Although God created man upright and perfect, and gave him a righteous law, which had been unto life had he kept it, and threatened death upon the breach thereof, yet he did not long abide in this honor; Satan using the subtlety of the serpent to subdue Eve, then by her seducing Adam, who, without any compulsion, did willfully transgress the law of their creation, and the command given to them, in eating the forbidden fruit, which God was pleased, according to His wise and holy counsel to permit, having purposed to order it to His own glory.
-```
+>>Although God created man upright and perfect, and gave him a righteous law, which had been unto life had he kept it, and threatened death upon the breach thereof, yet he did not long abide in this honor; Satan using the subtlety of the serpent to subdue Eve, then by her seducing Adam, who, without any compulsion, did willfully transgress the law of their creation, and the command given to them, in eating the forbidden fruit, which God was pleased, according to His wise and holy counsel to permit, having purposed to order it to His own glory.
 
 ## The Confession
 

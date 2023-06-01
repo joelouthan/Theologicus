@@ -1,33 +1,11 @@
----
-title: "1689 Baptist Confession of Faith, Chapter 6.4 The Inclination of Mankind"
-author: Joseph Louthan
-publishDate: 2023-09-13
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.6 Of the Fall of Man, Of Sin, And of the Punishment Thereof"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "We, as humans, as the only sons of Adam, cannot hope on our best day, be able to approach the holy throne of God. We are infected, tinctured, shaped, molded, and developed in sin by sin."
-
----
-
+# 1689 Baptist Confession of Faith, Chapter 6.4 The Inclination of Mankind"
 ## The Text
 
 >Genesis 6:5-6 (CSB) When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, the LORD regretted that he had made man on the earth, and he was deeply grieved.
 
 ## The Chapter
 
-```text
-From this original corruption, whereby we are utterly indisposed, disabled, and made opposite to all good, and wholly inclined to all evil, do proceed all actual transgressions.
-```
+>>From this original corruption, whereby we are utterly indisposed, disabled, and made opposite to all good, and wholly inclined to all evil, do proceed all actual transgressions.
 
 ## The Confession
 
