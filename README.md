@@ -1,4 +1,4 @@
-[![](src/theologicus/src/images/github-book-theologic.us.jpgbanner.png)]()
+[![](src/images/github-book-theologic.us.jpg)]()
 
 ## finished (albeit, raw) manuscripts
 
