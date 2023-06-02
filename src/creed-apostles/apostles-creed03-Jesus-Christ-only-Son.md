@@ -5,19 +5,6 @@ bgy {
   }
 </style>
 
-## The Audio
-
-<figure>
-    <figcaption>Listen to {{< title >}}</figcaption>
-    <audio
-        controls
-        src="{{< download_url >}}{{< asset_link >}}">
-            <a href="{{< download_url >}}{{< asset_link >}}">
-                Download audio
-            </a>
-    </audio>
-</figure>
-
 ## The Creed
 
 >>I believe in God, the Father Almighty,  
