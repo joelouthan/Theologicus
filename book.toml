@@ -18,6 +18,7 @@ create-missing = false
 [preprocessor.links]
 
 [output.html]
+preferred-dark-theme = "ayu"
 git-repository-url = "https://github.com/joelouthan/book-theologicus"
 git-repository-icon = "fa-github"
 no-section-label = true
