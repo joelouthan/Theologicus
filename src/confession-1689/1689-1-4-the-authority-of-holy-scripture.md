@@ -1,33 +1,34 @@
-# 1689 Baptist Confession of Faith, Chapter 1.4 The Authority of Holy Scripture "
+# 1689 Baptist Confession of Faith, Chapter 1.4 The Authority of Holy Scripture 
+
 ## The Text
 
 >Psalm 19 (CSB)  
 ><sup> 1  </sup>The heavens declare the glory of God, and the expanse proclaims the work of his hands. 
-
+>
 ><sup> 2  </sup>Day after day they pour out speech; night after night they communicate knowledge. 
-
+>
 ><sup> 3  </sup>There is no speech; there are no words; their voice is not heard. 
-
+>
 ><sup> 4  </sup>Their message has gone out to the whole earth, and their words to the ends of the world. In the heavens he has pitched a tent for the sun. 
-
+>
 ><sup> 5  </sup>It is like a bridegroom coming from his home; it rejoices like an athlete running a course. 
-
+>
 ><sup> 6  </sup>It rises from one end of the heavens and circles to their other end; nothing is hidden from its heat. 
-
+>
 ><sup> 7  </sup>The instruction of the LORD is perfect, renewing one’s life; the testimony of the LORD is trustworthy, making the inexperienced wise. 
-
+>
 ><sup> 8  </sup>The precepts of the LORD are right, making the heart glad; the command of the LORD is radiant, making the eyes light up. 
-
+>
 ><sup> 9  </sup>The fear of the LORD is pure, enduring forever; the ordinances of the LORD are reliable and altogether righteous. 
-
+>
 ><sup> 10  </sup>They are more desirable than gold— than an abundance of pure gold; and sweeter than honey dripping from a honeycomb. 
-
+>
 ><sup> 11  </sup>In addition, your servant is warned by them, and in keeping them there is an abundant reward. 
-
+>
 ><sup> 12  </sup>Who perceives his unintentional sins? Cleanse me from my hidden faults. 
-
+>
 ><sup> 13  </sup>Moreover, keep your servant from willful sins; do not let them rule me. Then I will be blameless and cleansed from blatant rebellion. 
-
+>
 ><sup> 14  </sup>May the words of my mouth and the meditation of my heart be acceptable to you, LORD, my rock and my Redeemer.
 
 ## The Chapter
@@ -81,6 +82,7 @@ In the Old Testament, false teachers and false prophets were to be executed on s
 Where we live in, the New Testament church, we cannot execute false teachers and preachers. And I would suspect that everyone who reads these words has been hurt and abused by those who claimed they were right with God but proven themselves to be children of the Devil by twisting His word and preying on the weak. I get that. Whether we acknowledge the authority of the Bible or not, does not bestow or remove that authority. Even when it is wrongly twisted for the end of man. God is good and right and he alone will make all things right with him.
 
 God has spoken. He command each ones of us to trust in Him alone. Trust in him. Sit under the preaching of the word. Test the Scriptures. This is the calling of the people of God for all of their days.
+
 ## The Resources
 
 <img src="/images/dnd-1689-site-logo.png" align="left" width="100" style="padding-right: 10px" />Site: [Doctrine & Devotion](http://www.doctrineanddevotion.com/)  
@@ -89,16 +91,12 @@ with Scriptural References
 
 <p style="clear:both;">
 
----
-
 <img src="/images/confession-1689-judacious-reader-renihan.png" align="left" width="100" style="padding-right: 10px" />To the Judicious and Impartial Reader: Baptist Symbolics Volume 2.  
 by James Renihan.  
 Founders Press. 2022.  
 [Goodreads](https://www.goodreads.com/book/show/17867976-modern-exposition-of-the-1689-baptist-confession-of-faith)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/confession-1689-new-exposition-ventura.jpg" align="left" width="100" style="padding-right: 10px" />A New Exposition of the London Baptist Confession of Faith of 1689    
 by Rob Ventura.  
@@ -107,16 +105,12 @@ Mentor. January 17, 2023.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/confession-wcf-truths-we-confess-sproul.jpg" align="left" width="100" style="padding-right: 10px" />Truths We Confess: A Systematic Exposition of the Westminster Confession of Faith.  
 Sproul, R. C.    
 Orlando: Reformation Trust, 2019.  
 [Goodreads](https://www.goodreads.com/book/show/50024945-truths-we-confess?ac=1&from_search=true&qid=ssTkBgIFwE&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/confession-1689-masters.jpg" align="left" width="100" style="padding-right: 10px" />The Baptist Confession of Faith 1689: Or the Second London Confession with Scripture Proofs  
 by Peter Masters.  
@@ -125,16 +119,12 @@ Wakeman Trust. January 1, 1981.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/confession-1689-modern-exposition-waldron.jpg" align="left" width="100" style="padding-right: 10px" />Modern Exposition of the 1689 Baptist Confession of Faith.  
 by Samuel E. Waldron.  
 Evangelical Press. 2013.  
 [Goodreads](https://www.goodreads.com/book/show/17867976-modern-exposition-of-the-1689-baptist-confession-of-faith)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/confession-wcf-banner-of-truth.jpg" align="left" width="100" style="padding-right: 10px" />The Westminster Confession: The Confession of Faith, The Larger and Shorter Catechism.  
 Westminster Assembly.  
@@ -143,15 +133,11 @@ The Directory for the Public Worship of God, with Associated Historical Document
 
 <p style="clear:both;">
 
----
-
 <img src="/images/book-creedal-imperative-trueman.jpg" align="left" width="100" style="padding-right: 10px" />The Creedal Imperative.  
 Carl R. Trueman    
 Crossway, 2012.  
 [Goodreads](https://www.goodreads.com/book/show/14452976-the-creedal-imperative?ac=1&from_search=true&qid=GTaJVGWwOY&rank=1)
 
 <p style="clear:both;">
-
----
 
 

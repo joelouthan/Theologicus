@@ -70,8 +70,6 @@ Wakeman Trust. January 1, 1981.
 
 <p style="clear:both;">
 
----
-
 By God's great provision, within the next few months, two will be dropping. One from James Renihan:
 
 <img src="/images/confession-1689-judacious-reader-renihan.png" align="left" width="100" style="padding-right: 10px" />To the Judicious and Impartial Reader: Baptist Symbolics Volume 2.  
@@ -90,8 +88,6 @@ Mentor. January 17, 2023.
 
 <p style="clear:both;">
 
----
-
 In the meantime, this Modern Exposition from Samuel Waldron was used as a textbook for his class in seminary:
 
 <img src="/images/confession-1689-modern-exposition-waldron.jpg" align="left" width="100" style="padding-right: 10px" />Modern Exposition of the 1689 Baptist Confession of Faith.  
@@ -101,8 +97,6 @@ Evangelical Press. 2013.
 
 <p style="clear:both;">
 
----
-
 Annnnnnnd that's it. One book hard to get, one on the 1644 (for Particular Baptists--which I am not one) and two books that have not dropped.
 
 What do you do?
@@ -110,8 +104,6 @@ What do you do?
 I will then take the Westminster Exposition from R.C. Sproul and the WCF from Banner of Truth and let the good times roll. Also, the Creedal Imperative is a must have.
 
 <p style="clear:both;">
-
----
 
 <img src="/images/confession-wcf-truths-we-confess-sproul.jpg" align="left" width="100" style="padding-right: 10px" />Truths We Confess: A Systematic Exposition of the Westminster Confession of Faith  
 by R.C. Sproul.  
@@ -127,8 +119,6 @@ His ministry has had the greatest impact on my Christian life. What I love is th
 And in God's great grace, this book was released shortly after his death. This book all but confirmed my unction that I should study the Confessions. I would not have this series without his work and his influence on my life.
 
 <p style="clear:both;">
-
----
 
 <img src="/images/confession-wcf-banner-of-truth.jpg" align="left" width="100" style="padding-right: 10px" />The Westminster Confession: The Confession of Faith, The Larger and Shorter Catechism  
 The Westminster Divines.  
@@ -151,8 +141,6 @@ So when I saw the full Biblical references on this resource for the Westminster 
 
 <p style="clear:both;">
 
----
-
 <img src="/images/book-creedal-imperative-trueman.jpg" align="left" width="100" style="padding-right: 10px" />The Creedal Imperative  
 by Carl Trueman.  
 Crossway. 2012.
@@ -163,6 +151,4 @@ At the time of this post, I have yet to read through this. But when I popped on 
 I will read this through as we are going through the series.
 
 <p style="clear:both;">
-
----
 

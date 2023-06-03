@@ -1,4 +1,5 @@
-# 1689 Baptist Confession of Faith, Chapter 9.5 The Glorification of the Will"
+# 1689 Baptist Confession of Faith, Chapter 9.5 The Glorification of the Will
+
 ## The Text
 
 >Psalm 17:15 (CSB) But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
@@ -31,16 +32,12 @@ with Scriptural References
 
 <p style="clear:both;">
 
----
-
 <img src="/images/confession-1689-judacious-reader-renihan.png" align="left" width="100" style="padding-right: 10px" />To the Judicious and Impartial Reader: Baptist Symbolics Volume 2.  
 by James Renihan.  
 Founders Press. 2022.  
 [Goodreads](https://www.goodreads.com/book/show/17867976-modern-exposition-of-the-1689-baptist-confession-of-faith)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/confession-1689-new-exposition-ventura.jpg" align="left" width="100" style="padding-right: 10px" />A New Exposition of the London Baptist Confession of Faith of 1689    
 by Rob Ventura.  
@@ -49,16 +46,12 @@ Mentor. January 17, 2023.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/confession-wcf-truths-we-confess-sproul.jpg" align="left" width="100" style="padding-right: 10px" />Truths We Confess: A Systematic Exposition of the Westminster Confession of Faith.  
 Sproul, R. C.    
 Orlando: Reformation Trust, 2019.  
 [Goodreads](https://www.goodreads.com/book/show/50024945-truths-we-confess?ac=1&from_search=true&qid=ssTkBgIFwE&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/confession-1689-masters.jpg" align="left" width="100" style="padding-right: 10px" />The Baptist Confession of Faith 1689: Or the Second London Confession with Scripture Proofs  
 by Peter Masters.  
@@ -67,8 +60,6 @@ Wakeman Trust. January 1, 1981.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/confession-1689-modern-exposition-waldron.jpg" align="left" width="100" style="padding-right: 10px" />Modern Exposition of the 1689 Baptist Confession of Faith.  
 by Samuel E. Waldron.  
 Evangelical Press. 2013.  
@@ -76,16 +67,12 @@ Evangelical Press. 2013.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/confession-wcf-banner-of-truth.jpg" align="left" width="100" style="padding-right: 10px" />The Westminster Confession: The Confession of Faith, The Larger and Shorter Catechism.  
 Westminster Assembly.  
 The Directory for the Public Worship of God, with Associated Historical Documents. 2018.   
 [Goodreads](https://www.goodreads.com/book/show/39905592-the-westminster-confession?ac=1&from_search=true&qid=oMfahlcldC&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/book-creedal-imperative-trueman.jpg" align="left" width="100" style="padding-right: 10px" />The Creedal Imperative.  
 Carl R. Trueman    

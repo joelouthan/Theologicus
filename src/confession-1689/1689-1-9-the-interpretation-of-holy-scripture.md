@@ -1,4 +1,5 @@
-# 1689 Baptist Confession of Faith, Chapter 1.9 The Interpretation of Holy Scripture"
+# 1689 Baptist Confession of Faith, Chapter 1.9 The Interpretation of Holy Scripture
+
 ## The Text
 
 >1 John 2:2 (CSB) He himself is the atoning sacrifice for our sins, and not only for ours, but also for those of the whole world.
@@ -57,8 +58,6 @@ And
 
 >1 Timothy 1:15–17 (CSB) This saying is trustworthy and deserving of full acceptance: “Christ Jesus came into the world to save sinners”—and I am the worst of them. But I received mercy for this reason, so that in me, the worst of them, Christ Jesus might demonstrate his extraordinary patience as an example to those who would believe in him for eternal life. Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
 
----
-
 So lets take the passage I originally gave at the beginning of this exposition:
 
 >1 John 2:2 (CSB) He himself is the atoning sacrifice for our sins, and not only for ours, but also for those of the whole world.
@@ -107,16 +106,12 @@ with Scriptural References
 
 <p style="clear:both;">
 
----
-
 <img src="/images/confession-1689-judacious-reader-renihan.png" align="left" width="100" style="padding-right: 10px" />To the Judicious and Impartial Reader: Baptist Symbolics Volume 2.  
 by James Renihan.  
 Founders Press. 2022.  
 [Goodreads](https://www.goodreads.com/book/show/17867976-modern-exposition-of-the-1689-baptist-confession-of-faith)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/confession-1689-new-exposition-ventura.jpg" align="left" width="100" style="padding-right: 10px" />A New Exposition of the London Baptist Confession of Faith of 1689    
 by Rob Ventura.  
@@ -125,16 +120,12 @@ Mentor. January 17, 2023.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/confession-wcf-truths-we-confess-sproul.jpg" align="left" width="100" style="padding-right: 10px" />Truths We Confess: A Systematic Exposition of the Westminster Confession of Faith.  
 Sproul, R. C.    
 Orlando: Reformation Trust, 2019.  
 [Goodreads](https://www.goodreads.com/book/show/50024945-truths-we-confess?ac=1&from_search=true&qid=ssTkBgIFwE&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/confession-1689-masters.jpg" align="left" width="100" style="padding-right: 10px" />The Baptist Confession of Faith 1689: Or the Second London Confession with Scripture Proofs  
 by Peter Masters.  
@@ -143,16 +134,12 @@ Wakeman Trust. January 1, 1981.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/confession-1689-modern-exposition-waldron.jpg" align="left" width="100" style="padding-right: 10px" />Modern Exposition of the 1689 Baptist Confession of Faith.  
 by Samuel E. Waldron.  
 Evangelical Press. 2013.  
 [Goodreads](https://www.goodreads.com/book/show/17867976-modern-exposition-of-the-1689-baptist-confession-of-faith)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/confession-wcf-banner-of-truth.jpg" align="left" width="100" style="padding-right: 10px" />The Westminster Confession: The Confession of Faith, The Larger and Shorter Catechism.  
 Westminster Assembly.  
@@ -161,15 +148,11 @@ The Directory for the Public Worship of God, with Associated Historical Document
 
 <p style="clear:both;">
 
----
-
 <img src="/images/book-creedal-imperative-trueman.jpg" align="left" width="100" style="padding-right: 10px" />The Creedal Imperative.  
 Carl R. Trueman    
 Crossway, 2012.  
 [Goodreads](https://www.goodreads.com/book/show/14452976-the-creedal-imperative?ac=1&from_search=true&qid=GTaJVGWwOY&rank=1)
 
 <p style="clear:both;">
-
----
 
 
