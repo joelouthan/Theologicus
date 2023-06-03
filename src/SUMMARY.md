@@ -2,6 +2,8 @@
 
 [Introduction](introduction.md)
 
+-----------
+
 # Creeds
 
 - [Apostles](creed-apostles/apostles-creed.md)
@@ -23,6 +25,8 @@
 - [Nicene]()
 - [Chalcedonian]()
 - [Athanasian]()
+
+-----------
 
 # Confessions
 
@@ -106,9 +110,11 @@
   - [Of the Last Judgement]()
 
 - [First London Baptist Confession of Faith]()
-- [Westministr Confession of Faith]()
+- [Westminster Confession of Faith]()
 - [The Savoy Declaration]()
-- [Three Forms of Unity]()
+- [Belgic Confession]()
+
+-----------
 
 # Commentaries
 
@@ -195,7 +201,18 @@
 - [Deuteronomy]()
 - [Joshua]()
 - [Judges]()
-- [Ruth]()
+
+- [Ruth](study-ruth/ruth-intro.md)
+  - [Ruth 1:1-7 By God's Goodness, He Predestined Us](study-ruth/ruth1-1-7.md)
+  - [Ruth 1:16-22 By God's Goodness and Loving-Kindness, He Saved Us](study-ruth/ruth1-16-22.md)
+  - [Ruth 1:8-15 By God's Kindness, He Predestined Us](study-ruth/ruth1-8-15.md)
+  - [Ruth 2:1-6 God's Calling for His People](study-ruth/ruth2-1-6.md)
+  - [Ruth 2:14-23 God's Abundant Grace for His People](study-ruth/ruth2-14-23.md)
+  - [Ruth 2:7-13 God's Prepared Good Works for His People](study-ruth/ruth2-7-13.md)
+  - [Ruth 3:1-9 God's Redeeming Work for His People](study-ruth/ruth3-1-9.md)
+  - [Ruth 3:10-18 God's Justifying Work for His People](study-ruth/ruth3-10-18.md)
+  - [Ruth 4 God Brings Us All The Way Home]() //(study-ruth/ruth4.md)
+
 - [1 Samuel]()
 - [2 Samuel]()
 - [1 Kings]()
@@ -254,3 +271,7 @@
 - [3 John]()
 - [Jude]()
 - [Revelation]()
+
+-----------
+
+[About the author](author.md)
