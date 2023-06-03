@@ -20,7 +20,7 @@
   - [The Communion of Saints]()
   - [The Forgiveness of Sins]()
   - [The Resurrection of the Body]()
-  - [Life Everlasting--amen]()
+  - [Life Everlasting--Amen]()
 
 - [Nicene]()
 - [Chalcedonian]()
