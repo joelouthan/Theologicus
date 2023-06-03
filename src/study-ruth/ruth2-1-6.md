@@ -4,15 +4,15 @@
 
 >Ruth 2:1-6 (CSB)  
 ><sup>1</sup> Now Naomi had a relative on her husband’s side. He was a prominent man of noble character from Elimelech’s family. His name was Boaz.
-
+>
 ><sup>2</sup> Ruth the Moabitess asked Naomi, “Will you let me go into the fields and gather fallen grain behind someone with whom I find favor?” Naomi answered her, “Go ahead, my daughter.”
-
+>
 ><sup>3</sup> So Ruth left and entered the field to gather grain behind the harvesters. She happened to be in the portion of the field belonging to Boaz, who was from Elimelech’s family.
-
+>
 ><sup>4</sup> Later, when Boaz arrived from Bethlehem, he said to the harvesters, “The LORD be with you.” “The LORD bless you,” they replied.
-
+>
 ><sup>5</sup> Boaz asked his servant who was in charge of the harvesters, “Whose young woman is this?”
-
+>
 ><sup>6</sup> The servant answered, “She is the young Moabite woman who returned with Naomi from the territory of Moab.
 
 ## Some Considerations
@@ -24,9 +24,6 @@
 - Think of a time this week where God has provided for you. Give him praise for he is good.
 - How have you been verbally blessed by others? Has it ever happened outside of church?
 - Take the time to trace your life and see how God has been at work so that "you might seek God, and perhaps you might reach out and find him, though he is not far from each one of us."
-
-<div style="page-break-after: always;"></div>
-
 ## The Introduction
 
 ><sup>1</sup> Now Naomi had a relative on her husband’s side. He was a prominent man of noble character from Elimelech’s family. His name was Boaz.
@@ -57,11 +54,7 @@ Some might push back, for whatever reasons, "Wouldn't some people take advantage
 
 God is not calling us to have your stuff together so you can be ready to be blessing. Life is hard and we go through hard things. But God has given His Son and His Spirit and each other to get through this life together so he can bring us all the way home.
 
-```text
-How would you describe your life right at this moment? Like the sadness of Naomi, the desperation of Ruth or this stability of Boaz? Or something else entirely?
-```
-
----
+>>How would you describe your life right at this moment? Like the sadness of Naomi, the desperation of Ruth or this stability of Boaz? Or something else entirely?
 
 ><sup>2</sup> Ruth the Moabitess asked Naomi, “Will you let me go into the fields and gather fallen grain behind someone with whom I find favor?” Naomi answered her, “Go ahead, my daughter.”
 
@@ -111,11 +104,7 @@ What makes this so incredible is that all riches and power and wealth belong God
 
 There are going to be times where we will be so desperate for God and yet God not for one second is going to without not one drop of his grace, goodness, loving-kindness, and mercy for his children.
 
-```text
-Think of a time this week where God has been gracious, kind, and merciful to you. Give him praise for he is good.
-```
-
----
+>>Think of a time this week where God has been gracious, kind, and merciful to you. Give him praise for he is good.
 
 ><sup>3</sup> So Ruth left and entered the field to gather grain behind the harvesters. She happened to be in the portion of the field belonging to Boaz, who was from Elimelech’s family.
 
@@ -145,11 +134,7 @@ God gives us science and technology. Praise be to God our work is not as hard as
 
 But work is just part of God's provision. Don't we all know this? The right job at the right company can make all the difference. And I know some people here--myself included--pray for such jobs. Here we see that Ruth "so happened" to work in the field belonging to someone in her father-in-law's family. That is not chance. That is God.
 
-```text
-Think of a time this week where God has provided for you. Give him praise for he is good.
-```
-
----
+>>Think of a time this week where God has provided for you. Give him praise for he is good.
 
 ><sup>4</sup> Later, when Boaz arrived from Bethlehem, he said to the harvesters, “The LORD be with you.” “The LORD bless you,” they replied.
 
@@ -173,11 +158,7 @@ And here in this text, the power of an employer blessing his workers and the wor
 
 Of all the passages concerning our employment, I am first reminded of Philemon. Read the short letter of Philemon. Paul makes the appeal to Philemon not only to not punish the runaway slave, Onesimus, but to receive him as a brother and to receive him as he would Paul. Paul is asking Philemon to bless Onesimus--despite the fact Onesimus owes him a great amount of debt and working to pay that debt off. Paul is exhorting Philemon to bless his employee.
 
-```text
-How have you been verbally blessed by others? Has it ever happened outside of church?
-```
-
----
+>>How have you been verbally blessed by others? Has it ever happened outside of church?
 
 ><sup>5-6</sup> Boaz asked his servant who was in charge of the harvesters, “Whose young woman is this?” The servant answered, “She is the young Moabite woman who returned with Naomi from the territory of Moab.
 
@@ -197,12 +178,7 @@ I was born in 1975. End of the Vietnam War. Those two historical moments in Amer
 
 Both of them got married and moved to the States. They had me and my brother. Then my parents got divorced when I was 5 and I haven't seen my mom since then. My dad only gotten more wicked since his drinking and driving days was unfit to raise me and my brother. So we got to be raised by my dad's mom--my grandmother in Haltom City, Texas, where she faithfully attended Bethesda Community Church. And all of that, the good and the evil, was the will of God in my life. And every decision I made, good and evil, was the will of God in my life.
 
-```text
-Take the time to trace your life and see how God has been at work so that "you might seek God, and perhaps you might reach out and find him, though he is not far from each one of us."
-```
-
-<div style="page-break-after: always;"></div>
-
+>>Take the time to trace your life and see how God has been at work so that "you might seek God, and perhaps you might reach out and find him, though he is not far from each one of us."
 ## The Resources
 
 <p style="clear:both;">
@@ -214,16 +190,12 @@ IVP Academic. June 1, 1968.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-ruth-bitter-and-sweet-piper.jpg" align="left" width="100" style="padding-right: 10px" />A Sweet and Bitter Providence: Sex, Race, and the Sovereignty of God  
 by John Piper.  
 Crossway. January 1, 2010.  
 [Goodreads](https://www.goodreads.com/book/show/6641627-a-sweet-and-bitter-providence)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-esther-ruth-duguid.jpg" align="left" width="100" style="padding-right: 10px" />Esther & Ruth (Reformed Expository Commentary)  
 by Iain M. Duguid.  
@@ -232,8 +204,6 @@ P & R Publishing. October 1, 2005.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/bible-esv-reformation-study-sproul.jpg" align="left" width="100" style="padding-right: 10px" />ESV Reformation Study Bible  
 Commentary & Edited by R.C. Sproul.  
 Ligonier Ministries. March 16, 2015.  
@@ -241,7 +211,6 @@ Ligonier Ministries. March 16, 2015.
 
 <p style="clear:both;">
 
----
 <img src="/images/commentary-whole-bible-unabridged-henry.jpg" align="left" width="100" style="padding-right: 10px" />Matthew Henry’s Commentary on the Whole Bible: Complete and Unabridged in One Volume  
 by Matthew Henry.  
 Hendrickson Publishers. 1991.  
@@ -249,7 +218,6 @@ Hendrickson Publishers. 1991.
 
 <p style="clear:both;">
 
----
 <img src="/images/commentary-whole-jfb.jpg" align="left" width="100" style="padding-right: 10px" />Jamieson, Fausset, and Brown's Commentary on the Whole Bible  
 by Robert Jamieson, Alexander Cruden & Andrew Robert Fausset.  
 Zondervan. 1961.  
@@ -257,12 +225,9 @@ Zondervan. 1961.
 
 <p style="clear:both;">
 
----
 <img src="/images/commentary-whole-gill.jpg" align="left" width="100" style="padding-right: 10px" />An Exposition of the Old Testament, Vols. I–VI  
 by John Gill.  
 Public Domain.  
 [Goodreads](https://www.goodreads.com/book/show/18897526-gill-s-bible-commentary)
 
 <p style="clear:both;">
-
----

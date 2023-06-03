@@ -4,20 +4,18 @@
 
 >Ruth 1:1-7 (CSB)  
 ><sup>1</sup> During the time of the judges, there was a famine in the land. A man left Bethlehem in Judah with his wife and two sons to stay in the territory of Moab for a while.
-
+>
 ><sup>2</sup> The man’s name was Elimelech (God his King), and his wife’s name was Naomi (pleasant). The names of his two sons were Mahlon (sickness) and Chilion (wasting). They were Ephrathites (Ef-err-thites) from Bethlehem in Judah. They entered the fields of Moab and settled there.
-
+>
 ><sup>3</sup> Naomi’s husband, Elimelech, died, and she was left with her two sons.
-
+>
 ><sup>4</sup> Her sons took Moabite women as their wives: one was named Orpah (Ar-pah) (fawn) and the second was named Ruth. After they lived in Moab about ten years,
-
+>
 ><sup>5</sup> both Mahlon and Chilion also died, and the woman was left without her two children and without her husband.
-
+>
 ><sup>6</sup> She and her daughters-in-law set out to return from the territory of Moab, because she had heard in Moab that the LORD had paid attention to his people’s need by providing them food.
-
+>
 ><sup>7</sup> She left the place where she had been living, accompanied by her two daughters-in-law, and traveled along the road leading back to the land of Judah.
-
----
 
 ## Some Considerations
 
@@ -27,11 +25,12 @@
 2. Since studying the Christ Key, where have you seen Christ in the Scriptures in where he is not explicitly mentioned? How has that helped you understand the Scriptures?
 3. Here's a more difficult question to ask yourself and be honest: where have you seen your own sins turned into redemption by God alone?
 
-<div style="page-break-after: always;"></div>
-
 ## The Introduction
 
 My intention of this particular Bible Study series is two-fold:
+
+- Help us study the Bible
+- See Christ in the book of Ruth
 
 ### Help us study the Bible - Scriptures interpreting Scripture
 
@@ -88,9 +87,7 @@ Description of the Acts of the Apostles?
 
 Description and prescription will play a crucial role in understanding Ruth. 
 
-```text
-Since studying the Christ Key, where have you seen Christ in the Scriptures in where he is not explicitly mentioned? How has that helped you understand the Scriptures?
-```
+>>Since studying the Christ Key, where have you seen Christ in the Scriptures in where he is not explicitly mentioned? How has that helped you understand the Scriptures?
 
 To quote Dr Bird:
 
@@ -110,19 +107,17 @@ Because what they have heard preached in the synagogues and in tents and in thro
 
 They saw him revealed and rejoiced. We see him revealed and we are glad in it.
 
-<div style="page-break-after: always;"></div>
-
 ## God
 
 >Ruth 1:1-5 (CSB)
 ><sup>1</sup> During the time of the judges, there was a famine in the land. A man left Bethlehem in Judah with his wife and two sons to stay in the territory of Moab for a while.
-
+>
 ><sup>2</sup> The man’s name was Elimelech, and his wife’s name was Naomi. The names of his two sons were Mahlon and Chilion. They were Ephrathites from Bethlehem in Judah. They entered the fields of Moab and settled there.
-
+>
 ><sup>3</sup> Naomi’s husband, Elimelech, died, and she was left with her two sons.
-
+>
 ><sup>4</sup> Her sons took Moabite women as their wives: one was named Orpah and the second was named Ruth. After they lived in Moab about ten years,
-
+>
 ><sup>5</sup> both Mahlon and Chilion also died, and the woman was left without her two children and without her husband.
 
 ### God Predestines: He is Sovereign
@@ -177,21 +172,15 @@ In God's provision and predestination and leading and directing saves the people
 
 >1 John 1:5 (CSB) This is the message we have heard from him and declare to you: God is light, and there is absolutely no darkness in him.
 
-```text
-Where have you seen evil done against you that God has turned into good? Can you believe that God allowed that to happen?
-```
+>>Where have you seen evil done against you that God has turned into good? Can you believe that God allowed that to happen?
 
 These are hard questions and the answers don't come easy. You might have had great evil done against you and you might not yet see how God has redeem you. But be careful and not grieve that moment, try to stuff your feelings and explain it away, "Whelp, God is sovereign." God is sovereign and we live in the post-Genesis 3 world. God is good and entire cosmos is broken.
 
 Is it any wonder then why God has chosen not leave nor forsake us but sent us only begotten Son to live and die for us and to save us from our sins?
 
----
-
-<div style="page-break-after: always;"></div>
-
 >Ruth 1:6-7 (CSB)
 ><sup>6</sup> She and her daughters-in-law set out to return from the territory of Moab, because she had heard in Moab that the LORD had paid attention to his people’s need by providing them food.
-
+>
 ><sup>7</sup> She left the place where she had been living, accompanied by her two daughters-in-law, and traveled along the road leading back to the land of Judah.
 
 ### God Predestines: He is Good
@@ -204,9 +193,7 @@ Was it God's intent for Naomi and her husband to settle in the land of the child
 
 But out of this great desperation and great mingling of evilness, God will work out all things for our good and his great pleasure. Every single time.
 
-```text
-Here's a more difficult question to ask yourself and be honest: where have you seen your own sins turned into redemption by God alone?
-```
+>>Here's a more difficult question to ask yourself and be honest: where have you seen your own sins turned into redemption by God alone?
 
 I will never forget what one of my pastors said to me: "Christians have a hard time dealing with redemption. What they want is God to go back in the past, erase all of the sins we have committed and the sins committed against others and God like it never happened so that no bad things have ever happened."
 
@@ -217,10 +204,6 @@ But we sit here, as the people of God, righteous in his eyes because of Christ a
 And God saw all of that. And God knew that. That is why he sent his Son to live and die so that we are a new creation saved unto him forever and ever.
 
 We don't have to have an excuse. We don't have to blameshift. We don't have to hold on to our own bitterness. We get to rest in the presence of God where there is only fullness of joy and pleasures forevermore. (Psalm 16:11)
-
----
-
-<div style="page-break-after: always;"></div>
 
 ## The Resources
 
@@ -233,16 +216,12 @@ IVP Academic. June 1, 1968.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-ruth-bitter-and-sweet-piper.jpg" align="left" width="100" style="padding-right: 10px" />A Sweet and Bitter Providence: Sex, Race, and the Sovereignty of God  
 by John Piper.  
 Crossway. January 1, 2010.  
 [Goodreads](https://www.goodreads.com/book/show/6641627-a-sweet-and-bitter-providence)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-esther-ruth-duguid.jpg" align="left" width="100" style="padding-right: 10px" />Esther & Ruth (Reformed Expository Commentary)  
 by Iain M. Duguid.  
@@ -251,8 +230,6 @@ P & R Publishing. October 1, 2005.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/bible-esv-reformation-study-sproul.jpg" align="left" width="100" style="padding-right: 10px" />ESV Reformation Study Bible  
 Commentary & Edited by R.C. Sproul.  
 Ligonier Ministries. March 16, 2015.  
@@ -260,7 +237,6 @@ Ligonier Ministries. March 16, 2015.
 
 <p style="clear:both;">
 
----
 <img src="/images/commentary-whole-bible-unabridged-henry.jpg" align="left" width="100" style="padding-right: 10px" />Matthew Henry’s Commentary on the Whole Bible: Complete and Unabridged in One Volume  
 by Matthew Henry.  
 Hendrickson Publishers. 1991.  
@@ -268,7 +244,6 @@ Hendrickson Publishers. 1991.
 
 <p style="clear:both;">
 
----
 <img src="/images/commentary-whole-jfb.jpg" align="left" width="100" style="padding-right: 10px" />Jamieson, Fausset, and Brown's Commentary on the Whole Bible  
 by Robert Jamieson, Alexander Cruden & Andrew Robert Fausset.  
 Zondervan. 1961.  
@@ -276,12 +251,9 @@ Zondervan. 1961.
 
 <p style="clear:both;">
 
----
 <img src="/images/commentary-whole-gill.jpg" align="left" width="100" style="padding-right: 10px" />An Exposition of the Old Testament, Vols. I–VI  
 by John Gill.  
 Public Domain.  
 [Goodreads](https://www.goodreads.com/book/show/18897526-gill-s-bible-commentary)
 
 <p style="clear:both;">
-
----

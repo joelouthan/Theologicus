@@ -37,16 +37,12 @@ IVP Academic. June 1, 1968.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-ruth-bitter-and-sweet-piper.jpg" align="left" width="100" style="padding-right: 10px" />A Sweet and Bitter Providence: Sex, Race, and the Sovereignty of God  
 by John Piper.  
 Crossway. January 1, 2010.  
 [Goodreads](https://www.goodreads.com/book/show/6641627-a-sweet-and-bitter-providence)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-esther-ruth-duguid.jpg" align="left" width="100" style="padding-right: 10px" />Esther & Ruth (Reformed Expository Commentary)  
 by Iain M. Duguid.  
@@ -55,8 +51,6 @@ P & R Publishing. October 1, 2005.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/bible-esv-reformation-study-sproul.jpg" align="left" width="100" style="padding-right: 10px" />ESV Reformation Study Bible  
 Commentary & Edited by R.C. Sproul.  
 Ligonier Ministries. March 16, 2015.  
@@ -64,7 +58,6 @@ Ligonier Ministries. March 16, 2015.
 
 <p style="clear:both;">
 
----
 <img src="/images/commentary-whole-bible-unabridged-henry.jpg" align="left" width="100" style="padding-right: 10px" />Matthew Henry’s Commentary on the Whole Bible: Complete and Unabridged in One Volume  
 by Matthew Henry.  
 Hendrickson Publishers. 1991.  
@@ -72,7 +65,6 @@ Hendrickson Publishers. 1991.
 
 <p style="clear:both;">
 
----
 <img src="/images/commentary-whole-jfb.jpg" align="left" width="100" style="padding-right: 10px" />Jamieson, Fausset, and Brown's Commentary on the Whole Bible  
 by Robert Jamieson, Alexander Cruden & Andrew Robert Fausset.  
 Zondervan. 1961.  
@@ -80,12 +72,9 @@ Zondervan. 1961.
 
 <p style="clear:both;">
 
----
 <img src="/images/commentary-whole-gill.jpg" align="left" width="100" style="padding-right: 10px" />An Exposition of the Old Testament, Vols. I–VI  
 by John Gill.  
 Public Domain.  
 [Goodreads](https://www.goodreads.com/book/show/18897526-gill-s-bible-commentary)
 
 <p style="clear:both;">
-
----

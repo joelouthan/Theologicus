@@ -4,21 +4,21 @@
 
 >Ruth 3:1-9 (CSB)  
 ><sup>1</sup> Ruth’s mother-in-law Naomi said to her, “My daughter, shouldn’t I find rest for you, so that you will be taken care of?
-
+>
 ><sup>2</sup> Now isn’t Boaz our relative? Haven’t you been working with his female servants? This evening he will be winnowing barley on the threshing floor.
-
+>
 ><sup>3</sup> Wash, put on perfumed oil, and wear your best clothes. Go down to the threshing floor, but don’t let the man know you are there until he has finished eating and drinking.
-
+>
 ><sup>4</sup> When he lies down, notice the place where he’s lying, go in and uncover his feet, and lie down. Then he will explain to you what you should do.”
-
+>
 ><sup>5</sup> So Ruth said to her, “I will do everything you say.”
-
+>
 ><sup>6</sup> She went down to the threshing floor and did everything her mother-in-law had charged her to do.
-
+>
 ><sup>7</sup> After Boaz ate, drank, and was in good spirits, he went to lie down at the end of the pile of barley, and she came secretly, uncovered his feet, and lay down.
-
+>
 ><sup>8</sup> At midnight, Boaz was startled, turned over, and there lying at his feet was a woman!
-
+>
 ><sup>9</sup> So he asked, “Who are you?” “I am Ruth, your servant,” she replied. “Take me under your wing, for you are a family redeemer.”
 
 ## Some Considerations
@@ -34,12 +34,8 @@
 - Christ Promised Us
 - Christ is the Only One
 
----
-
-<div style="page-break-after: always;"></div>
-
 ## God
-
+>
 ><sup>1</sup> Ruth’s mother-in-law Naomi said to her, “My daughter, shouldn’t I find rest for you, so that you will be taken care of?
 
 - Continuous work not sustainable
@@ -55,10 +51,9 @@
 >in your presence is abundant joy;  
 >at your right hand are eternal pleasures.
 
----
 
 <div style="page-break-after: always;"></div>
-
+>
 ><sup>2-3</sup> Now isn’t Boaz our relative? Haven’t you been working with his female servants? This evening he will be winnowing barley on the threshing floor. Wash, put on perfumed oil, and wear your best clothes. Go down to the threshing floor, but don’t let the man know you are there until he has finished eating and drinking.
 
 ### God's Redeeming Work: Christ Does The Work For Us
@@ -96,10 +91,9 @@ Make no mistake--we are not to be idle. And yet, we do not have live in fear or 
 >>
 >> C.L. Bancroft. Before The Throne of God. 1863.
 
----
 
 <div style="page-break-after: always;"></div>
-
+>
 ><sup>4</sup> When he lies down, notice the place where he’s lying, go in and uncover his feet, and lie down. Then he will explain to you what you should do.”
 
 ### God's Redeeming Work: Christ Covers Us
@@ -134,12 +128,8 @@ For Christ to cover us: redemption from our sins.
 
 For Christ not to cover us: desolation because of our sins.
 
----
-
-<div style="page-break-after: always;"></div>
-
 ## The Gospel
-
+>
 ><sup>5-6</sup> So Ruth said to her, “I will do everything you say.” She went down to the threshing floor and did everything her mother-in-law had charged her to do.
 
 ### God's Redeeming Work: Christ Gave Us Faith
@@ -179,10 +169,6 @@ For:
 
 So where am I going with this?
 
----
-
-<div style="page-break-after: always;"></div>
-
 ><sup>7-9</sup> After Boaz ate, drank, and was in good spirits, he went to lie down at the end of the pile of barley, and she came secretly, uncovered his feet, and lay down. At midnight, Boaz was startled, turned over, and there lying at his feet was a woman! So he asked, “Who are you?” “I am Ruth, your servant,” she replied. “Take me under your wing, for you are a family redeemer.”
 
 ### God's Redeeming Work: Christ Promised Us
@@ -217,32 +203,28 @@ But God's plan? The Father, Son, and Spirit, perfect in their selves and with ea
 
 >Psalm 32 (CSB)  
 >Of David. A Maskil. 
-
+>
 ><sup>1</sup> How joyful is the one whose transgression is forgiven, whose sin is covered! 
-
+>
 ><sup>2</sup> How joyful is a person whom the LORD does not charge with iniquity and in whose spirit is no deceit! 
-
+>
 ><sup>3</sup> When I kept silent, my bones became brittle from my groaning all day long. 
-
+>
 ><sup>4</sup> For day and night your hand was heavy on me; my strength was drained as in the summer’s heat. Selah 
-
+>
 ><sup>5</sup> Then I acknowledged my sin to you and did not conceal my iniquity. I said, “I will confess my transgressions to the LORD,” and you forgave the guilt of my sin. Selah 
-
+>
 ><sup>6</sup> Therefore let everyone who is faithful pray to you immediately. When great floodwaters come, they will not reach him. 
-
+>
 ><sup>7</sup> You are my hiding place; you protect me from trouble. You surround me with joyful shouts of deliverance. Selah 
-
+>
 ><sup>8</sup> I will instruct you and show you the way to go; with my eye on you, I will give counsel. 
-
+>
 ><sup>9</sup> Do not be like a horse or mule, without understanding, that must be controlled with bit and bridle or else it will not come near you. 
-
+>
 ><sup>10</sup> Many pains come to the wicked, but the one who trusts in the LORD will have faithful love surrounding him. 
-
+>
 ><sup>11</sup> Be glad in the LORD and rejoice, you righteous ones; shout for joy, all you upright in heart.
-
----
-
-<div style="page-break-after: always;"></div>
 
 ## The Resources
 
@@ -255,16 +237,12 @@ IVP Academic. June 1, 1968.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-ruth-bitter-and-sweet-piper.jpg" align="left" width="100" style="padding-right: 10px" />A Sweet and Bitter Providence: Sex, Race, and the Sovereignty of God  
 by John Piper.  
 Crossway. January 1, 2010.  
 [Goodreads](https://www.goodreads.com/book/show/6641627-a-sweet-and-bitter-providence)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-esther-ruth-duguid.jpg" align="left" width="100" style="padding-right: 10px" />Esther & Ruth (Reformed Expository Commentary)  
 by Iain M. Duguid.  
@@ -273,8 +251,6 @@ P & R Publishing. October 1, 2005.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/bible-esv-reformation-study-sproul.jpg" align="left" width="100" style="padding-right: 10px" />ESV Reformation Study Bible  
 Commentary & Edited by R.C. Sproul.  
 Ligonier Ministries. March 16, 2015.  
@@ -282,7 +258,6 @@ Ligonier Ministries. March 16, 2015.
 
 <p style="clear:both;">
 
----
 <img src="/images/commentary-whole-bible-unabridged-henry.jpg" align="left" width="100" style="padding-right: 10px" />Matthew Henry’s Commentary on the Whole Bible: Complete and Unabridged in One Volume  
 by Matthew Henry.  
 Hendrickson Publishers. 1991.  
@@ -290,7 +265,6 @@ Hendrickson Publishers. 1991.
 
 <p style="clear:both;">
 
----
 <img src="/images/commentary-whole-jfb.jpg" align="left" width="100" style="padding-right: 10px" />Jamieson, Fausset, and Brown's Commentary on the Whole Bible  
 by Robert Jamieson, Alexander Cruden & Andrew Robert Fausset.  
 Zondervan. 1961.  
@@ -298,12 +272,9 @@ Zondervan. 1961.
 
 <p style="clear:both;">
 
----
 <img src="/images/commentary-whole-gill.jpg" align="left" width="100" style="padding-right: 10px" />An Exposition of the Old Testament, Vols. I–VI  
 by John Gill.  
 Public Domain.  
 [Goodreads](https://www.goodreads.com/book/show/18897526-gill-s-bible-commentary)
 
 <p style="clear:both;">
-
----
