@@ -274,5 +274,7 @@
 - [Revelation]()
 
 -----------
+[Bibliography]()
 
+-----------
 [About the author](author.md)
