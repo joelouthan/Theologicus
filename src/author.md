@@ -47,6 +47,12 @@
 
 # Joseph Louthan
 
+## Profile
+
+Trying to waste my time with God. Preacher of the Gospel. Writing at Theologicus. StarCraft 2 Elderly.
+
+## Contact
+
 <img style="float: left; padding-right: 20px; border-radius: 50%;" src="/images/jlouthan-ai-starry-back-500-01.png" width="175px">
 
 <div class="contact-info">
@@ -62,10 +68,10 @@
 
 </div>
 
-## About Me
+## About
 
-Trying to spend all of days with God. I belong to my Beloved and my Beloved is mine forevermore. Also, Sarah's husband and papa to a few. Residing in Versailles, KY. Member at [Reforming Truth Church](https://reformingtruth.church). Joyfully ex-Evangelical turned Reformed--[1689 Confessional](confession-1689/1689-0-0.md).
+Trying to spend all of days with God. I belong to my Beloved and my Beloved is mine forevermore. Also, Sarah's husband and papa to a few. Residing in Versailles, KY. Member at [Reforming Truth Church](https://reformingtruth.church). Joyfully ex-Evangelical turned Reformed Baptist--[1689 Confessional](confession-1689/1689-0-0.md).
 
 All of my life to write all of my days to express just how much he loves us. And with near certainty, when I am called to preach, I will be co-vocational. Thus, this website is an attempt to get a head start on sermon prep so that hopefully, by God's grace, I will be a little prepared to preach every day of the week and twice on Sunday.
 
-When I have 15 to 30 minutes to spare, I get to be [pretty mediocre at StarCraft 2](https://starcraft2.com/en-us/profile/1/1/9753175).
+And when I have 15 to 30 minutes to spare, I get to be [pretty mediocre at StarCraft 2](https://starcraft2.com/en-us/profile/1/1/9753175).
