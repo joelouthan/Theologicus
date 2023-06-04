@@ -1,0 +1,78 @@
+# Praying Through: Psalm 22:19-21
+
+## The Psalm
+
+>Psalm 22:19–21 (CSB)  >
+><sup>19</sup> But you, LORD, don’t be far away. My strength, come quickly to help me. 
+>
+><sup>20</sup> Rescue my life from the sword, my only life from the power of these dogs. 
+>
+><sup>21</sup> Save me from the lion’s mouth, from the horns of wild oxen. You answered me!
+
+## The Prayer
+
+<div style="font-variant: small-caps;">
+  Almighty God,
+</div>
+
+
+Who are you,
+  my Lord,
+  whose glory fills the entire earth? 
+  Whether I am in the heavens or make my bed in hell,
+  you are there with me. 
+  If I ascend the mountain of your glory 
+  or wander in the desert of the wilderness,
+  you are face to face and closer than a whisper.
+
+My God,
+  you are never far! 
+  You are with me! 
+  Always. 
+  While I might feel 
+  desperate 
+  or despair
+  sadness 
+  or anger 
+  or happiness,
+  you are with me 
+  and within me.
+
+You are at work in my soul and heart. 
+
+Because you are at work,
+  I know that it is you 
+  that gives me true life 
+  and the fullness thereof.
+
+For once I was lost,
+  now found.
+
+Blind,
+  now I can see.
+
+Deaf,
+  now can hear.
+
+Mute,
+  now preach your gospel.
+
+Ignorant of unbelief,
+  now I know you.
+
+Once dead,
+  now fully alive.
+
+You’ve sent your Son to die 
+  in my place for my sins 
+  so I can be with you. 
+  His cross is where 
+  my enemies were trampled underfoot 
+  and their teeth shattered. 
+  It is his empty grave 
+  where the bulls’ necks are broken 
+  by burying my sin 
+  and to stay buried forevermore.
+
+You alone are worthy of my praise. Blessed be your name forever!.
+
