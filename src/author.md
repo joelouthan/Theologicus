@@ -47,13 +47,7 @@
 
 # Joseph Louthan
 
-## Profile
-
-Trying to waste my time with God. Preacher of the Gospel. Writing at Theologicus. StarCraft 2 Elderly.
-
-## Contact
-
-<img style="float: left; padding-right: 20px; border-radius: 50%;" src="/images/jlouthan-ai-starry-back-500-01.png" width="175px">
+<img style="float: left; padding-right: 20px; padding-bottom: 20px; border-radius: 50%;" src="/images/jlouthan-ai-starry-back-500-01.png" width="175px">
 
 <div class="contact-info">
 
@@ -68,7 +62,7 @@ Trying to waste my time with God. Preacher of the Gospel. Writing at Theologicus
 
 </div>
 
-## About
+<p style="clear:both;">
 
 Trying to spend all of days with God. I belong to my Beloved and my Beloved is mine forevermore. Also, Sarah's husband and papa to a few. Residing in Versailles, KY. Member at [Reforming Truth Church](https://reformingtruth.church). Joyfully ex-Evangelical turned Reformed Baptist--[1689 Confessional](confession-1689/1689-0-0.md).
 
