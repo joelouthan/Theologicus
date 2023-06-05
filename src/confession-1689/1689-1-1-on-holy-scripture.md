@@ -1,4 +1,4 @@
-# 1689 Baptist Confession of Faith, Chapter 1.1 Of the Holy Scriptures"
+# 1689 Baptist Confession of Faith, Chapter 1.1 Of the Holy Scriptures
 
 ## The Text
 
