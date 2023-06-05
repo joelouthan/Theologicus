@@ -31,7 +31,12 @@
 
 # Confessions
 
-- [1689 Second London Baptist Confession of Faith With Scripture Proofs](confession-1689/1689-0-0.md)
+- [Belgic Confession]()
+- [Thirty-Nine Articles]()
+- [First London Baptist Confession of Faith]()
+- [Westminster Confession of Faith]()
+- [The Savoy Declaration]()
+- [Second London Baptist Confession of Faith](confession-1689/1689-0-0.md)
   - [Introduction & Recommended Resources](confession-1689/1689-0-1-confession-introduction.md)
   - [Of The Holy Scriptures](confession-1689/1689-1-1-on-holy-scripture.md)
     - [The Old and New Testaments of Holy Scripture](confession-1689/1689-1-2-old-and-new-testaments.md)
@@ -110,10 +115,8 @@
   - [Of the State of Man After Death, and of the Resurrection of the Dead]()
   - [Of the Last Judgement]()
 
-- [First London Baptist Confession of Faith]()
-- [Westminster Confession of Faith]()
-- [The Savoy Declaration]()
-- [Belgic Confession]()
+
+
 
 -----------
 
