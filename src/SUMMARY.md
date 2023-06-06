@@ -23,9 +23,9 @@
   - [Life Everlasting]()
   - [Amen]()
 
-- [Nicene]()
-- [Chalcedonian]()
-- [Athanasian]()
+- [Nicene](creeds/nicene.md)
+- [Chalcedonian](creeds/chalcedonian.md)
+- [Athanasian](creeds/athanasian.md)
 
 -----------
 
