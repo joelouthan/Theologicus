@@ -28,7 +28,7 @@ As for leading your family through devotions, don't think of outright preaching 
 
 ### It Goes Without Say
 
-<img src="/images/bible-CSB-paperback.jpg" align="left" width="150" style="padding-right: 10px" />Christian Standard Bible  
+<img src="/images/bible-csb-study.jpg" align="left" width="150" style="padding-right: 10px" />Christian Standard Bible  
 Holmon Publishing. 2020.  
 [Goodreads](https://www.goodreads.com/book/show/30746802-csb-outreach-bible)
 
@@ -42,7 +42,7 @@ Note: I use the [Christian Standard Bible](https://csbible.com) version on this 
 
 ___
 
-<img src="/images/bible-ESV-study-bible.jpg" align="left" width="150" style="padding-right: 10px" />ESV Study Bible  
+<img src="/images/bible-esv-study.jpg" align="left" width="150" style="padding-right: 10px" />ESV Study Bible  
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
 
