@@ -16,7 +16,7 @@
   - [Jesus Christ, The Resurrected](creed-apostles/apostles-creed06-Jesus-Christ-resurrected.md)
   - [The Holy Spirit--Fully God](creed-apostles/apostles-creed07-the-Holy-Spirit-Triune.md)
   - [The Holy Spirit as Taught by Christ](creed-apostles/apostles-creed08-the-Holy-Spirit-Christ-said.md)
-  - [The Holy Catholic Church]()
+  - [The Holy Catholic Church](creed-apostles/apostles-creed09-the-holy-catholic-church.md)
   - [The Communion of Saints]()
   - [The Forgiveness of Sins]()
   - [The Resurrection of the Body]()
@@ -31,11 +31,6 @@
 
 # Confessions
 
-- [Belgic Confession]()
-- [Thirty-Nine Articles]()
-- [First London Baptist Confession of Faith]()
-- [Westminster Confession of Faith]()
-- [The Savoy Declaration]()
 - [Second London Baptist Confession of Faith](confession-1689/1689-0-0.md)
   - [Introduction & Recommended Resources](confession-1689/1689-0-1-confession-introduction.md)
   - [Of The Holy Scriptures](confession-1689/1689-1-1-on-holy-scripture.md)
@@ -114,9 +109,23 @@
   - [Of the Lord's Supper]()
   - [Of the State of Man After Death, and of the Resurrection of the Dead]()
   - [Of the Last Judgement]()
+- [Belgic Confession]()
+- [Thirty-Nine Articles]()
+- [First London Baptist Confession of Faith]()
+- [Westminster Confession of Faith]()
+- [The Savoy Declaration]()
 
+-----------
 
+# Catechism
 
+- [The Baptist Catechism]()
+- [Milk for Little Ones]()
+- [The Heidelberg Catechism]()
+- [The Westminster Shorter Catechism]()
+- [The Westminster Larger Catechism]()
+- [To Be A Christian]()
+- [The New City Catechism]()
 
 -----------
 
@@ -796,7 +805,9 @@
 - [Revelation]()
 
 -----------
-[Bibliography]()
+
+[Bibliography](bibliography.md)
 
 -----------
+
 [About the author](author.md)
