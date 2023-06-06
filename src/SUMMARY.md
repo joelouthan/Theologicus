@@ -117,7 +117,7 @@
 
 -----------
 
-# Catechism
+# Catechisms
 
 - [The Baptist Catechism]()
 - [Milk for Little Ones]()
