@@ -37,12 +37,18 @@ Zondervan. 2011.
 
 <p>
 
+-----------
+
 ## Books
 
 <img src="/images/book-creedal-imperative-trueman.jpg" align="left" width="100" style="padding-right: 10px" />The Creedal Imperative.  
 Carl R. Trueman  
 Crossway, 2012.  
 [Goodreads](https://www.goodreads.com/book/show/14452976-the-creedal-imperative?ac=1&from_search=true&qid=GTaJVGWwOY&rank=1)
+
+<p>
+
+-----------
 
 ## Expositions
 
@@ -85,6 +91,10 @@ Evangelical Press. 2013.
 Westminster Assembly.  
 The Directory for the Public Worship of God, with Associated Historical Documents. 2018.   
 [Goodreads](https://www.goodreads.com/book/show/39905592-the-westminster-confession?ac=1&from_search=true&qid=oMfahlcldC&rank=1)
+
+<p>
+
+-----------
 
 ## Commentaries
 
@@ -290,6 +300,8 @@ Kregel. 2003.
 ### Pastorals
 
 <p>
+
+-----------
 
 ## Sources
 
