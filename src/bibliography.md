@@ -233,6 +233,12 @@ Holman Reference. May 1992.
 
 <p style="clear:both;">
 
+<img src="/images/commentary-matthew-ebtc-quarles.jpg
+">Matthew (EBTC).  
+Charles L. Quarles.  
+Lexham Academic. 2023.  
+[Goodreads](https://www.goodreads.com/book/show/62157376-matthew?from_search=true&from_srp=true&qid=dbeLIqrV0q&rank=4)
+
 ### Romans
 
 <img src="/images/book-no-condemnation-winslow.jpg" align="left" width="100" style="padding-right: 10px" />No Condemnation in Christ Jesus: As Unfolded in the Eighth Chapter of the Epistle to the Romans  
@@ -290,6 +296,11 @@ Kregel. 2003.
 [Goodreads](https://www.goodreads.com/book/show/1635020.Commentary_on_Romans?ac=1&from_search=true&qid=aIXX1icyNY&rank=5)
 
 <p style="clear:both;">
+
+<img src="/images/commentary-romans-peterson.jpg">Romans (EBTC).  
+David G. Peterson.  
+Lexham Press. 2021.  
+[Goodreads](https://www.goodreads.com/book/show/55150184-romans?from_search=true&from_srp=true&qid=IIOIEPgmSG&rank=1)
 
 ### Pastorals
 
