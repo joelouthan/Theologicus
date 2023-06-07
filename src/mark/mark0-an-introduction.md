@@ -30,7 +30,7 @@ As for leading your family through devotions, don't think of outright preaching 
 
 <img src="/images/bible-csb-study.jpg" align="left" width="150" style="padding-right: 10px" />Christian Standard Bible  
 Holmon Publishing. 2020.  
-[Goodreads](https://www.goodreads.com/book/show/30746802-csb-outreach-bible)
+[Goodreads](https://www.goodreads.com/book/show/30746885-csb-study-bible)
 
 Many times, many teachers, preachers, and small group leaders (myself included) will "cut straight to the chase" and engage the commentary instead of engaging the Word of God. Remember, the commentaries are not without error—they are the observations of the author.
 
@@ -46,9 +46,7 @@ ___
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
 
-Incredible resource.
-
-I have purchased this resource multiple times over for myself and friends. If you want one and can't afford one, hit me up.
+Incredible resource. I have purchased this resource multiple times over for myself and friends. If you want one and can't afford one, hit me up.
 
 <img src="/images/icon-bible-olive-tree.png" align="right" width="100" style="padding-left: 10px" />If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
