@@ -90,7 +90,7 @@ I am familiar with Blomberg. And I do like this series. This will also be refere
 
 ---
 
-<img src="/images/commentary-matthew-luke-esv.jpg">ESV Expository Commentary: Matthew–Luke (Volume, 8)  
+<img src="/images/commentary-matthew-luke-esv.jpg">ESV Expository Commentary: Matthew–Luke (Volume 8)  
 Dan Doriani (Author)  
 Iain M. Duguid, James M. Hamilton Jr., & Jay Sklar (Editors)  
 Crossway. September 7, 2021.

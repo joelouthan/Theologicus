@@ -100,6 +100,15 @@ P & R Publishing. October 1, 2005.
 
 ---
 
+<img src="/images/commentary-judges-ruth-webb.jpg">Judges and Ruth: God in Chaos.  
+Barry G. Webb.  
+Crossway. 2015.  
+[Goodreads](https://www.goodreads.com/book/show/23531554-judges-and-ruth?from_search=true&from_srp=true&qid=t5D46PhcYO&rank=1)
+
+<p style="clear:both;">
+
+---
+
 <img src="/images/bible-esv-reformation-study-sproul.jpg">ESV Reformation Study Bible  
 Commentary & Edited by R.C. Sproul.  
 Ligonier Ministries. March 16, 2015.  
