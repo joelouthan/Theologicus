@@ -1,5 +1,22 @@
 # 1689 Baptist Confession of Faith: Introduction, Recommendations, Confession with Scriptural Prooftexts
 
+<style>
+
+  img {
+    padding-right: 10px;
+    padding-bottom: 10px;
+    width: 150px;
+    float: left;
+  }
+
+  .olive {
+    padding-left: 10px;
+    width: 50px;
+    float: right
+  }
+
+ </style>
+
 ## The Introduction
 
 I am brand new to Historical Christian Confessions. So why Confessional and why the Westminster Confession of Faith before settling on the 1689? To answer that is to give the long answer.
@@ -63,39 +80,47 @@ But I do have to divvy these resources up into two categories--which is not spli
 
 The truth that there isn't a lot out there. First, get this little book as a handout for your congregation:
 
-<img src="/images/confession-1689-masters.jpg" align="left" width="100" style="padding-right: 10px" />The Baptist Confession of Faith 1689: Or the Second London Confession with Scripture Proofs  
+<img src="/images/confession-1689-masters.jpg">The Baptist Confession of Faith 1689: Or the Second London Confession with Scripture Proofs  
 by Peter Masters.  
 Wakeman Trust. January 1, 1981.  
 [Goodreads](https://www.goodreads.com/book/show/1723671.Baptist_Confession_of_Faith_1689?ac=1&from_search=true&qid=HfdndsOLE6&rank=1)
 
 <p style="clear:both;">
 
+---
+
 By God's great provision, within the next few months, two will be dropping. One from James Renihan:
 
-<img src="/images/confession-1689-judacious-reader-renihan.png" align="left" width="100" style="padding-right: 10px" />To the Judicious and Impartial Reader: Baptist Symbolics Volume 2.  
+<img src="/images/confession-1689-judacious-reader-renihan.png">To the Judicious and Impartial Reader: Baptist Symbolics Volume 2.  
 by James Renihan.  
 Founders Press. 2022.  
 [Goodreads](https://www.goodreads.com/book/show/17867976-modern-exposition-of-the-1689-baptist-confession-of-faith)
 
 <p style="clear:both;">
 
+---
+
 And then a new exposition on the 1689 dropping in January from Rob Ventura:
 
-<img src="/images/confession-1689-new-exposition-ventura.jpg" align="left" width="100" style="padding-right: 10px" />A New Exposition of the London Baptist Confession of Faith of 1689    
+<img src="/images/confession-1689-new-exposition-ventura.jpg">A New Exposition of the London Baptist Confession of Faith of 1689    
 by Rob Ventura.  
 Mentor. January 17, 2023.  
 [Amazon](https://www.amazon.com/Exposition-London-Baptist-Confession-Faith/dp/1527108902/ref=asc_df_1527108902/?tag=hyprod-20&linkCode=df0&hvadid=598295323603&hvpos=&hvnetw=g&hvrand=3877532160906942020&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9014286&hvtargid=pla-1722666080628&psc=1)
 
 <p style="clear:both;">
 
+---
+
 In the meantime, this Modern Exposition from Samuel Waldron was used as a textbook for his class in seminary:
 
-<img src="/images/confession-1689-modern-exposition-waldron.jpg" align="left" width="100" style="padding-right: 10px" />Modern Exposition of the 1689 Baptist Confession of Faith.  
+<img src="/images/confession-1689-modern-exposition-waldron.jpg">Modern Exposition of the 1689 Baptist Confession of Faith.  
 by Samuel E. Waldron.  
 Evangelical Press. 2013.  
 [Goodreads](https://www.goodreads.com/book/show/17867976-modern-exposition-of-the-1689-baptist-confession-of-faith)
 
 <p style="clear:both;">
+
+---
 
 Annnnnnnd that's it. One book hard to get, one on the 1644 (for Particular Baptists--which I am not one) and two books that have not dropped.
 
@@ -105,22 +130,26 @@ I will then take the Westminster Exposition from R.C. Sproul and the WCF from Ba
 
 <p style="clear:both;">
 
-<img src="/images/confession-wcf-truths-we-confess-sproul.jpg" align="left" width="100" style="padding-right: 10px" />Truths We Confess: A Systematic Exposition of the Westminster Confession of Faith  
+---
+
+<img src="/images/confession-wcf-truths-we-confess-sproul.jpg">Truths We Confess: A Systematic Exposition of the Westminster Confession of Faith  
 by R.C. Sproul.  
 Reformation Trust Publishing. 2019.
 [Goodreads](https://www.goodreads.com/book/show/50024945-truths-we-confess?ac=1&from_search=true&qid=ssTkBgIFwE&rank=1)
 
-Do you know me? Have you been on this channel? Will I always use an R.C. Sproul book if possible?
+Do you know me? Have you been on this website for longer than a second? Will I always use an R.C. Sproul book if possible? Absolutely yes.
 
 In my humble opinion, Dr. Sproul was one of the greatest Bible teachers of my generation. I have read his commentaries cover to cover. I have studied through his Philosophy courses at [Ligonier](https://www.ligonier.org/learn/topics/philosophy). When he spoke, I did my best to listen.
 
-His ministry has had the greatest impact on my Christian life. What I love is that he is a Presbyterian and I am a Charismatic. We don't agree on everything but at a distance, I am certainly mentored and shaped by him.
+His ministry has had the greatest impact on my Christian life. What I love is that he is a Presbyterian and I am a Reformed Baptist. We don't agree on everything but at a distance, I am certainly mentored and shaped by him.
 
 And in God's great grace, this book was released shortly after his death. This book all but confirmed my unction that I should study the Confessions. I would not have this series without his work and his influence on my life.
 
 <p style="clear:both;">
 
-<img src="/images/confession-wcf-banner-of-truth.jpg" align="left" width="100" style="padding-right: 10px" />The Westminster Confession: The Confession of Faith, The Larger and Shorter Catechism  
+---
+
+<img src="/images/confession-wcf-banner-of-truth.jpg">The Westminster Confession: The Confession of Faith, The Larger and Shorter Catechism  
 The Westminster Divines.  
 Banner of Truth. 2018.
 [Goodreads](https://www.goodreads.com/book/show/39905592-the-westminster-confession?ac=1&from_search=true&qid=oMfahlcldC&rank=1)
@@ -141,7 +170,9 @@ So when I saw the full Biblical references on this resource for the Westminster 
 
 <p style="clear:both;">
 
-<img src="/images/book-creedal-imperative-trueman.jpg" align="left" width="100" style="padding-right: 10px" />The Creedal Imperative  
+---
+
+<img src="/images/book-creedal-imperative-trueman.jpg">The Creedal Imperative  
 by Carl Trueman.  
 Crossway. 2012.
 [Goodreads](https://www.goodreads.com/book/show/14452976-the-creedal-imperative?ac=1&from_search=true&qid=GTaJVGWwOY&rank=1)
@@ -151,4 +182,6 @@ At the time of this post, I have yet to read through this. But when I popped on 
 I will read this through as we are going through the series.
 
 <p style="clear:both;">
+
+---
 
