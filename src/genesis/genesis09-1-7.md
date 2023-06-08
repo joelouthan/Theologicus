@@ -32,17 +32,17 @@ Let us examine the covenant--the unbreakable promise of God.
 
 >Genesis 9:1–7 (CSB)  
 ><sup> 1 </sup> God blessed Noah and his sons and said to them, “Be fruitful and multiply and fill the earth. 
-
+>
 ><sup> 2 </sup> The fear and terror of you will be in every living creature on the earth, every bird of the sky, every creature that crawls on the ground, and all the fish of the sea. They are placed under your authority. 
-
+>
 ><sup> 3 </sup> Every creature that lives and moves will be food for you; as I gave the green plants, I have given you everything. 
-
+>
 ><sup> 4 </sup> However, you must not eat meat with its lifeblood in it. 
-
+>
 ><sup> 5 </sup> And I will require a penalty for your lifeblood; I will require it from any animal and from any human; if someone murders a fellow human, I will require that person’s life. 
-
+>
 ><sup> 6 </sup> Whoever sheds human blood, by humans his blood will be shed, for God made humans in his image. 
-
+>
 ><sup> 7 </sup> But you, be fruitful and multiply; spread out over the earth and multiply on it.” 
 
 ## The Support

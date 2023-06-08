@@ -22,23 +22,23 @@ Let us get into it.
 
 >Genesis 9:8–17 (CSB)  
 ><sup> 8 </sup> Then God said to Noah and his sons with him, 
-
+>
 ><sup> 9 </sup> “Understand that I am establishing my covenant with you and your descendants after you, 
-
+>
 ><sup> 10 </sup> and with every living creature that is with you—birds, livestock, and all wildlife of the earth that are with you—all the animals of the earth that came out of the ark. 
-
+>
 ><sup> 11 </sup> I establish my covenant with you that never again will every creature be wiped out by floodwaters; there will never again be a flood to destroy the earth.” 
-
+>
 ><sup> 12 </sup> And God said, “This is the sign of the covenant I am making between me and you and every living creature with you, a covenant for all future generations: 
-
+>
 ><sup> 13 </sup> I have placed my bow in the clouds, and it will be a sign of the covenant between me and the earth. 
-
+>
 ><sup> 14 </sup> Whenever I form clouds over the earth and the bow appears in the clouds, 
-
+>
 ><sup> 15 </sup> I will remember my covenant between me and you and all the living creatures: water will never again become a flood to destroy every creature. 
-
+>
 ><sup> 16 </sup> The bow will be in the clouds, and I will look at it and remember the permanent covenant between God and all the living creatures on earth.” 
-
+>
 ><sup> 17 </sup> God said to Noah, “This is the sign of the covenant that I have established between me and every creature on earth.”
 
 ## The Support
@@ -132,17 +132,6 @@ Here's the point of emphasizing God's free gift. Sometimes Christians upon being
 >John 8:10-11 (CSB) When Jesus stood up, he said to her, “Woman, where are they? Has no one condemned you?” 11 “No one, Lord,” she answered. “Neither do I condemn you,” said Jesus. “Go, and from now on do not sin anymore.”
 
 You have been redeemed. You have been brought with a price of the only begotten Son of God. Now, go and live freely.
-
-## The Prayer
-
-<div style="font-variant: small-caps;">
-Blessed Redeemer
-</div>
-&nbsp;
-Save us from ourselves. Save your people right now.
-
-Amen.
-
 
 ## The Resources
 

@@ -4,19 +4,19 @@
 
 >2 Timothy 1:13–2:2 (CSB)  
 ><sup> 13 </sup> Hold on to the pattern of sound teaching that you have heard from me, in the faith and love that are in Christ Jesus. 
-
+>
 ><sup> 14 </sup> Guard the good deposit through the Holy Spirit who lives in us. 
-
+>
 ><sup> 15 </sup> You know that all those in the province of Asia have deserted me, including Phygelus (Fa-gel-us) and Hermogenes (Her-ma-jen-ease). 
-
+>
 ><sup> 16 </sup> May the Lord grant mercy to the household of Onesiphorus (Anna-sif-four-us), because he often refreshed me and was not ashamed of my chains. 
-
+>
 ><sup> 17 </sup> On the contrary, when he was in Rome, he diligently searched for me and found me. 
-
+>
 ><sup> 18 </sup> May the Lord grant that he obtain mercy from him on that day. You know very well how much he ministered at Ephesus. 
-
+>
 ><sup> 1 </sup> You, therefore, my son, be strong in the grace that is in Christ Jesus. 
-
+>
 ><sup> 2 </sup> What you have heard from me in the presence of many witnesses, commit to faithful men who will be able to teach others also.
 
 ## The Meditation

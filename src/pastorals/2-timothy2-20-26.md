@@ -4,17 +4,17 @@
 
 >2 Timothy 2:20–26 (CSB)  
 ><sup> 20 </sup> Now in a large house there are not only gold and silver vessels, but also those of wood and clay; some for honorable use and some for dishonorable. 
-
+>
 ><sup> 21 </sup> So if anyone purifies himself from anything dishonorable, he will be a special instrument, set apart, useful to the Master, prepared for every good work. 
-
+>
 ><sup> 22 </sup> Flee from youthful passions, and pursue righteousness, faith, love, and peace, along with those who call on the Lord from a pure heart. 
-
+>
 ><sup> 23 </sup> But reject foolish and ignorant disputes, because you know that they breed quarrels. 
-
+>
 ><sup> 24 </sup> The Lord’s servant must not quarrel, but must be gentle to everyone, able to teach, and patient, 
-
+>
 ><sup> 25 </sup> instructing his opponents with gentleness. Perhaps God will grant them repentance leading them to the knowledge of the truth. 
-
+>
 ><sup> 26 </sup> Then they may come to their senses and escape the trap of the devil, who has taken them captive to do his will.
 
 ## The Meditation

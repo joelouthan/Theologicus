@@ -24,31 +24,31 @@ Let us get into the text.
 
 >Genesis 8:1–14 (CSB)  
 ><sup> 1 </sup> God remembered Noah, as well as all the wildlife and all the livestock that were with him in the ark. God caused a wind to pass over the earth, and the water began to subside. 
-
+>
 ><sup> 2 </sup> The sources of the watery depths and the floodgates of the sky were closed, and the rain from the sky stopped. 
-
+>
 ><sup> 3 </sup> The water steadily receded from the earth, and by the end of 150 days the water had decreased significantly. 
-
+>
 ><sup> 4 </sup> The ark came to rest in the seventh month, on the seventeenth day of the month, on the mountains of Ararat. 
-
+>
 ><sup> 5 </sup> The water continued to recede until the tenth month; in the tenth month, on the first day of the month, the tops of the mountains were visible. 
-
+>
 ><sup> 6 </sup> After forty days Noah opened the window of the ark that he had made, 
-
+>
 ><sup> 7 </sup> and he sent out a raven. It went back and forth until the water had dried up from the earth. 
-
+>
 ><sup> 8 </sup> Then he sent out a dove to see whether the water on the earth’s surface had gone down, 
-
+>
 ><sup> 9 </sup> but the dove found no resting place for its foot. It returned to him in the ark because water covered the surface of the whole earth. He reached out and brought it into the ark to himself. 
-
+>
 ><sup> 10 </sup> So Noah waited seven more days and sent out the dove from the ark again. 
-
+>
 ><sup> 11 </sup> When the dove came to him at evening, there was a plucked olive leaf in its beak. So Noah knew that the water on the earth’s surface had gone down. 
-
+>
 ><sup> 12 </sup> After he had waited another seven days, he sent out the dove, but it did not return to him again. 
-
+>
 ><sup> 13 </sup> In the six hundred first year, in the first month, on the first day of the month, the water that had covered the earth was dried up. Then Noah removed the ark’s cover and saw that the surface of the ground was drying. 
-
+>
 ><sup> 14 </sup> By the twenty-seventh day of the second month, the earth was dry.
 
 <div style="page-break-after: always;"></div>

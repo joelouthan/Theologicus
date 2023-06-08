@@ -4,27 +4,27 @@
 
 >Luke 23:32–43 (CSB)  
 ><sup> 32 </sup> Two others—criminals—were also led away to be executed with him. 
-
+>
 ><sup> 33 </sup> When they arrived at the place called The Skull, they crucified him there, along with the criminals, one on the right and one on the left. 
-
+>
 ><sup> 34 </sup> Then Jesus said, “Father, forgive them, because they do not know what they are doing.” And they divided his clothes and cast lots. 
-
+>
 ><sup> 35 </sup> The people stood watching, and even the leaders were scoffing: “He saved others; let him save himself if this is God’s Messiah, the Chosen One!” 
-
+>
 ><sup> 36 </sup> The soldiers also mocked him. They came offering him sour wine 
-
+>
 ><sup> 37 </sup> and said, “If you are the king of the Jews, save yourself!” 
-
+>
 ><sup> 38 </sup> An inscription was above him: This Is the King of the Jews. 
-
+>
 ><sup> 39 </sup> Then one of the criminals hanging there began to yell insults at him: “Aren’t you the Messiah? Save yourself and us!” 
-
+>
 ><sup> 40 </sup> But the other answered, rebuking him: “Don’t you even fear God, since you are undergoing the same punishment? 
-
+>
 ><sup> 41 </sup> We are punished justly, because we’re getting back what we deserve for the things we did, but this man has done nothing wrong.” 
-
+>
 ><sup> 42 </sup> Then he said, “Jesus, remember me when you come into your kingdom.” 
-
+>
 ><sup> 43 </sup> And he said to him, “Truly I tell you, today you will be with me in paradise.”
 
 ## The Chapter
@@ -98,19 +98,19 @@ And what God has made crystal, undeniably, basic, rudimentary, elementary, abund
 Go back and read Luke 23 again:
 
 ><sup> 32 </sup> Two others—criminals—were also led away to be executed with him. 
-
+>
 ><sup> 33 </sup> When they arrived at the place called The Skull, they crucified him there, along with the criminals, one on the right and one on the left. 
-
+>
 ><sup> 34 </sup> Then Jesus said, “Father, forgive them, because they do not know what they are doing.” And they divided his clothes and cast lots. 
-
+>
 ><sup> 35 </sup> The people stood watching, and even the leaders were scoffing: “He saved others; let him save himself if this is God’s Messiah, the Chosen One!” 
-
+>
 ><sup> 36 </sup> The soldiers also mocked him. They came offering him sour wine 
-
+>
 ><sup> 37 </sup> and said, “If you are the king of the Jews, save yourself!” 
-
+>
 ><sup> 38 </sup> An inscription was above him: This Is the King of the Jews. 
-
+>
 ><sup> 39 </sup> Then one of the criminals hanging there began to yell insults at him: “Aren’t you the Messiah? Save yourself and us!” 
 
 Jesus was scorned. Beaten. Suffering. Excruciating agonzing pain and torment. In the midst of that anguish, Jesus prays and preaches again:

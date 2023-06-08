@@ -46,36 +46,6 @@ But there is one who returned from the dead, who breathed out the words of God b
 
 Christ has returned from the dead. Will you repent of your sins? Will you trust and believe and live by the words of God? Will you obey the Son of God who is God for your life!
 
-## The Discussion
-
->>1. Have you ever read the Apocrypha?
-
->>2. Have you ever read any of the early church fathers like Augustine?
-
->>3. Give an example of an apparent contradiction at first glance.
-
->Romans 4:3-4 (CSB) For what does the Scripture say? Abraham believed God, and it was credited to him for righteousness. Now to the one who works, pay is not credited as a gift, but as something owed.
-
->James 2:21-24 (CSB) Wasn’t Abraham our father justified by works in offering Isaac his son on the altar? You see that faith was active together with his works, and by works, faith was made complete, and the Scripture was fulfilled that says, Abraham believed God, and it was credited to him as righteousness, and he was called God’s friend. You see that a person is justified by works and not by faith alone.
-
->Ephesians 2:10 (CSB) For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
-
->>4. How was your time in the word today?
-
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-My Precious Savior
-</div>
-
->>Speak to us. Your word is light unto my path of life that leads back to you.
-
-Open our ears. Open our eyes. Change our minds. Exchange our hearts.
-
-Dwell in us, God. We cannot understand your will unless you live in us.
-
-Amen.
-
 ## The Resources
 
 <img src="/images/dnd-1689-site-logo.png" align="left" width="100" style="padding-right: 10px" />Site: [Doctrine & Devotion](http://www.doctrineanddevotion.com/)  

@@ -4,13 +4,13 @@
 
 >2 Timothy 4:1–5 (CSB)  
 ><sup> 1 </sup> I solemnly charge you before God and Christ Jesus, who is going to judge the living and the dead, and because of his appearing and his kingdom: 
-
+>
 ><sup> 2 </sup> Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching. 
-
+>
 ><sup> 3 </sup> For the time will come when people will not tolerate sound doctrine, but according to their own desires, will multiply teachers for themselves because they have an itch to hear what they want to hear. 
-
+>
 ><sup> 4 </sup> They will turn away from hearing the truth and will turn aside to myths. 
-
+>
 ><sup> 5 </sup> But as for you, exercise self-control in everything, endure hardship, do the work of an evangelist, fulfill your ministry. 
 
 <div style="page-break-after: always;"></div>

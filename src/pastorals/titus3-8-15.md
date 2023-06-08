@@ -4,19 +4,19 @@
 
 >Titus 3:8–15 (CSB)  
 ><sup> 8  </sup>This saying is trustworthy. I want you to insist on these things, so that those who have believed God might be careful to devote themselves to good works. These are good and profitable for everyone. 
-
+>
 ><sup> 9  </sup>But avoid foolish debates, genealogies, quarrels, and disputes about the law, because they are unprofitable and worthless. 
-
+>
 ><sup> 10  </sup>Reject a divisive person after a first and second warning. 
-
+>
 ><sup> 11  </sup>For you know that such a person has gone astray and is sinning; he is self-condemned. 
-
+>
 ><sup> 12  </sup>When I send Artemas or Tychicus to you, make every effort to come to me in Nicopolis, because I have decided to spend the winter there. 
-
+>
 ><sup> 13  </sup>Diligently help Zenas the lawyer and Apollos on their journey, so that they will lack nothing. 
-
+>
 ><sup> 14  </sup>Let our people learn to devote themselves to good works for pressing needs, so that they will not be unfruitful. 
-
+>
 ><sup> 15  </sup>All those who are with me send you greetings. Greet those who love us in the faith. Grace be with all of you.
 
 <div style="page-break-after: always;"></div>
@@ -33,13 +33,13 @@ Go back to the passage right above:
 
 >Titus 3:3–7 (CSB)  
 ><sup> 3  </sup>For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. 
-
+>
 ><sup> 4  </sup>But when the kindness of God our Savior and his love for mankind appeared, 
-
+>
 ><sup> 5  </sup>he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. 
-
+>
 ><sup> 6  </sup>He poured out his Spirit on us abundantly through Jesus Christ our Savior 
-
+>
 ><sup> 7  </sup>so that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
 You say, "Preacher, that is the gospel." And I say, "You are correct." Therefore it is the call of God on our lives to preach, insist, continuously bringing up his good news. You say, "Preacher, I don't know how to do that and I am afraid I am going to fumble that up." But don't you know, you live your lives not out of back breaking performance or soul crushing perfectionism but out of vulnerability, weakeness, and repentance that you and I are always in need of a great, great God.
@@ -145,7 +145,7 @@ Is that a one time for all time declaration? No, it is all the time. Like I aske
 ## The Gospel
 
 ><sup> 12  </sup>When I send Artemas or Tychicus to you, make every effort to come to me in Nicopolis, because I have decided to spend the winter there. 
-
+>
 ><sup> 13  </sup>Diligently help Zenas the lawyer and Apollos on their journey, so that they will lack nothing. 
 
 ### Rest in Christ: Love One Another

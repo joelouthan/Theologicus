@@ -23,27 +23,27 @@ God in his almightiness most certainly make our circumstances perfect. What do y
 
 >Genesis 9:18–29 (CSB)  
 ><sup> 18 </sup> Noah’s sons who came out of the ark were Shem, Ham, and Japheth. Ham was the father of Canaan. 
-
+>
 ><sup> 19 </sup> These three were Noah’s sons, and from them the whole earth was populated. 
-
+>
 ><sup> 20 </sup> Noah, as a man of the soil, began by planting a vineyard. 
-
+>
 ><sup> 21 </sup> He drank some of the wine, became drunk, and uncovered himself inside his tent. 
-
+>
 ><sup> 22 </sup> Ham, the father of Canaan, saw his father naked and told his two brothers outside. 
-
+>
 ><sup> 23 </sup> Then Shem and Japheth took a cloak and placed it over both their shoulders, and walking backward, they covered their father’s nakedness. Their faces were turned away, and they did not see their father naked. 
-
+>
 ><sup> 24 </sup> When Noah awoke from his drinking and learned what his youngest son had done to him, 
-
+>
 ><sup> 25 </sup> he said: Canaan is cursed. He will be the lowest of slaves to his brothers. 
-
+>
 ><sup> 26 </sup> He also said: Blessed be the LORD, the God of Shem; Let Canaan be Shem’s slave. 
-
+>
 ><sup> 27 </sup> Let God extend Japheth; let Japheth dwell in the tents of Shem; let Canaan be Shem’s slave. 
-
+>
 ><sup> 28 </sup> Now Noah lived 350 years after the flood. 
-
+>
 ><sup> 29 </sup> So Noah’s life lasted 950 years; then he died.
 
 <div style="page-break-after: always;"></div>

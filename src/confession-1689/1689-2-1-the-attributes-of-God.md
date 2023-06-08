@@ -204,23 +204,23 @@ But God is not a school subject. He is not an academic course. He is not a scien
 
 >1 Corinthians 2:7–16 (CSB)  
 ><sup> 7  </sup>On the contrary, we speak God’s hidden wisdom in a mystery, a wisdom God predestined before the ages for our glory. 
-
+>
 ><sup> 8  </sup>None of the rulers of this age knew this wisdom, because if they had known it, they would not have crucified the Lord of glory. 
-
+>
 ><sup> 9  </sup>But as it is written, What no eye has seen, no ear has heard, and no human heart has conceived— God has prepared these things for those who love him. 
-
+>
 ><sup> 10  </sup>Now God has revealed these things to us by the Spirit, since the Spirit searches everything, even the depths of God. 
-
+>
 ><sup> 11  </sup>For who knows a person’s thoughts except his spirit within him? In the same way, no one knows the thoughts of God except the Spirit of God. 
-
+>
 ><sup> 12  </sup>Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God. 
-
+>
 ><sup> 13  </sup>We also speak these things, not in words taught by human wisdom, but in those taught by the Spirit, explaining spiritual things to spiritual people. 
-
+>
 ><sup> 14  </sup>But the person without the Spirit does not receive what comes from God’s Spirit, because it is foolishness to him; he is not able to understand it since it is evaluated spiritually. 
-
+>
 ><sup> 15  </sup>The spiritual person, however, can evaluate everything, and yet he himself cannot be evaluated by anyone. 
-
+>
 ><sup> 16  </sup>For who has known the Lord’s mind, that he may instruct him? But we have the mind of Christ.
 
 In other words, knowledge of God is supernatural and not natural. Something outside of us must reveal God to us. And throughout the Scriptures, we know that it must be God that reveals himself to us for us to know, believe, trust, and obey Him. No exceptions.
@@ -316,23 +316,23 @@ It is this same holiness that is now given to the people of God. All because God
 
 >Proverbs 8:22–31 (CSB)  
 ><sup> 22  </sup>“The LORD acquired me at the beginning of his creation, before his works of long ago. 
-
+>
 ><sup> 23  </sup>I was formed before ancient times, from the beginning, before the earth began. 
-
+>
 ><sup> 24  </sup>I was born when there were no watery depths and no springs filled with water. 
-
+>
 ><sup> 25  </sup>Before the mountains were established, prior to the hills, I was given birth— 
-
+>
 ><sup> 26  </sup>before he made the land, the fields, or the first soil on earth. 
-
+>
 ><sup> 27  </sup>I was there when he established the heavens, when he laid out the horizon on the surface of the ocean, 
-
+>
 ><sup> 28  </sup>when he placed the skies above, when the fountains of the ocean gushed out, 
-
+>
 ><sup> 29  </sup>when he set a limit for the sea so that the waters would not violate his command, when he laid out the foundations of the earth. 
-
+>
 ><sup> 30  </sup>I was a skilled craftsman beside him. I was his delight every day, always rejoicing before him. 
-
+>
 ><sup> 31  </sup>I was rejoicing in his inhabited world, delighting in the children of Adam.
 
 In this, the Age of Information, the modern man has fallen for the trap of "more information means our intelligence will increase." What we have witness is the fallout of this folly:
@@ -528,49 +528,49 @@ This is the rest that Christ has given to his people. We never have to earn his 
 ### forgiving iniquity, transgression and sin
 
 >Psalm 103 (CSB)  
-
+>
 ><sup>1</sup> My soul, bless the LORD, and all that is within me, bless his holy name. 
-
+>
 ><sup>2</sup> My soul, bless the LORD, and do not forget all his benefits. 
-
+>
 ><sup>3</sup> He forgives all your iniquity; he heals all your diseases. 
-
+>
 ><sup>4</sup> He redeems your life from the Pit; he crowns you with faithful love and compassion. 
-
+>
 ><sup>5</sup> He satisfies you with good things; your youth is renewed like the eagle. 
-
+>
 ><sup>6</sup> The LORD executes acts of righteousness and justice for all the oppressed. 
-
+>
 ><sup>7</sup> He revealed his ways to Moses, his deeds to the people of Israel. 
-
+>
 ><sup>8</sup> The LORD is compassionate and gracious, slow to anger and abounding in faithful love. 
-
+>
 ><sup>9</sup> He will not always accuse us or be angry forever. 
-
+>
 ><sup>10</sup> He has not dealt with us as our sins deserve or repaid us according to our iniquities. 
-
+>
 ><sup>11</sup> For as high as the heavens are above the earth, so great is his faithful love toward those who fear him. 
-
+>
 ><sup>12</sup> As far as the east is from the west, so far has he removed our transgressions from us. 
-
+>
 ><sup>13</sup> As a father has compassion on his children, so the LORD has compassion on those who fear him. 
-
+>
 ><sup>14</sup> For he knows what we are made of, remembering that we are dust. 
-
+>
 ><sup>15</sup> As for man, his days are like grass— he blooms like a flower of the field; 
-
+>
 ><sup>16</sup> when the wind passes over it, it vanishes, and its place is no longer known. 
-
+>
 ><sup>17</sup> But from eternity to eternity the LORD’s faithful love is toward those who fear him, and his righteousness toward the grandchildren 
-
+>
 ><sup>18</sup> of those who keep his covenant, who remember to observe his precepts. 
-
+>
 ><sup>19</sup> The LORD has established his throne in heaven, and his kingdom rules over all. 
-
+>
 ><sup>20</sup> Bless the LORD, all his angels of great strength, who do his word, obedient to his command. 
-
+>
 ><sup>21</sup> Bless the LORD, all his armies, his servants who do his will. 
-
+>
 ><sup>22</sup> Bless the LORD, all his works in all the places where he rules. My soul, bless the LORD!
 
 Who is like the Lord? Who can compare to Him? He is full of grace, merciful everyday, and steadfast in loving-kindness. He is the fairest of all time. There is no one who can match his power, awe, beauty, honor, majesty, and glory.

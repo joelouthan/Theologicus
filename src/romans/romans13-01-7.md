@@ -4,17 +4,17 @@
 
 >Romans 13:1–7 (CSB)  
 ><sup>1</sup> Let everyone submit to the governing authorities, since there is no authority except from God, and the authorities that exist are instituted by God. 
-
+>
 ><sup>2</sup> So then, the one who resists the authority is opposing God’s command, and those who oppose it will bring judgment on themselves. 
-
+>
 ><sup>3</sup> For rulers are not a terror to good conduct, but to bad. Do you want to be unafraid of the one in authority? Do what is good, and you will have its approval. 
-
+>
 ><sup>4</sup> For it is God’s servant for your good. But if you do wrong, be afraid, because it does not carry the sword for no reason. For it is God’s servant, an avenger that brings wrath on the one who does wrong. 
-
+>
 ><sup>5</sup> Therefore, you must submit, not only because of wrath but also because of your conscience. 
-
+>
 ><sup>6</sup> And for this reason you pay taxes, since the authorities are God’s servants, continually attending to these tasks. 
-
+>
 ><sup>7</sup> Pay your obligations to everyone: taxes to those you owe taxes, tolls to those you owe tolls, respect to those you owe respect, and honor to those you owe honor.
 
 ## Our God

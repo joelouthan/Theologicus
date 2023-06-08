@@ -38,9 +38,9 @@ More than just merely saved from Hell and sin but to the presence of God himself
 
 >Psalm 16:9–11 (CSB)  
 ><sup> 9 </sup> Therefore my heart is glad and my whole being rejoices; my body also rests securely. 
-
+>
 ><sup> 10 </sup> For you will not abandon me to Sheol; you will not allow your faithful one to see decay. 
-
+>
 ><sup> 11 </sup> You reveal the path of life to me; in your presence is abundant joy; at your right hand are eternal pleasures.
 
 That we won’t simply die in sin, or stay the same but we will look like Him: 

@@ -145,22 +145,6 @@ God can and does because He is unlimited, infinite and compassionate. Forever an
 
 Amen.
 
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-My Blessed Gift
-</div>
-
-```text
-We receive you. We hold our hands and receive all of the gifts which is everything because you have given us your Son, Lord Jesus Christ. In him we have everything. And nothing in our old hearts, old selves, in this world, nor Satan can compete with everything.
-
-Open our minds, hearts, mouths, hands to receive you
-
-Come Lord Jesus.
-
-Amen.
-```
-
 ## The Resources
 
 <p style="clear:both;">

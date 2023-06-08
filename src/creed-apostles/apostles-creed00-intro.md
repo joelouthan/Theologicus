@@ -2,17 +2,17 @@
 
 >Ephesians 4:10–16 (CSB)  
 ><sup>10</sup> The one who descended is also the one who ascended far above all the heavens, to fill all things. 
-
+>
 ><sup>11</sup> And he himself gave some to be apostles, some prophets, some evangelists, some pastors and teachers, 
-
+>
 ><sup>12</sup> to equip the saints for the work of ministry, to build up the body of Christ, 
-
+>
 ><sup>13</sup> until we all reach unity in the faith and in the knowledge of God’s Son, growing into maturity with a stature measured by Christ’s fullness. 
-
+>
 ><sup>14</sup> Then we will no longer be little children, tossed by the waves and blown around by every wind of teaching, by human cunning with cleverness in the techniques of deceit. 
-
+>
 ><sup>15</sup> But speaking the truth in love, let us grow in every way into him who is the head—Christ. 
-
+>
 ><sup>16</sup> From him the whole body, fitted and knit together by every supporting ligament, promotes the growth of the body for building itself up in love by the proper working of each individual part.
 
 ## The Creed
@@ -44,17 +44,17 @@
 
 >Matthew 23:1–7 (CSB)  
 ><sup>1</sup> Then Jesus spoke to the crowds and to his disciples: 
-
+>
 ><sup>2</sup> “The scribes and the Pharisees are seated in the chair of Moses. 
-
+>
 ><sup>3</sup> Therefore do whatever they tell you, and observe it. But don’t do what they do, because they don’t practice what they teach. 
-
+>
 ><sup>4</sup> They tie up heavy loads that are hard to carry and put them on people’s shoulders, but they themselves aren’t willing to lift a finger to move them. 
-
+>
 ><sup>5</sup> They do everything to be seen by others: They enlarge their phylacteries and lengthen their tassels. 
-
+>
 ><sup>6</sup> They love the place of honor at banquets, the front seats in the synagogues, 
-
+>
 ><sup>7</sup> greetings in the marketplaces, and to be called ‘Rabbi’ by people.
 
 ### What we believe is historical

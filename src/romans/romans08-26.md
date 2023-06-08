@@ -78,41 +78,6 @@ God knows. That is why he sent his Son to live and die for us. God knows our wea
 
 Even when we are at loss for words, God never is. He contends for us. He cares for us. He speaks goodness over our lives. He sings over us. He rejoices over us. He loves us. Forever.
 
-## The Discussion
-
-```text
-1. Paul calls for us to "pray constantly" (1 Thessalonians 5:17 (CSB)). Is that even possible? Have you ever been at a loss for words in prayer?
-```
-
-```text
-2. Read about how Christ teaches us how to pray (Matthew 6; Luke 11). Does it make it easier to pray when you keep it simply according to the Lord's instruction?
-```
-
-```text
-3. How do you feel know the Holy Spirit, who is God Almighty and fully God Himself, who is perfectly interceding and praying for you?
-```
-
-```text
-4. IF God is praying for you and saving you and refining you, who can be against you? Who are your real enemies?
-```
-
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-Spirit,
-</div>
-
-```text
-I adore you.
-
-Keep me in you grasp.
-
-Led me to the Father. All in what the Son has done for me.
-
-Amen.
-```
-
-
 ## The Resources
 
 <p style="clear:both;">

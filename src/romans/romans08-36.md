@@ -45,29 +45,29 @@ And that is a sign of the times we live in:
 
 >Luke 21:7–19 (CSB)  
 ><sup> 7  </sup>“Teacher,” they asked him, “so when will these things happen? And what will be the sign when these things are about to take place?” 
-
+>
 ><sup> 8  </sup>Then he said, “Watch out that you are not deceived. For many will come in my name, saying, ‘I am he,’ and, ‘The time is near.’ Don’t follow them. 
-
+>
 ><sup> 9  </sup>When you hear of wars and rebellions, don’t be alarmed. Indeed, it is necessary that these things take place first, but the end won’t come right away.” 
-
+>
 ><sup> 10  </sup>Then he told them, “Nation will be raised up against nation, and kingdom against kingdom. 
-
+>
 ><sup> 11  </sup>There will be violent earthquakes, and famines and plagues in various places, and there will be terrifying sights and great signs from heaven. 
-
+>
 ><sup> 12  </sup>But before all these things, they will lay their hands on you and persecute you. They will hand you over to the synagogues and prisons, and you will be brought before kings and governors because of my name. 
-
+>
 ><sup> 13  </sup>This will give you an opportunity to bear witness. 
-
+>
 ><sup> 14  </sup>Therefore make up your minds not to prepare your defense ahead of time, 
-
+>
 ><sup> 15  </sup>for I will give you such words and a wisdom that none of your adversaries will be able to resist or contradict. 
-
+>
 ><sup> 16  </sup>You will even be betrayed by parents, brothers, relatives, and friends. They will kill some of you. 
-
+>
 ><sup> 17  </sup>You will be hated by everyone because of my name, 
-
+>
 ><sup> 18  </sup>but not a hair of your head will be lost. 
-
+>
 ><sup> 19  </sup>By your endurance, gain your lives.
 
 Jesus Christ even promised the “laying on of hands”. My Charismatic friends, that is not the good kind but the the opposite of good-“bar fight with a bunch of drunk dudes at 2am in the morning” kind of laying of hands.

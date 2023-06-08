@@ -4,35 +4,35 @@
 
 >John 6:30–46 (CSB)  
 ><sup> 30 </sup> “What sign, then, are you going to do so that we may see and believe you?” they asked. “What are you going to perform? 
-
+>
 ><sup> 31 </sup> Our ancestors ate the manna in the wilderness, just as it is written: He gave them bread from heaven to eat.” 
-
+>
 ><sup> 32 </sup> Jesus said to them, “Truly I tell you, Moses didn’t give you the bread from heaven, but my Father gives you the true bread from heaven. 
-
+>
 ><sup> 33 </sup> For the bread of God is the one who comes down from heaven and gives life to the world.” 
-
+>
 ><sup> 34 </sup> Then they said, “Sir, give us this bread always.” 
-
+>
 ><sup> 35 </sup> “I am the bread of life,” Jesus told them. “No one who comes to me will ever be hungry, and no one who believes in me will ever be thirsty again. 
-
+>
 ><sup> 36 </sup> But as I told you, you’ve seen me, and yet you do not believe. 
-
+>
 ><sup> 37 </sup> Everyone the Father gives me will come to me, and the one who comes to me I will never cast out. 
-
+>
 ><sup> 38 </sup> For I have come down from heaven, not to do my own will, but the will of him who sent me. 
-
+>
 ><sup> 39 </sup> This is the will of him who sent me: that I should lose none of those he has given me but should raise them up on the last day. 
-
+>
 ><sup> 40 </sup> For this is the will of my Father: that everyone who sees the Son and believes in him will have eternal life, and I will raise him up on the last day.” 
-
+>
 ><sup> 41 </sup> Therefore the Jews started grumbling about him because he said, “I am the bread that came down from heaven.” 
-
+>
 ><sup> 42 </sup> They were saying, “Isn’t this Jesus the son of Joseph, whose father and mother we know? How can he now say, ‘I have come down from heaven’?” 
-
+>
 ><sup> 43 </sup> Jesus answered them, “Stop grumbling among yourselves. 
-
+>
 ><sup> 44 </sup> No one can come to me unless the Father who sent me draws him, and I will raise him up on the last day. 
-
+>
 ><sup> 45 </sup> It is written in the Prophets: And they will all be taught by God. Everyone who has listened to and learned from the Father comes to me—
 
 ><sup> 46 </sup> not that anyone has seen the Father except the one who is from God. He has seen the Father.
@@ -123,11 +123,11 @@ Don't despise preaching but test all things with other Christians and rejoice th
 
 >1 Corinthians 2:9–12 (CSB)  
 ><sup> 9 </sup> But as it is written, What no eye has seen, no ear has heard, and no human heart has conceived— God has prepared these things for those who love him. 
-
+>
 ><sup> 10 </sup> Now God has revealed these things to us by the Spirit, since the Spirit searches everything, even the depths of God. 
-
+>
 ><sup> 11 </sup> For who knows a person’s thoughts except his spirit within him? In the same way, no one knows the thoughts of God except the Spirit of God. 
-
+>
 ><sup> 12 </sup> Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God.
 
 I am going to post 1 Corinthians 2 as much as I need to so that we are thoroughly convinced that we cannot know anything from God unless God dwells in us. Full stop. 

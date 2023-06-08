@@ -77,40 +77,6 @@ No, in all these things we are more than conquerors through him who loved us.
 
 All the bad. All the good. Everything in between that has happened in your life--God will absolutely use to draw closer to Him.
 
-## The Discussion
-
-```text
-1. What will you choose to do with what God is doing?
-```
-
-```text
-2. Will you embrace His loving kindness and goodness towards you?
-```
-
-```text
-3. Or are you going to let the your circumstances dictate and define who you are and even worse, give you the license to sin just because you have your heart broken by the failed promises of the world?
-```
-
-```text
-4. Who else has our real comfort, real joy in this world?
-```
-
-Choose on this day on whom you will serve.
-
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-My Only Beloved
-</div>
-
-```text
-But God, let me see more of you to where the things of this world no longer entertain me.
-
-God, set me on fire so the rest of the world can watch me burn.
-
-God will because He loves me and will keep me forever.
-```
-
 ## The Resources
 
 <p style="clear:both;">

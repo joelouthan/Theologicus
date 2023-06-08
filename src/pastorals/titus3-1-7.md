@@ -4,17 +4,17 @@
 
 >Titus 3:1–7 (CSB)  
 ><sup> 1 </sup> Remind them to submit to rulers and authorities, to obey, to be ready for every good work, 
-
+>
 ><sup> 2 </sup> to slander no one, to avoid fighting, and to be kind, always showing gentleness to all people. 
-
+>
 ><sup> 3 </sup> For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. 
-
+>
 ><sup> 4 </sup> But when the kindness of God our Savior and his love for mankind appeared, 
-
+>
 ><sup> 5 </sup> he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. 
-
+>
 ><sup> 6 </sup> He poured out his Spirit on us abundantly through Jesus Christ our Savior 
-
+>
 ><sup> 7 </sup> so that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
 <div style="page-break-after: always;"></div>
@@ -22,7 +22,7 @@
 ## The Meditation
 
 ><sup> 1 </sup> Remind them to submit to rulers and authorities, to obey, to be ready for every good work, 
-
+>
 ><sup> 2 </sup> to slander no one, to avoid fighting, and to be kind, always showing gentleness to all people.
 
 ## Christ Appeared: God Loves Us
@@ -67,9 +67,9 @@ Here is the gospel:
 
 >John 1:16–18 (CSB)  
 ><sup> 16 </sup> Indeed, we have all received grace upon grace from his fullness, 
-
+>
 ><sup> 17 </sup> for the law was given through Moses; grace and truth came through Jesus Christ. 
-
+>
 ><sup> 18 </sup> No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
 
 And
@@ -100,9 +100,9 @@ No! Christ commands you to give up, give in and **rest in him**.
 
 >Matthew 11:28–30 (CSB)  
 ><sup> 28 </sup> “Come to me, all of you who are weary and burdened, and I will give you rest. 
-
+>
 ><sup> 29 </sup> Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. 
-
+>
 ><sup> 30 </sup> For my yoke is easy and my burden is light.”
 
 God has the sweetest rest for the soul. Will you take it? Or are you going to keep trying harder to gain the love of God who already loved you because he sent his Son to live and die for you some 2000 years ago. Or to further break your back, crush your soul, and break your heart: go and try to please the world. You will never stop working and it will be for nothing.

@@ -4,27 +4,27 @@
 
 >2 Timothy 3:1–12 (CSB)  
 ><sup> 1 </sup> But know this: Hard times will come in the last days. 
-
+>
 ><sup> 2 </sup> For people will be lovers of self, lovers of money, boastful, proud, demeaning, disobedient to parents, ungrateful, unholy, 
-
+>
 ><sup> 3 </sup> unloving, irreconcilable, slanderers, without self-control, brutal, without love for what is good, 
-
+>
 ><sup> 4 </sup> traitors, reckless, conceited, lovers of pleasure rather than lovers of God, 
-
+>
 ><sup> 5 </sup> holding to the form of godliness but denying its power. Avoid these people. 
-
+>
 ><sup> 6 </sup> For among them are those who worm their way into households and deceive gullible women overwhelmed by sins and led astray by a variety of passions, 
-
+>
 ><sup> 7 </sup> always learning and never able to come to a knowledge of the truth. 
-
+>
 ><sup> 8 </sup> Just as Jannes and Jambres resisted Moses, so these also resist the truth. They are men who are corrupt in mind and worthless in regard to the faith. 
-
+>
 ><sup> 9 </sup> But they will not make further progress, for their foolishness will be clear to all, as was the foolishness of Jannes and Jambres. 
-
+>
 ><sup> 10 </sup> But you have followed my teaching, conduct, purpose, faith, patience, love, and endurance, 
-
+>
 ><sup> 11 </sup> along with the persecutions and sufferings that came to me in Antioch, Iconium, and Lystra. What persecutions I endured—and yet the Lord rescued me from them all. 
-
+>
 ><sup> 12 </sup> In fact, all who want to live a godly life in Christ Jesus will be persecuted. 
 
 ## The Meditation

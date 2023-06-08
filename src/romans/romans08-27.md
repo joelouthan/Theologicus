@@ -67,24 +67,6 @@ Let the Almighty God take you into his strong arms as he begins to constantly, c
 
 I pray that everyone who reads these words would know that God didn’t create you and left you behind. He didn’t save you and then distance from you. God didn’t rescue you and then be disconnected from you. No! He saved you, pulled you in close, whispers blessings into your ear, rejoices and sings over you in gladness!
 
-## The Discussion
-
-```text
-1. We read in Hosea 2:14 that he does not condemn you but if your situation feels dire and lonely, our God is close as a whisper. What is it like to know God in this way?
-```
-
-```text
-2. We read in Zephaniah 3:17 that "he rejoices over us"? Why would you think that? Because of something we have done or who we are in Christ and what He has done for us?
-```
-
-```text
-3. Read Proverbs 24:16 and consider the Prodigal Son (Luke 15:11-32) for a moment. If Christ is in you, what would cause God to rejoice of you?
-```
-
-```text
-4. Do you know God like this? 
-```
-
 ## The Resources
 
 <p style="clear:both;">

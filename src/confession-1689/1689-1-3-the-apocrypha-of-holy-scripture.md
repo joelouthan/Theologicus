@@ -47,28 +47,6 @@ Repent, for the kingdom of God is now.
 
 >Galatians 1:6-10 (CSB) I am amazed that you are so quickly turning away from him who called you by the grace of Christ and are turning to a different gospel— not that there is another gospel, but there are some who are troubling you and want to distort the gospel of Christ. But even if we or an angel from heaven should preach to you a gospel contrary to what we have preached to you, a curse be on him! As we have said before, I now say again: If anyone is preaching to you a gospel contrary to what you received, a curse be on him! For am I now trying to persuade people, or God? Or am I striving to please people? If I were still trying to please people, I would not be a servant of Christ.
 
-## The Discussion
-
->>1. If the Bible is the supreme authority on all that God has revealed, what else is it authority on?
-
->>2. Is the Bible a theological or a science book?
-
->>3. How do we know science?
-
->>4. What has God revealed to us about creation?
-
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-The Word of God
-</div>
-
->>Like prayer, we do not read and hear your word as we ought. But we praise you for your grace that you have on us.
-
-Reveal yourself to us. Keep us in your presence.
-
-Amen.
-
 ## The Resources
 
 <img src="/images/dnd-1689-site-logo.png" align="left" width="100" style="padding-right: 10px" />Site: [Doctrine & Devotion](http://www.doctrineanddevotion.com/)  

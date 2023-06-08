@@ -14,27 +14,27 @@ And.
 
 >Ephesians 1:3–14 (CSB)  
 ><sup> 3 </sup> Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. 
-
+>
 ><sup> 4 </sup> For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. 
-
+>
 ><sup> 5 </sup> He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, 
-
+>
 ><sup> 6 </sup> to the praise of his glorious grace that he lavished on us in the Beloved One. 
-
+>
 ><sup> 7 </sup> In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace 
-
+>
 ><sup> 8 </sup> that he richly poured out on us with all wisdom and understanding. 
-
+>
 ><sup> 9 </sup> He made known to us the mystery of his will, according to his good pleasure that he purposed in Christ 
-
+>
 ><sup> 10 </sup> as a plan for the right time—to bring everything together in Christ, both things in heaven and things on earth in him. 
-
+>
 ><sup> 11 </sup> In him we have also received an inheritance, because we were predestined according to the plan of the one who works out everything in agreement with the purpose of his will, 
-
+>
 ><sup> 12 </sup> so that we who had already put our hope in Christ might bring praise to his glory. 
-
+>
 ><sup> 13 </sup> In him you also were sealed with the promised Holy Spirit when you heard the word of truth, the gospel of your salvation, and when you believed. 
-
+>
 ><sup> 14 </sup> The Holy Spirit is the down payment of our inheritance, until the redemption of the possession, to the praise of his glory.
 
 ## Our God
@@ -92,43 +92,6 @@ Before Genesis 1:1, before time and space began, before the formations of the su
 “He is mine! He is in my family! And by the power of My Spirit, I will bring in him into my family because my Son will do everything in order to save him to me!”
 
 What kind of love this? The heart can barely contain the amount. Praise God for his love.
-
-## The Discussion
-
-```text
-1. What kind of love this?
-```
-
-```text
-2. How do we comprehend the love of God?
-```
-
-```text
-3. Does God see our very best or very worst? What did he decide to do when he saw you?
-```
-
-```text
-4. What kind of love this?
-```
-
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-My Faithful Love
-</div>
-
-```text
-Hold on to me.
-
-Because I love to wander. I love to flee from your goodness.
-
-Don't let me wiggle out--for surely I will perish without you.
-
-Save me.
-
-Amen.
-```
-
 
 ## The Resources
 

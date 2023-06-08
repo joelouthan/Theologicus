@@ -38,25 +38,25 @@ Here is the summation of what it means for the crucified, death, and burial of t
 
 >Romans 6:1–11 (CSB)  
 ><sup>1</sup> What should we say then? Should we continue in sin so that grace may multiply? 
-
+>
 ><sup>2</sup> Absolutely not! How can we who died to sin still live in it? 
-
+>
 ><sup>3</sup> Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? 
-
+>
 ><sup>4</sup> Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life. 
-
+>
 ><sup>5</sup> For if we have been united with him in the likeness of his death, we will certainly also be in the likeness of his resurrection. 
-
+>
 ><sup>6</sup> For we know that our old self was crucified with him so that the body ruled by sin might be rendered powerless so that we may no longer be enslaved to sin, 
-
+>
 ><sup>7</sup> since a person who has died is freed from sin. 
-
+>
 ><sup>8</sup> Now if we died with Christ, we believe that we will also live with him, 
-
+>
 ><sup>9</sup> because we know that Christ, having been raised from the dead, will not die again. Death no longer rules over him. 
-
+>
 ><sup>10</sup> For the death he died, he died to sin once for all time; but the life he lives, he lives to God. 
-
+>
 ><sup>11</sup> So, you too consider yourselves dead to sin and alive to God in Christ Jesus.
 
 Or to put it in one line:

@@ -64,19 +64,19 @@ So, I have written sixty-nine chapters expositing Romans and you think all of su
 
 >1 Corinthians 1:18–25 (CSB)  
 ><sup>18</sup> For the word of the cross is foolishness to those who are perishing, but it is the power of God to us who are being saved. 
-
+>
 ><sup>19</sup> For it is written, I will destroy the wisdom of the wise, and I will set aside the intelligence of the intelligent. 
-
+>
 ><sup>20</sup> Where is the one who is wise? Where is the teacher of the law? Where is the debater of this age? Hasn’t God made the world’s wisdom foolish? 
-
+>
 ><sup>21</sup> For since, in God’s wisdom, the world did not know God through wisdom, God was pleased to save those who believe through the foolishness of what is preached. 
-
+>
 ><sup>22</sup> For the Jews ask for signs and the Greeks seek wisdom, 
-
+>
 ><sup>23</sup> but we preach Christ crucified, a stumbling block to the Jews and foolishness to the Gentiles. 
-
+>
 ><sup>24</sup> Yet to those who are called, both Jews and Greeks, Christ is the power of God and the wisdom of God, 
-
+>
 ><sup>25</sup> because God’s foolishness is wiser than human wisdom, and God’s weakness is stronger than human strength.
 
 And

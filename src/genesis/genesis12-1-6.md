@@ -20,15 +20,15 @@ I want you to keep in mind when we read and study Genesis 12, God is putting tog
 
 >Genesis 12:1-6 (CSB)  
 ><sup> 1 </sup> The LORD said to Abram: Go from your land, your relatives, and your father’s house to the land that I will show you. 
-
+>
 ><sup> 2 </sup> I will make you into a great nation, I will bless you, I will make your name great, and you will be a blessing. 
-
+>
 ><sup> 3 </sup> I will bless those who bless you, I will curse anyone who treats you with contempt, and all the peoples on earth will be blessed through you. 
-
+>
 ><sup> 4 </sup> So Abram went, as the LORD had told him, and Lot went with him. Abram was seventy-five years old when he left Haran. 
-
+>
 ><sup> 5 </sup> He took his wife, Sarai, his nephew Lot, all the possessions they had accumulated, and the people they had acquired in Haran, and they set out for the land of Canaan. When they came to the land of Canaan, 
-
+>
 ><sup> 6 </sup> Abram passed through the land to the site of Shechem, at the oak of Moreh. (At that time the Canaanites were in the land.) 
 
 ## Our God
@@ -48,9 +48,9 @@ We know from the Bible--we know that from what we read of Genesis thus far--that
 God came in the midst of his ordinary every day life and gives the covenant call:
 
 ><sup> 1 </sup> The LORD said to Abram: Go from your land, your relatives, and your father’s house to the land that I will show you. 
-
+>
 ><sup> 2 </sup> I will make you into a great nation, I will bless you, I will make your name great, and you will be a blessing. 
-
+>
 ><sup> 3 </sup> I will bless those who bless you, I will curse anyone who treats you with contempt, and all the peoples on earth will be blessed through you.
 
 ### Predestined by God: Abraham was called out by God
@@ -146,9 +146,9 @@ Within the history of mankind, in the middle of chaos, death, and confusion, God
 Abram was effectually, effectively, called-to-the-living, heart-exchanged, spirit-indwelt, righteousness-deposited by God through the simple words:
 
 ><sup> 1 </sup> The LORD said to Abram: Go from your land, your relatives, and your father’s house to the land that I will show you. 
-
+>
 ><sup> 2 </sup> I will make you into a great nation, I will bless you, I will make your name great, and you will be a blessing. 
-
+>
 ><sup> 3 </sup> I will bless those who bless you, I will curse anyone who treats you with contempt, and all the peoples on earth will be blessed through you. 
 
 Jesus, on this earth, had more than a few words to say about Abraham, whom Galatians and Hebrews calls, "the father of our faith". He says:

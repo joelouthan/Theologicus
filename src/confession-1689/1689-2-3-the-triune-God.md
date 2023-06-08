@@ -197,7 +197,7 @@ Yet, because Christ perfectly saved his people from their sins (Matthew 1:21), b
 
 >Daniel 7:13–14 (CSB)  
 ><sup>13</sup> I continued watching in the night visions, and suddenly one like a son of man was coming with the clouds of heaven. He approached the Ancient of Days and was escorted before him. 
-
+>
 ><sup>14</sup> **He was given dominion and glory and a kingdom, so that those of every people, nation, and language should serve him. His dominion is an everlasting dominion that will not pass away, and his kingdom is one that will not be destroyed.**
 
 Christ perfectly glorifies the Father. The Father perfectly and rightfully glorifies the Son. And they do so in the power of the Holy Spirit.

@@ -76,15 +76,15 @@ The Apostle Paul wraps up the Gospel of John in this way:
 
 >Colossians 1:15–20 (CSB)  
 ><sup>15</sup> He is the image of the invisible God, the firstborn over all creation. 
-
+>
 ><sup>16</sup> For everything was created by him, in heaven and on earth, the visible and the invisible, whether thrones or dominions or rulers or authorities— all things have been created through him and for him. 
-
+>
 ><sup>17</sup> He is before all things, and by him all things hold together. 
-
+>
 ><sup>18</sup> He is also the head of the body, the church; he is the beginning, the firstborn from the dead, so that he might come to have first place in everything. 
-
+>
 ><sup>19</sup> For God was pleased to have all his fullness dwell in him, 
-
+>
 ><sup>20</sup> and through him to reconcile everything to himself, whether things on earth or things in heaven, by making peace through his blood, shed on the cross.
 
 When we speak of mankind, then a husband and a wife beget a child. You see this in older Bible translations: "Abraham begets Isaac begets Jacob begets Joseph". But reminder that humans are created beings and therefore, by the definition of creation, they have a definite start date. In other words, we are not from eternal past.

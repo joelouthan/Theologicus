@@ -4,13 +4,13 @@
 
 >Titus 1:5–9 (CSB)  
 ><sup> 5 </sup>The reason I left you in Crete was to set right what was left undone and, as I directed you, to appoint elders in every town. 
-
+>
 ><sup> 6 </sup>An elder must be blameless, the husband of one wife, with faithful children who are not accused of wildness or rebellion. 
-
+>
 ><sup> 7 </sup>As an overseer of God’s household, he must be blameless, not arrogant, not hot-tempered, not an excessive drinker, not a bully, not greedy for money, 
-
+>
 ><sup> 8 </sup>but hospitable, loving what is good, sensible, righteous, holy, self-controlled, 
-
+>
 ><sup> 9 </sup>holding to the faithful message as taught, so that he will be able both to encourage with sound teaching and to refute those who contradict it.
 
 <div style="page-break-after: always;"></div>

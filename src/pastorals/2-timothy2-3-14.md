@@ -4,27 +4,27 @@
 
 >2 Timothy 2:3–14 (CSB)  
 ><sup> 3 </sup> Share in suffering as a good soldier of Christ Jesus. 
-
+>
 ><sup> 4 </sup> No one serving as a soldier gets entangled in the concerns of civilian life; he seeks to please the commanding officer. 
-
+>
 ><sup> 5 </sup> Also, if anyone competes as an athlete, he is not crowned unless he competes according to the rules. 
-
+>
 ><sup> 6 </sup> The hardworking farmer ought to be the first to get a share of the crops. 
-
+>
 ><sup> 7 </sup> Consider what I say, for the Lord will give you understanding in everything. 
-
+>
 ><sup> 8 </sup> Remember Jesus Christ, risen from the dead and descended from David, according to my gospel, 
-
+>
 ><sup> 9 </sup> for which I suffer to the point of being bound like a criminal. But the word of God is not bound. 
-
+>
 ><sup> 10 </sup> This is why I endure all things for the elect: so that they also may obtain salvation, which is in Christ Jesus, with eternal glory. 
-
+>
 ><sup> 11 </sup> This saying is trustworthy: For if we died with him, we will also live with him; 
-
+>
 ><sup> 12 </sup> if we endure, we will also reign with him; if we deny him, he will also deny us; 
-
+>
 ><sup> 13 </sup> if we are faithless, he remains faithful, for he cannot deny himself. 
-
+>
 ><sup> 14 </sup> Remind them of these things, and charge them before God not to fight about words. This is useless and leads to the ruin of those who listen. 
 
 ## The Meditation

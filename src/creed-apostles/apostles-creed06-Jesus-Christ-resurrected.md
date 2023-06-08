@@ -36,39 +36,39 @@ bgy {
 
 >John 20:1–18 (CSB)  
 ><sup>1</sup> On the first day of the week Mary Magdalene came to the tomb early, while it was still dark. She saw that the stone had been removed from the tomb. 
-
+>
 ><sup>2</sup> So she went running to Simon Peter and to the other disciple, the one Jesus loved, and said to them, “They’ve taken the Lord out of the tomb, and we don’t know where they’ve put him!” 
-
+>
 ><sup>3</sup> At that, Peter and the other disciple went out, heading for the tomb. 
-
+>
 ><sup>4</sup> The two were running together, but the other disciple outran Peter and got to the tomb first. 
-
+>
 ><sup>5</sup> Stooping down, he saw the linen cloths lying there, but he did not go in. 
-
+>
 ><sup>6</sup> Then, following him, Simon Peter also came. He entered the tomb and saw the linen cloths lying there. 
-
+>
 ><sup>7</sup> The wrapping that had been on his head was not lying with the linen cloths but was folded up in a separate place by itself. 
-
+>
 ><sup>8</sup> The other disciple, who had reached the tomb first, then also went in, saw, and believed. 
-
+>
 ><sup>9</sup> For they did not yet understand the Scripture that he must rise from the dead. 
-
+>
 ><sup>10</sup> Then the disciples returned to the place where they were staying. 
-
+>
 ><sup>11</sup> But Mary stood outside the tomb, crying. As she was crying, she stooped to look into the tomb. 
-
+>
 ><sup>12</sup> She saw two angels in white sitting where Jesus’s body had been lying, one at the head and the other at the feet. 
-
+>
 ><sup>13</sup> They said to her, “Woman, why are you crying?” “Because they’ve taken away my Lord,” she told them, “and I don’t know where they’ve put him.” 
-
+>
 ><sup>14</sup> Having said this, she turned around and saw Jesus standing there, but she did not know it was Jesus. 
-
+>
 ><sup>15</sup> “Woman,” Jesus said to her, “why are you crying? Who is it that you’re seeking?” Supposing he was the gardener, she replied, “Sir, if you’ve carried him away, tell me where you’ve put him, and I will take him away.” 
-
+>
 ><sup>16</sup> Jesus said to her, “Mary.” Turning around, she said to him in Aramaic, “Rabboni!”—which means “Teacher.” 
-
+>
 ><sup>17</sup> “Don’t cling to me,” Jesus told her, “since I have not yet ascended to the Father. But go to my brothers and tell them that I am ascending to my Father and your Father, to my God and your God.” 
-
+>
 ><sup>18</sup> Mary Magdalene went and announced to the disciples, “I have seen the Lord!” And she told them what he had said to her.
 
 ### He ascended into heaven and sits at the right hand of God the Father Almighty

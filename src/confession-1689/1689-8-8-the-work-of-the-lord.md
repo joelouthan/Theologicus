@@ -177,17 +177,17 @@ Consider the story of Noah:
 
 >Genesis 6:1–7 (CSB)  
 ><sup>1</sup> When mankind began to multiply on the earth and daughters were born to them, 
-
+>
 ><sup>2</sup> the sons of God saw that the daughters of mankind were beautiful, and they took any they chose as wives for themselves. 
-
+>
 ><sup>3</sup> And the LORD said, “My Spirit will not remain with mankind forever, because they are corrupt. Their days will be 120 years.” 
-
+>
 ><sup>4</sup> The Nephilim were on the earth both in those days and afterward, when the sons of God came to the daughters of mankind, who bore children to them. They were the powerful men of old, the famous men. 
-
+>
 ><sup>5</sup> When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, 
-
+>
 ><sup>6</sup> the LORD regretted that he had made man on the earth, and he was deeply grieved. 
-
+>
 ><sup>7</sup> Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky—for I regret that I made them.”
 
 Before we can even mention Noah, answer some basic, non-trick questions:

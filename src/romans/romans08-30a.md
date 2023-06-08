@@ -20,19 +20,19 @@ God saved us because He simply saw us and He chose us to be with Him forever.
 
 >Ephesians 1:3–10 (CSB)  
 ><sup> 3 </sup> Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. 
-
+>
 ><sup> 4 </sup> For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. 
-
+>
 ><sup> 5 </sup> He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, 
-
+>
 ><sup> 6 </sup> to the praise of his glorious grace that he lavished on us in the Beloved One. 
-
+>
 ><sup> 7 </sup> In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace 
-
+>
 ><sup> 8 </sup> that he richly poured out on us with all wisdom and understanding. 
-
+>
 ><sup> 9 </sup> He made known to us the mystery of his will, according to his good pleasure that he purposed in Christ 
-
+>
 ><sup> 10 </sup> as a plan for the right time—to bring everything together in Christ, both things in heaven and things on earth in him.
 
 Take a look at this passage: “Blessed be the God and Father of our Lord Jesus Christ, who has blessed us in Christ with every spiritual blessing in the heavenly places, even as he chose us in him before the foundation of the world…”Paul is exhorting us that God is blessed and God has definitely blessed us with every spiritual blessing in the heavenly places. However, for our sake and our thinking is contained within the element of time (while God is not), those blessings did not start with us, within the family we were born, the place in the world where we grew up, nor the people we know although we do know God purposely chooses all of that for us so that we “should seek God, and perhaps feel their way toward him and find him.”  It started before the foundations of the earth were laid and even before time and space were spoken into existence. It started before Genesis 1:1.

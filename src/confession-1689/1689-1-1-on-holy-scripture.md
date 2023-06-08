@@ -162,30 +162,6 @@ Yes, I am Charismatic. Full-on. But I know that I know that I cannot add to the 
 
 The word of God is beyond "without error". It is perfect. Is it easy to understand? Is it easy to believe? No, it is not. Well, not on your own. You will need the Holy Spirit to open your mind and your heart so you can receive and believe the good news that Jesus Christ is Lord of all.
 
-## The Discussion
-
->>1. "by their unrighteousness suppress the truth" - How can mankind be saved if in our nature we keep suppressing the truth of God?
-
->>2. What advantages and disadvantages we have being placed by God in the age of information--nearly 600 years after the invention of the printing press?
-
->>3. "those former ways of God’s revealing His will unto His people being now ceased" - how does that sit with you? Does it make sense or does it grinds your gears?
-
->>4. Do you believe the Bible? Why or why not?
-
->>“One of these days some simple soul will pick up the Book of God, read it, and believe it. Then the rest of us will be embarrassed. We have adopted the convenient theory that the Bible is a Book to be explained, whereas first and foremost it is a Book to be believed (and after that to be obeyed).”
->>
->>Leonard Ravenhill
-
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-My Source of Light
-</div>
-
->>I believe. Help me in my disbelief!
-
-Amen.
-
 ## The Resources
 
 <img src="/images/dnd-1689-site-logo.png" align="left" width="100" style="padding-right: 10px" />Site: [Doctrine & Devotion](http://www.doctrineanddevotion.com/)  

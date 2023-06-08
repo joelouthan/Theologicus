@@ -36,19 +36,19 @@ bgy {
 
 >Matthew 1:18–25 (CSB)  
 ><sup>18</sup> The birth of Jesus Christ came about this way: After his mother Mary had been engaged to Joseph, it was discovered before they came together that she was pregnant from the Holy Spirit. 
-
+>
 ><sup>19</sup> So her husband, Joseph, being a righteous man, and not wanting to disgrace her publicly, decided to divorce her secretly. 
-
+>
 ><sup>20</sup> But after he had considered these things, an angel of the Lord appeared to him in a dream, saying, “Joseph, son of David, don’t be afraid to take Mary as your wife, because what has been conceived in her is from the Holy Spirit. 
-
+>
 ><sup>21</sup> She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.” 
-
+>
 ><sup>22</sup> Now all this took place to fulfill what was spoken by the Lord through the prophet: 
-
+>
 ><sup>23</sup> See, the virgin will become pregnant and give birth to a son, and they will name him Immanuel, which is translated “God is with us.” 
-
+>
 ><sup>24</sup> When Joseph woke up, he did as the Lord’s angel had commanded him. He married her 
-
+>
 ><sup>25</sup> but did not have sexual relations with her until she gave birth to a son. And he named him Jesus.
 
 Big facts:

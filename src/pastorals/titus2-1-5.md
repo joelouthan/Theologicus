@@ -4,13 +4,13 @@
 
 >Titus 2:1–5 (CSB)  
 ><sup> 1 </sup> But you are to proclaim things consistent with sound teaching. 
-
+>
 ><sup> 2 </sup> Older men are to be self-controlled, worthy of respect, sensible, and sound in faith, love, and endurance. 
-
+>
 ><sup> 3 </sup> In the same way, older women are to be reverent in behavior, not slanderers, not slaves to excessive drinking. They are to teach what is good, 
-
+>
 ><sup> 4 </sup> so that they may encourage the young women to love their husbands and to love their children, 
-
+>
 ><sup> 5 </sup> to be self-controlled, pure, workers at home, kind, and in submission to their husbands, so that God’s word will not be slandered.
 
 <div style="page-break-after: always;"></div>
@@ -21,9 +21,9 @@ When I dwell on this passage in Titus, I wonder of the parallel to the first epi
 
 >1 John 2:12–14 (CSB)  
 ><sup> 12 </sup> I am writing to you, little children, since your sins have been forgiven on account of his name. 
-
+>
 ><sup> 13 </sup> I am writing to you, fathers, because you have come to know the one who is from the beginning. I am writing to you, young men, because you have conquered the evil one. 
-
+>
 ><sup> 14 </sup> I have written to you, children, because you have come to know the Father. I have written to you, fathers, because you have come to know the one who is from the beginning. I have written to you, young men, because you are strong, God’s word remains in you, and you have conquered the evil one.
 
 In this exposition, I want to pull from 1 John as well.
@@ -87,7 +87,7 @@ But now that we are righteous before God, we get to be pure and holy.
 
 >Colossians 3:12–13 (CSB)  
 ><sup> 12 </sup> Therefore, as God’s chosen ones, holy and dearly loved, put on compassion, kindness, humility, gentleness, and patience, 
-
+>
 ><sup> 13 </sup> bearing with one another and forgiving one another if anyone has a grievance against another. Just as the Lord has forgiven you, so you are also to forgive.
 
 >Proverbs 31:26 (CSB)  
@@ -104,7 +104,7 @@ But now that we are righteous before God, we get to be pure and holy.
 
 >1 Peter 3:8–9 (CSB)  
 ><sup> 8 </sup> Finally, all of you be like-minded and sympathetic, love one another, and be compassionate and humble, 
-
+>
 ><sup> 9 </sup> not paying back evil for evil or insult for insult but, on the contrary, giving a blessing, since you were called for this, so that you may inherit a blessing.
 
 Being kind is its own reward. If that is not enough, it is a clear command from God.

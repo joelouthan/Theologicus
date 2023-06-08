@@ -54,29 +54,29 @@ He could have prevented my dad abusing me. He could have prevented my mom from l
 
 >Psalm 76 (CSB)  
 ><sup></sup> For the choir director: with stringed instruments. A psalm of Asaph. A song. 
-
+>
 ><sup>1</sup> God is known in Judah; his name is great in Israel. 
-
+>
 ><sup>2</sup> His tent is in Salem, his dwelling place in Zion. 
-
+>
 ><sup>3</sup> There he shatters the bow’s flaming arrows, the shield, the sword, and the weapons of war. Selah 
-
+>
 ><sup>4</sup> You are resplendent and majestic coming down from the mountains of prey. 
-
+>
 ><sup>5</sup> The brave-hearted have been plundered; they have slipped into their final sleep. None of the warriors was able to lift a hand. 
-
+>
 ><sup>6</sup> At your rebuke, God of Jacob, both chariot and horse lay still. 
-
+>
 ><sup>7</sup> And you—you are to be feared. When you are angry, who can stand before you? 
-
+>
 ><sup>8</sup> From heaven you pronounced judgment. The earth feared and grew quiet 
-
+>
 ><sup>9</sup> when God rose up to judge and to save all the lowly of the earth. Selah 
-
+>
 ><sup>10</sup> Even human wrath will praise you; you will clothe yourself with the wrath that remains. 
-
+>
 ><sup>11</sup> Make and keep your vows to the LORD your God; let all who are around him bring tribute to the awe-inspiring one. 
-
+>
 ><sup>12</sup> He humbles the spirit of leaders; he is feared by the kings of the earth.
 
 He could have. But what everybody, including myself, meant for evil, God, in his almighty power, unsearchable wisdom, and the source of all good, did not only stop the evil but ordained it for his glory and my good and the good of others.
@@ -87,39 +87,39 @@ God is not above ordaining the worst kinds of evil if it means that his people a
 
 >Psalm 10 (CSB)  
 ><sup>1</sup> LORD, why do you stand so far away? Why do you hide in times of trouble? 
-
+>
 ><sup>2</sup> In arrogance the wicked relentlessly pursue their victims; let them be caught in the schemes they have devised. 
-
+>
 ><sup>3</sup> For the wicked one boasts about his own cravings; the one who is greedy curses and despises the LORD. 
-
+>
 ><sup>4</sup> In all his scheming, the wicked person arrogantly thinks, “There’s no accountability, since there’s no God.” 
-
+>
 ><sup>5</sup> His ways are always secure; your lofty judgments have no effect on him; he scoffs at all his adversaries. 
-
+>
 ><sup>6</sup> He says to himself, “I will never be moved— from generation to generation I will be without calamity.” 
-
+>
 ><sup>7</sup> Cursing, deceit, and violence fill his mouth; trouble and malice are under his tongue. 
-
+>
 ><sup>8</sup> He waits in ambush near settlements; he kills the innocent in secret places. His eyes are on the lookout for the helpless; 
-
+>
 ><sup>9</sup> he lurks in secret like a lion in a thicket. He lurks in order to seize a victim; he seizes a victim and drags him in his net. 
-
+>
 ><sup>10</sup> So he is oppressed and beaten down; helpless people fall because of the wicked one’s strength. 
-
+>
 ><sup>11</sup> He says to himself, “God has forgotten; he hides his face and will never see.” 
-
+>
 ><sup>12</sup> Rise up, LORD God! Lift up your hand. Do not forget the oppressed. 
-
+>
 ><sup>13</sup> Why has the wicked person despised God? He says to himself, “You will not demand an account.” 
-
+>
 ><sup>14</sup> But you yourself have seen trouble and grief, observing it in order to take the matter into your hands. The helpless one entrusts himself to you; you are a helper of the fatherless. 
-
+>
 ><sup>15</sup> Break the arm of the wicked, evil person, until you look for his wickedness, but it can’t be found. 
-
+>
 ><sup>16</sup> The LORD is King forever and ever; the nations will perish from his land. 
-
+>
 ><sup>17</sup> LORD, you have heard the desire of the humble; you will strengthen their hearts. You will listen carefully, 
-
+>
 ><sup>18</sup> doing justice for the fatherless and the oppressed so that mere humans from the earth may terrify them no more.
 
 ### in a manifold dispensation to his most holy ends

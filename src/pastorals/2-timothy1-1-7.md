@@ -4,17 +4,17 @@
 
 >2 Timothy 1:1–7 (CSB)  
 ><sup> 1 </sup> Paul, an apostle of Christ Jesus by God’s will, for the sake of the promise of life in Christ Jesus: 
-
+>
 ><sup> 2 </sup> To Timothy, my dearly loved son. Grace, mercy, and peace from God the Father and Christ Jesus our Lord. 
-
+>
 ><sup> 3 </sup> I thank God, whom I serve with a clear conscience as my ancestors did, when I constantly remember you in my prayers night and day. 
-
+>
 ><sup> 4 </sup> Remembering your tears, I long to see you so that I may be filled with joy. 
-
+>
 ><sup> 5 </sup> I recall your sincere faith that first lived in your grandmother Lois and in your mother Eunice and now, I am convinced, is in you also. 
-
+>
 ><sup> 6 </sup> Therefore, I remind you to rekindle the gift of God that is in you through the laying on of my hands. 
-
+>
 ><sup> 7 </sup> For God has not given us a spirit of fear, but one of power, love, and sound judgment.
 
 ## The Meditation

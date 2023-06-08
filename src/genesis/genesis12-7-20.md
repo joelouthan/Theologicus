@@ -26,7 +26,7 @@ God promises Abram--some Gentile minding his own business tending to his dad's b
 
 > Genesis 12:2-3
 ><sup> 2 </sup> I will make you into a great nation, I will bless you, I will make your name great, and you will be a blessing. 
-
+>
 ><sup> 3 </sup> I will bless those who bless you, I will curse anyone who treats you with contempt, and all the peoples on earth will be blessed through you. 
 
 We are 12 chapters into the Bible where when God makes a promise to mankind, mankind is going to commit a sin.
@@ -39,31 +39,31 @@ Do you think it will be different this time around?
 
 >Genesis 12:7-20 (CSB)
 ><sup> 7 </sup> The LORD appeared to Abram and said, “To your offspring, I will give this land.” So he built an altar there to the LORD who had appeared to him. 
-
+>
 ><sup> 8 </sup> From there he moved on to the hill country east of Bethel and pitched his tent, with Bethel on the west and Ai on the east. He built an altar to the LORD there, and he called on the name of the LORD. 
-
+>
 ><sup> 9 </sup> Then Abram journeyed by stages to the Negev. 
-
+>
 ><sup> 10 </sup> There was a famine in the land, so Abram went down to Egypt to stay there for a while because the famine in the land was severe. 
-
+>
 ><sup> 11 </sup> When he was about to enter Egypt, he said to his wife, Sarai, “Look, I know what a beautiful woman you are. 
-
+>
 ><sup> 12 </sup> When the Egyptians see you, they will say, ‘This is his wife.’ They will kill me but let you live. 
-
+>
 ><sup> 13 </sup> Please say you’re my sister so it will go well for me because of you, and my life will be spared on your account.” 
-
+>
 ><sup> 14 </sup> When Abram entered Egypt, the Egyptians saw that the woman was very beautiful. 
-
+>
 ><sup> 15 </sup> Pharaoh’s officials saw her and praised her to Pharaoh, so the woman was taken to Pharaoh’s household. 
-
+>
 ><sup> 16 </sup> He treated Abram well because of her, and Abram acquired flocks and herds, male and female donkeys, male and female slaves, and camels. 
-
+>
 ><sup> 17 </sup> But the LORD struck Pharaoh and his household with severe plagues because of Abram’s wife, Sarai. 
-
+>
 ><sup> 18 </sup> So Pharaoh sent for Abram and said, “What have you done to me? Why didn’t you tell me she was your wife? 
-
+>
 ><sup> 19 </sup> Why did you say, ‘She’s my sister,’ so that I took her as my wife? Now, here is your wife. Take her and go!” 
-
+>
 ><sup> 20 </sup> Then Pharaoh gave his men orders about him, and they sent him away with his wife and all he had.
 
 Spoiler alert: mankind responds by sinning.
@@ -71,7 +71,7 @@ Spoiler alert: mankind responds by sinning.
 ## Our God
 
 ><sup> 7 </sup> The LORD appeared to Abram and said, “To your offspring, I will give this land.” So he built an altar there to the LORD who had appeared to him. 
-
+>
 ><sup> 8 </sup> From there he moved on to the hill country east of Bethel and pitched his tent, with Bethel on the west and Ai on the east. He built an altar to the LORD there, and he called on the name of the LORD. 
 
 ### Preserved by God: Here is a place to live
@@ -103,7 +103,7 @@ Your place and home is not your own because this whole world belongs to Christ a
 ---
 
 ><sup> 9 </sup> Then Abram journeyed by stages to the Negev. 
-
+>
 ><sup> 10 </sup> There was a famine in the land, so Abram went down to Egypt to stay there for a while because the famine in the land was severe. 
 
 ### Preserved by God: Here where you must go
@@ -121,9 +121,9 @@ He already determined when and where you are living. Now he will determine what 
 ---
 
 ><sup> 11 </sup> When he was about to enter Egypt, he said to his wife, Sarai, “Look, I know what a beautiful woman you are. 
-
+>
 ><sup> 12 </sup> When the Egyptians see you, they will say, ‘This is his wife.’ They will kill me but let you live. 
-
+>
 ><sup> 13 </sup> Please say you’re my sister so it will go well for me because of you, and my life will be spared on your account.”
 
 ### Preserved by God: He has not led you into temptation and sin and death and chaos and despair
@@ -155,9 +155,9 @@ Oh, if you are curious of the specific sin that Abram commited against his wife?
 ---
 
 ><sup> 14 </sup> When Abram entered Egypt, the Egyptians saw that the woman was very beautiful. 
-
+>
 ><sup> 15 </sup> Pharaoh’s officials saw her and praised her to Pharaoh, so the woman was taken to Pharaoh’s household. 
-
+>
 ><sup> 16 </sup> He treated Abram well because of her, and Abram acquired flocks and herds, male and female donkeys, male and female slaves, and camels. 
 
 ### Preserved by God: He will provide for you
@@ -179,11 +179,11 @@ God alone is our provision. And I know we make mistakes or we don't make a mista
 ---
 
 ><sup> 17 </sup> But the LORD struck Pharaoh and his household with severe plagues because of Abram’s wife, Sarai. 
-
+>
 ><sup> 18 </sup> So Pharaoh sent for Abram and said, “What have you done to me? Why didn’t you tell me she was your wife? 
-
+>
 ><sup> 19 </sup> Why did you say, ‘She’s my sister,’ so that I took her as my wife? Now, here is your wife. Take her and go!” 
-
+>
 ><sup> 20 </sup> Then Pharaoh gave his men orders about him, and they sent him away with his wife and all he had.
 
 ### Preserved by God: He will make all things right standing with himself

@@ -37,29 +37,29 @@ And not even the salvation of Noah was a big enough warning to everybody else ar
 > Genesis 6:10–22 (CSB)  
 > 
 ><sup> 10 </sup> And Noah fathered three sons: Shem, Ham, and Japheth. 
-
+>
 ><sup> 11 </sup> Now the earth was corrupt in God’s sight, and the earth was filled with wickedness. 
-
+>
 ><sup> 12 </sup> God saw how corrupt the earth was, for every creature had corrupted its way on the earth. 
-
+>
 ><sup> 13 </sup> Then God said to Noah, “I have decided to put an end to every creature, for the earth is filled with wickedness because of them; therefore I am going to destroy them along with the earth. 
-
+>
 ><sup> 14 </sup> “Make yourself an ark of gopher wood. Make rooms in the ark, and cover it with pitch inside and outside. 
-
+>
 ><sup> 15 </sup> This is how you are to make it: The ark will be 450 feet long, 75 feet wide, and 45 feet high. 
-
+>
 ><sup> 16 </sup> You are to make a roof, finishing the sides of the ark to within eighteen inches of the roof. You are to put a door in the side of the ark. Make it with lower, middle, and upper decks. 
-
+>
 ><sup> 17 </sup> “Understand that I am bringing a flood—floodwaters on the earth to destroy every creature under heaven with the breath of life in it. Everything on earth will perish. 
-
+>
 ><sup> 18 </sup> But I will establish my covenant with you, and you will enter the ark with your sons, your wife, and your sons’ wives. 
-
+>
 ><sup> 19 </sup> You are also to bring into the ark two of all the living creatures, male and female, to keep them alive with you. 
-
+>
 ><sup> 20 </sup> Two of everything—from the birds according to their kinds, from the livestock according to their kinds, and from the animals that crawl on the ground according to their kinds—will come to you so that you can keep them alive. 
-
+>
 ><sup> 21 </sup> Take with you every kind of food that is eaten; gather it as food for you and for them.” 
-
+>
 ><sup> 22 </sup> And Noah did this. He did everything that God had commanded him.
 
 ## The Support
@@ -101,7 +101,7 @@ This is a story of the Holy One of God who will stop at nothing to "separate and
 The blessings to Adam and Eve, that is, the common grace was still ongoing in the world. Despite our wickedness and depravity, God did not withhold anything good from mankind. First, we breath air. Second, we get to marry. Third, we get to have kids. We get to have friends. We get to have family, provision, jobs, sunsets, sex, fun, entertainment, science, sports, and everything good in the world. God did not withhold that.
 
 ><sup> 11 </sup> Now the earth was corrupt in God’s sight, and the earth was filled with wickedness. 
-
+>
 ><sup> 12 </sup> God saw how corrupt the earth was, for every creature had corrupted its way on the earth. 
 
 ### Holiness of God is just
@@ -131,9 +131,9 @@ Name off the things freely given to us by God: Himself, Jesus, Spirit, grace, lo
 ### Holiness of God is perfect
 
 ><sup> 14 </sup> “Make yourself an ark of gopher wood. Make rooms in the ark, and cover it with pitch inside and outside. 
-
+>
 ><sup> 15 </sup> This is how you are to make it: The ark will be 450 feet long, 75 feet wide, and 45 feet high. 
-
+>
 ><sup> 16 </sup> You are to make a roof, finishing the sides of the ark to within eighteen inches of the roof. You are to put a door in the side of the ark. Make it with lower, middle, and upper decks. 
 
 This is not the last time we are going to receive a set of holy blueprints and instructions from God to us to show us what we must do in order to behold the Living God and his goodness. What so many people fail to understand is that they treat the Bible like these instructions to build an ark thinking that they will have joy, happiness, safety, even eternal life just by doing what the Scriptures say.
@@ -163,9 +163,9 @@ Don't let anybody try to tell you that Christ never talked about hell. Christ ta
 ### Holiness of God is salvation for his people
 
 ><sup> 18 </sup> But I will establish my covenant with you, and you will enter the ark with your sons, your wife, and your sons’ wives. 
-
+>
 ><sup> 19 </sup> You are also to bring into the ark two of all the living creatures, male and female, to keep them alive with you. 
-
+>
 ><sup> 20 </sup> Two of everything—from the birds according to their kinds, from the livestock according to their kinds, and from the animals that crawl on the ground according to their kinds—will come to you so that you can keep them alive.
 
 And time and time again, through his precious word, God's promises are made and they will always be fulfilled and true.

@@ -26,23 +26,23 @@ Let us get into the text and see how this goes.
 
 >Genesis 7:1–10 (CSB)  
 ><sup> 1 </sup> Then the LORD said to Noah, “Enter the ark, you and all your household, for I have seen that you alone are righteous before me in this generation. 
-
+>
 ><sup> 2 </sup> You are to take with you seven pairs, a male and its female, of all the clean animals, and two of the animals that are not clean, a male and its female, 
-
+>
 ><sup> 3 </sup> and seven pairs, male and female, of the birds of the sky—in order to keep offspring alive throughout the earth. 
-
+>
 ><sup> 4 </sup> Seven days from now I will make it rain on the earth forty days and forty nights, and every living thing I have made I will wipe off the face of the earth.” 
-
+>
 ><sup> 5 </sup> And Noah did everything that the LORD commanded him. 
-
+>
 ><sup> 6 </sup> Noah was six hundred years old when the flood came and water covered the earth. 
-
+>
 ><sup> 7 </sup> So Noah, his sons, his wife, and his sons’ wives entered the ark because of the floodwaters. 
-
+>
 ><sup> 8 </sup> From the animals that are clean, and from the animals that are not clean, and from the birds and every creature that crawls on the ground, 
-
+>
 ><sup> 9 </sup> two of each, male and female, came to Noah and entered the ark, just as God had commanded him. 
-
+>
 ><sup> 10 </sup> Seven days later the floodwaters came on the earth.
 
 <div style="page-break-after: always;"></div>
@@ -104,7 +104,7 @@ That generation is not nearly as wicked as our own. This generation of mankind, 
 ## The Gospel
 
 ><sup> 2 </sup> You are to take with you seven pairs, a male and its female, of all the clean animals, and two of the animals that are not clean, a male and its female, 
-
+>
 ><sup> 3 </sup> and seven pairs, male and female, of the birds of the sky—in order to keep offspring alive throughout the earth. 
 
 Here is the good news:
@@ -137,13 +137,13 @@ And God did and God did forever.
 ><sup> 1 </sup> Therefore, since Christ suffered in the flesh, arm yourselves also with the same understanding—because the one who suffers in the flesh is finished with sin—
 
 ><sup> 2 </sup> in order to live the remaining time in the flesh no longer for human desires, but for God’s will. 
-
+>
 ><sup> 3 </sup> For there has already been enough time spent in doing what the Gentiles choose to do: carrying on in unrestrained behavior, evil desires, drunkenness, orgies, carousing, and lawless idolatry. 
-
+>
 ><sup> 4 </sup> They are surprised that you don’t join them in the same flood of wild living—and they slander you. 
-
+>
 ><sup> 5 </sup> They will give an account to the one who stands ready to judge the living and the dead. 
-
+>
 ><sup> 6 </sup> For this reason the gospel was also preached to those who are now dead, so that, although they might be judged in the flesh according to human standards, they might live in the spirit according to God’s standards.
 
 You and I will stand before God and give an account for our lives.
@@ -197,11 +197,11 @@ If it is clear that God's judgment upon mankind is certain, what is ours to do?
 ### Respond to the Lord's gospel command to repent of your sins and enter into your rest
 
 ><sup> 6 </sup> Noah was six hundred years old when the flood came and water covered the earth. 
-
+>
 ><sup> 7 </sup> So Noah, his sons, his wife, and his sons’ wives entered the ark because of the floodwaters. 
-
+>
 ><sup> 8 </sup> From the animals that are clean, and from the animals that are not clean, and from the birds and every creature that crawls on the ground, 
-
+>
 ><sup> 9 </sup> two of each, male and female, came to Noah and entered the ark, just as God had commanded him. 
 
 >Matthew 7:13-14 (CSB) “Enter through the narrow gate. For the gate is wide and the road broad that leads to destruction, and there are many who go through it. 14 How narrow is the gate and difficult the road that leads to life, and few find it.

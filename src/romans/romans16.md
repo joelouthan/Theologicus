@@ -4,53 +4,53 @@
 
 >Romans 16 (CSB)  
 ><sup>1</sup> I commend to you our sister Phoebe, who is a servant of the church in Cenchreae. 
-
+>
 ><sup>2</sup> So you should welcome her in the Lord in a manner worthy of the saints and assist her in whatever matter she may require your help. For indeed she has been a benefactor of many—and of me also. 
-
+>
 ><sup>3</sup> Give my greetings to Prisca and Aquila, my coworkers in Christ Jesus, 
-
+>
 ><sup>4</sup> who risked their own necks for my life. Not only do I thank them, but so do all the Gentile churches. 
-
+>
 ><sup>5</sup> Greet also the church that meets in their home. Greet my dear friend Epaenetus, who is the first convert to Christ from Asia. 
-
+>
 ><sup>6</sup> Greet Mary, who has worked very hard for you. 
-
+>
 ><sup>7</sup> Greet Andronicus and Junia, my fellow Jews and fellow prisoners. They are noteworthy in the eyes of the apostles, and they were also in Christ before me. 
-
+>
 ><sup>8</sup> Greet Ampliatus, my dear friend in the Lord. 
-
+>
 ><sup>9</sup> Greet Urbanus, our coworker in Christ, and my dear friend Stachys. 
-
+>
 ><sup>10</sup> Greet Apelles, who is approved in Christ. Greet those who belong to the household of Aristobulus. 
-
+>
 ><sup>11</sup> Greet Herodion, my fellow Jew. Greet those who belong to the household of Narcissus who are in the Lord. 
-
+>
 ><sup>12</sup> Greet Tryphaena and Tryphosa, who have worked hard in the Lord. Greet my dear friend Persis, who has worked very hard in the Lord. 
-
+>
 ><sup>13</sup> Greet Rufus, chosen in the Lord; also his mother—and mine. 
-
+>
 ><sup>14</sup> Greet Asyncritus, Phlegon, Hermes, Patrobas, Hermas, and the brothers and sisters who are with them. 
-
+>
 ><sup>15</sup> Greet Philologus and Julia, Nereus and his sister, and Olympas, and all the saints who are with them. 
-
+>
 ><sup>16</sup> Greet one another with a holy kiss. All the churches of Christ send you greetings. 
-
+>
 ><sup>17</sup> Now I urge you, brothers and sisters, to watch out for those who create divisions and obstacles contrary to the teaching that you learned. Avoid them, 
-
+>
 ><sup>18</sup> because such people do not serve our Lord Christ but their own appetites. They deceive the hearts of the unsuspecting with smooth talk and flattering words. 
-
+>
 ><sup>19</sup> The report of your obedience has reached everyone. Therefore I rejoice over you, but I want you to be wise about what is good, and yet innocent about what is evil. 
-
+>
 ><sup>20</sup> The God of peace will soon crush Satan under your feet. The grace of our Lord Jesus be with you. 
-
+>
 ><sup>21</sup> Timothy, my coworker, and Lucius, Jason, and Sosipater, my fellow countrymen, greet you. 
-
+>
 ><sup>22</sup> I, Tertius, who wrote this letter, greet you in the Lord. 
-
+>
 ><sup>23</sup> Gaius, who is host to me and to the whole church, greets you. Erastus, the city treasurer, and our brother Quartus greet you. 
-
+>
 ><sup>25</sup> Now to him who is able to strengthen you according to my gospel and the proclamation about Jesus Christ, according to the revelation of the mystery kept silent for long ages 
-
+>
 ><sup>26</sup> but now revealed and made known through the prophetic Scriptures, according to the command of the eternal God to advance the obedience of faith among all the Gentiles—
 
 ><sup>27</sup> to the only wise God, through Jesus Christ—to him be the glory forever! Amen.

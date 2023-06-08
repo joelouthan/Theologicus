@@ -49,67 +49,67 @@ I am so glad you asked that question.
 
 >Genesis 11 (CSB)  
 ><sup> 1 </sup> The whole earth had the same language and vocabulary. 
-
+>
 ><sup> 2 </sup> As people migrated from the east, they found a valley in the land of Shinar and settled there. 
-
+>
 ><sup> 3 </sup> They said to each other, “Come, let’s make oven-fired bricks.” (They used brick for stone and asphalt for mortar.) 
-
+>
 ><sup> 4 </sup> And they said, “Come, let’s build ourselves a city and a tower with its top in the sky. Let’s make a name for ourselves; otherwise, we will be scattered throughout the earth.” 
-
+>
 ><sup> 5 </sup> Then the LORD came down to look over the city and the tower that the humans were building. 
-
+>
 ><sup> 6 </sup> The LORD said, “If they have begun to do this as one people all having the same language, then nothing they plan to do will be impossible for them. 
-
+>
 ><sup> 7 </sup> Come, let’s go down there and confuse their language so that they will not understand one another’s speech.” 
-
+>
 ><sup> 8 </sup> So from there the LORD scattered them throughout the earth, and they stopped building the city. 
-
+>
 ><sup> 9 </sup> Therefore it is called Babylon, for there the LORD confused the language of the whole earth, and from there the LORD scattered them throughout the earth. 
-
+>
 ><sup> 10 </sup> These are the family records of Shem. Shem lived 100 years and fathered Arpachshad two years after the flood. 
-
+>
 ><sup> 11 </sup> After he fathered Arpachshad, Shem lived 500 years and fathered other sons and daughters. 
-
+>
 ><sup> 12 </sup> Arpachshad lived 35 years and fathered Shelah. 
-
+>
 ><sup> 13 </sup> After he fathered Shelah, Arpachshad lived 403 years and fathered other sons and daughters. 
-
+>
 ><sup> 14 </sup> Shelah lived 30 years and fathered Eber. 
-
+>
 ><sup> 15 </sup> After he fathered Eber, Shelah lived 403 years and fathered other sons and daughters. 
-
+>
 ><sup> 16 </sup> Eber lived 34 years and fathered Peleg. 
-
+>
 ><sup> 17 </sup> After he fathered Peleg, Eber lived 430 years and fathered other sons and daughters. 
-
+>
 ><sup> 18 </sup> Peleg lived 30 years and fathered Reu. 
-
+>
 ><sup> 19 </sup> After he fathered Reu, Peleg lived 209 years and fathered other sons and daughters. 
-
+>
 ><sup> 20 </sup> Reu lived 32 years and fathered Serug. 
-
+>
 ><sup> 21 </sup> After he fathered Serug, Reu lived 207 years and fathered other sons and daughters. 
-
+>
 ><sup> 22 </sup> Serug lived 30 years and fathered Nahor. 
-
+>
 ><sup> 23 </sup> After he fathered Nahor, Serug lived 200 years and fathered other sons and daughters. 
-
+>
 ><sup> 24 </sup> Nahor lived 29 years and fathered Terah. 
-
+>
 ><sup> 25 </sup> After he fathered Terah, Nahor lived 119 years and fathered other sons and daughters. 
-
+>
 ><sup> 26 </sup> Terah lived 70 years and fathered Abram, Nahor, and Haran. 
-
+>
 ><sup> 27 </sup> These are the family records of Terah. Terah fathered Abram, Nahor, and Haran, and Haran fathered Lot. 
-
+>
 ><sup> 28 </sup> Haran died in his native land, in Ur of the Chaldeans, during his father Terah’s lifetime. 
-
+>
 ><sup> 29 </sup> Abram and Nahor took wives: Abram’s wife was named Sarai, and Nahor’s wife was named Milcah. She was the daughter of Haran, the father of both Milcah and Iscah. 
-
+>
 ><sup> 30 </sup> Sarai was unable to conceive; she did not have a child. 
-
+>
 ><sup> 31 </sup> Terah took his son Abram, his grandson Lot (Haran’s son), and his daughter-in-law Sarai, his son Abram’s wife, and they set out together from Ur of the Chaldeans to go to the land of Canaan. But when they came to Haran, they settled there. 
-
+>
 ><sup> 32 </sup> Terah lived 205 years and died in Haran.
 
 <div style="page-break-after: always;"></div>
@@ -125,9 +125,9 @@ If that explanation is good for you, you can go ahead and drop off this episode.
 If you are at all curious on how this plays out with mankind, and more specifically the Tower of Babel (or Babylon), then hold on.
 
 ><sup> 1 </sup> The whole earth had the same language and vocabulary. 
-
+>
 ><sup> 2 </sup> As people migrated from the east, they found a valley in the land of Shinar and settled there. 
-
+>
 ><sup> 3 </sup> They said to each other, “Come, let’s make oven-fired bricks.” (They used brick for stone and asphalt for mortar.) 
 
 ### Pragmaticism does not work in the kingdom of God
@@ -147,9 +147,9 @@ God does the opposite. God's kingdom is upside down. God's ways are higher than 
 ---
 
 ><sup> 4 </sup> And they said, “Come, let’s build ourselves a city and a tower with its top in the sky. Let’s make a name for ourselves; otherwise, we will be scattered throughout the earth.” 
-
+>
 ><sup> 5 </sup> Then the LORD came down to look over the city and the tower that the humans were building. 
-
+>
 ><sup> 6 </sup> The LORD said, “If they have begun to do this as one people all having the same language, then nothing they plan to do will be impossible for them. 
 
 ### Humanism does not work in the kingdom of God
@@ -182,9 +182,9 @@ Yet, the good news of God is not a way to protect us from being hurt. The gospel
 ---
 
 ><sup> 7 </sup> Come, let’s go down there and confuse their language so that they will not understand one another’s speech.” 
-
+>
 ><sup> 8 </sup> So from there the LORD scattered them throughout the earth, and they stopped building the city. 
-
+>
 ><sup> 9 </sup> Therefore it is called Babylon, for there the LORD confused the language of the whole earth, and from there the LORD scattered them throughout the earth. 
 
 ### Secularism does not work in the kingdom of God
@@ -200,13 +200,13 @@ Upside-down compared to mankind. Wrong way compared to our notions and good inte
 You want upside down? Try this on for size, taken from Luke 3:
 
 Noah begat Shem begat Arphaxad begat Cainan begat Shelah begat Eber begat Peleg begat Reu begat Serug begat Nahor begat Terah begat a wealthy landowner and shepherd named Abram. 
-
+>
 ><sup> 29 </sup> Abram and Nahor took wives: Abram’s wife was named Sarai, and Nahor’s wife was named Milcah. She was the daughter of Haran, the father of both Milcah and Iscah. 
-
+>
 ><sup> 30 </sup> Sarai was unable to conceive; she did not have a child. 
-
+>
 ><sup> 31 </sup> Terah took his son Abram, his grandson Lot (Haran’s son), and his daughter-in-law Sarai, his son Abram’s wife, and they set out together from Ur of the Chaldeans to go to the land of Canaan. But when they came to Haran, they settled there. 
-
+>
 ><sup> 32 </sup> Terah lived 205 years and died in Haran.
 
 God picked a bloodline to cut through all our intellect, wisdom, notions, knowledge, and power from the source of our wickedness. God didn't do things the easy way. God didn't save his people the fast way. God plays the long game--because Christ the Alpha and the Omega--the firstborn among many brothers and sisters.
@@ -214,43 +214,6 @@ God picked a bloodline to cut through all our intellect, wisdom, notions, knowle
 He was here before time began. He will be here for all of eterntiy.
 
 Yet, Christ steps into our moment in time, cutting through our depravity and just holds out his hands, and command, "Give me your sin and your trust and your faith and your belief." Do this and be saved. 
-
-## The Discussion
-
-```text
-1. Is Philosophy inheritently evil?
-```
-
-```text
-2. How is Philosophy like any of the other sciences that God has given us?
-```
-
-```text
-3. If we are able to fix our problems and change our circumstances, would our lives be any better?
-```
-
-Correct answer: No.
-
-```text
-4. What is the ultimate fix?
-```
-
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-Great I Am,
-</div>
-
-```text
-How majestic is your name in all the earth. There is no one like you.
-
-Be exalted, oh Lord, be exalted above my doubts and worries and this earth.
-
-Amen.
-```
-
-<div style="page-break-after: always;"></div>
-
 
 ## The Resources
 

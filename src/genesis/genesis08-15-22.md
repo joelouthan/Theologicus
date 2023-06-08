@@ -4,19 +4,19 @@
 
 >Lamentations 3:19–26 (CSB)  
 ><sup> 19 </sup> Remember my affliction and my homelessness, the wormwood and the poison. 
-
+>
 ><sup> 20 </sup> I continually remember them and have become depressed. 
-
+>
 ><sup> 21 </sup> Yet I call this to mind, and therefore I have hope: 
-
+>
 ><sup> 22 </sup> Because of the LORD’s faithful love we do not perish, for his mercies never end. 
-
+>
 ><sup> 23 </sup> They are new every morning; great is your faithfulness! 
-
+>
 ><sup> 24 </sup> I say, “The LORD is my portion, therefore I will put my hope in him.” 
-
+>
 ><sup> 25 </sup> The LORD is good to those who wait for him, to the person who seeks him. 
-
+>
 ><sup> 26 </sup> It is good to wait quietly for salvation from the LORD.
 
 Through judgment and wrath and righteousness and the holiness of God and his right decisions, the people of God who have put their faith, trust, believe, and obedience and yes, hope, in their Christ alone, will be saved.
@@ -25,19 +25,19 @@ Through judgment and wrath and righteousness and the holiness of God and his rig
 
 >Genesis 8:15–22 (CSB)  
 ><sup> 15 </sup> Then God spoke to Noah, 
-
+>
 ><sup> 16 </sup> “Come out of the ark, you, your wife, your sons, and your sons’ wives with you. 
-
+>
 ><sup> 17 </sup> Bring out all the living creatures that are with you—birds, livestock, those that crawl on the earth—and they will spread over the earth and be fruitful and multiply on the earth.” 
-
+>
 ><sup> 18 </sup> So Noah, along with his sons, his wife, and his sons’ wives, came out. 
-
+>
 ><sup> 19 </sup> All the animals, all the creatures that crawl, and all the flying creatures—everything that moves on the earth—came out of the ark by their families. 
-
+>
 ><sup> 20 </sup> Then Noah built an altar to the LORD. He took some of every kind of clean animal and every kind of clean bird and offered burnt offerings on the altar. 
-
+>
 ><sup> 21 </sup> When the LORD smelled the pleasing aroma, he said to himself, “I will never again curse the ground because of human beings, even though the inclination of the human heart is evil from youth onward. And I will never again strike down every living thing as I have done. 
-
+>
 ><sup> 22 </sup> As long as the earth endures, seedtime and harvest, cold and heat, summer and winter, and day and night will not cease.”
 
 ## The Support
@@ -51,9 +51,9 @@ Through judgment and wrath and righteousness and the holiness of God and his rig
 ## God
 
 ><sup> 15 </sup> Then God spoke to Noah, 
-
+>
 ><sup> 16 </sup> “Come out of the ark, you, your wife, your sons, and your sons’ wives with you. 
-
+>
 ><sup> 17 </sup> Bring out all the living creatures that are with you—birds, livestock, those that crawl on the earth—and they will spread over the earth and be fruitful and multiply on the earth.” 
 
 ### Promise of God: God will deliver you through the world
@@ -79,7 +79,7 @@ Those are not nice things to have if you get them. I have experienced everything
 ## The Gospel
 
 ><sup> 18 </sup> So Noah, along with his sons, his wife, and his sons’ wives, came out. 
-
+>
 ><sup> 19 </sup> All the animals, all the creatures that crawl, and all the flying creatures—everything that moves on the earth—came out of the ark by their families. 
 
 ### Promise of God: the people of God are saved
