@@ -14,6 +14,7 @@
     width: 50px;
     float: right
   }
+
  </style>
 
 Here just the very small list of resources on Romans that I have found most helpful.
