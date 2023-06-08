@@ -56,8 +56,6 @@ ___
 
 ### Commentaries
 
-<p style="clear:both;">
-
 <img src="/images/commentary-calvin-set.png" align="left" width="150" style="padding-right: 10px" />Calvin's Commentaries.  
 by John Calvin.  
 Baker. 2009.  
@@ -80,6 +78,8 @@ Easily read cover-to-cover.
 
 **Note**: I noticed that the latest editions from Sproul's set since the Luke release are no longer part of the St. Andrew's Expositional Set that started with Mark, John, Romans, Matthew, 1 & 2 Peter, and Acts. I don't know why they drop the set name but since the passing of Dr. Sproul, it kind of makes sense. These commentaries are really a collection of Sproul's sermons put into book form, which is way easier said than done. Sermons are meant to be primarily preached audibly. To get them to be read in a book form takes an editor worth their chops along with the preacher to make sure everything is super clear in written form. _-Ed._
 
+<p style="clear:both;">
+
 ---
 
 <img src="/images/commentary-mark-hendriksen.jpg" align="left" width="150" style="padding-right: 10px" />New Testament Commentary: Exposition of the Gospel According to Mark  
@@ -100,6 +100,8 @@ That said, that one little blurb in Wikipedia and knowing there was one (1) past
 [^1]: Hendriksen, William (2007). Israel in prophecy. London: Wakeman, (Originally published by Baker Book House in 1968). p. 16.
 [^2]: Horner, Barry (15 January 2015). "The Reformed Eschatology of William Hendriksen" (PDF). Future Israel website. Archived from the original (PDF) on 8 March 2015. Retrieved 8 March 2015
 
+<p style="clear:both;">
+
 ---
 
 <img src="/images/commentary-mark-lane.jpg" align="left" width="150" style="padding-right: 10px" />The Gospel according to Mark: The English Text With Introduction, Exposition, and Notes (The New International Commentary on the New Testament)  
@@ -109,7 +111,9 @@ Eerdman's. 1974.
 
 Incredible thorough and wonderfully written, Dr. Lane walks the reader masterfully through not only the Gospel but the perspective of the writer, John-Mark.
 
-___
+<p style="clear:both;">
+
+---
 
 <img src="/images/commentary-mark-oden.jpg" align="left" width="150" style="padding-right: 10px" />Mark (Ancient Christian Commentary on Scripture, NT Volume 2)  
 Edited by Thomas C. Odin & Christopher A. Hall  
@@ -117,6 +121,8 @@ IVP Academic. 2005.
 [Goodreads](https://www.goodreads.com/book/show/33015669-mark)
 
 I think this entire series is an excellent resource to have on hand if you can pony up the scratch.  It's all fine and good to read guys from within the last few centuries. But how about reading commentary from within the first few centuries after the ascension of Christ. You ain't going to read anything shockingly new.  But what you are going realize there is absolutely new under the sun and Jesus Christ the same yesterday, today, and tomorrow.
+
+<p style="clear:both;">
 
 ---
 
