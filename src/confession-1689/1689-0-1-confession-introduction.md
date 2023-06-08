@@ -1,4 +1,4 @@
-# 1689 Baptist Confession of Faith: Introduction, Recommendations, Confession with Scriptural Prooftexts
+# 1689 Baptist Confession of Faith: An Introduction & Recommendations
 
 <style>
 
