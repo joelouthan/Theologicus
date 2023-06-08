@@ -1,4 +1,21 @@
-# Genesis, A Few Resources
+# Genesis: An Introduction & Resources
+
+<style>
+  
+    img {
+      padding-right: 10px;
+      padding-bottom: 10px;
+      width: 150px;
+      float: left;
+    }
+  
+    .olive {
+      padding-left: 10px;
+      width: 50px;
+      float: right
+    }
+  
+</style>
 
 ## Introduction
 
@@ -10,23 +27,35 @@ Here just the very small list of resources on Genesis that I have found most hel
 
 ## It Goes Without Say
 
-[<img src="https://images-na.ssl-images-amazon.com/images/I/91DXb+atXsL.jpg" align="left" width="100" style="padding-right: 10px" />The Holy Bible](https://amzn.to/3FbGqbM)
+<img src="/images/bible-csb-study.jpg">Christian Standard Bible  
+Holmon Publishing. 2020.  
+[Goodreads](https://www.goodreads.com/book/show/30746885-csb-study-bible)
 
 Many times, many teachers, preachers, and small group leaders (myself included) will "cut straight to the chase" and engage the commentary instead of engaging the Word of God. Remember, the commentaries are not without error—they are the observations of the author.
 
 Slow down, pray, read, chew and meditate.
 
-Note: I use the [Christian Standard Bible](https://csbible.com) version on this blog by default. Other translations, such as the [ESV](https://www.crossway.org/bibles/) or the [NIV1984](https://bibleportal.com/version/NIV1984), will be noted as such.
-&nbsp;  
+Note: I use the [Christian Standard Bible](https://csbible.com) version on this blog default. Other translations, such as the [ESV](https://www.crossway.org/bibles/) or the [NIV1984](https://bibleportal.com/version/NIV1984), will be noted as such.
 
-___
+<p style="clear:both;">
 
-[<img src="https://images-na.ssl-images-amazon.com/images/I/41nNWgurO3L._SX394_BO1,204,203,200_.jpg" align="left" width="100" style="padding-right: 10px" />ESV Study Bible](https://amzn.to/3FbGs38)[<img src="/images/resources/icon-bible-olive-tree.png" align="right" width="100" style="padding-left: 10px" />](https://www.olivetree.com)
-Crossway. 2016.
+---
 
-Incredible resource. I have purchased this resource multiple times over for myself and friends. If you want one and can't afford one, hit me up. If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.
+---
 
-___
+<img src="/images/bible-esv-study.jpg">ESV Study Bible  
+Crossway. 2016.  
+[Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
+
+Incredible resource. I have purchased this resource multiple times over for myself and friends. If you want one and can't afford one, hit me up.
+
+<img class="olive" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
+
+<p style="clear:both;">
+
+---
+
+---
 
 ## Commentaries & Books
 
@@ -34,37 +63,51 @@ I don't have a personal insightful recommendation on the following. I just wante
 
 <p style="clear:both;">
 
-<img src="/images/resources/commentary-calvin-set.png" align="left" width="150" style="padding-right: 10px" />Calvin's Commentaries.  
+---
+
+<img src="/images/commentary-calvin-set.png">Calvin's Commentaries.  
 by John Calvin.  
 Baker. 2009.  
 [Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
 
-<img src="/images/resources/icon-bible-olive-tree.png" align="right" width="100" style="padding-left: 10px" />I mention this because in my go-to mobile Bible Study App, [Olive Tree](https://www.olivetree.com), Calvin's Commentaries are my go-to Commentary text of choice when I need clarification on the go. You can get the entire digital set for your phone (and computer) for about $40 from Olive Tree.
+<img src="/images/icon-bible-olive-tree.png">I mention this because in my go-to mobile Bible Study App, [Olive Tree](https://www.olivetree.com), Calvin's Commentaries are my go-to Commentary text of choice when I need clarification on the go. You can get the entire digital set for your phone (and computer) for about $40 from Olive Tree.
 
 <p style="clear:both;">
 
 ---
 
-[<img src="https://images-na.ssl-images-amazon.com/images/I/416Q2TDAMKL.jpg" align="left" width="150" style="padding-right: 10px" />Genesis](https://www.amazon.com/Genesis-James-Montgomery-Boice/dp/0801066492/ref=sr_1_5?crid=111YG16YMHH51&keywords=Boice+Genesis&qid=1662635493&sprefix=boice+genesi%2Caps%2C195&sr=8-5).  
-by James Montgomery Boice.  
-Baker Books. May 1, 2006.
+<img src="/images/commentary-genesis-boice.jpg" align="left" width="100" style="padding-right: 10px" />Genesis    
+James Montgomery Boice.  
+Baker Books. May 1, 2006.  
+[Goodreads](https://www.goodreads.com/book/show/1327853.Genesis_Volumes_1_3?ac=1&from_search=true&qid=gvP0fM9zwn&rank=2)
 
 <p style="clear:both;">
 
-[<img src="https://images-na.ssl-images-amazon.com/images/I/812oqRorpML.jpg" align="left" width="150" style="padding-right: 10px" />Genesis: Beginning and Blessing (Preaching the Word)](https://www.amazon.com/Genesis-Redesign-Beginning-Blessing-Preaching/dp/1433535521/ref=sr_1_1?keywords=preaching+the+word+genesis&qid=1662634993&sr=8-1).  
-by R. Kent Hughes.  
-Crossway. November 30, 2012.
+---
+
+<img src="/images/commentary-genesis-hughes.jpg" align="left" width="100" style="padding-right: 10px" />Genesis: Beginning and Blessing (Preaching the Word)  
+R. Kent Hughes.  
+Crossway. November 30, 2012.  
+[Goodreads](https://www.goodreads.com/book/show/17131104-genesis)
 
 <p style="clear:both;">
 
-[<img src="https://images-na.ssl-images-amazon.com/images/I/41tYhwJCxSL.jpg" align="left" width="150" style="padding-right: 10px" />Genesis (Word Biblical Commentary)](https://www.amazon.com/gp/product/0849902002/ref=x_gr_bb_amazon?ie=UTF8&tag=x_gr_bb_amazon-20&linkCode=as2&camp=1789&creative=9325&creativeASIN=0849902002&SubscriptionId=1MGPYB6YW3HWK55XCGG2).  
-by Gordon J. Wenham.  
-Thomas Nelson Inc. October 9, 1987.
+---
+
+<img src="/images/commentary-genesis-wenham.jpg" align="left" width="100" style="padding-right: 10px" />Genesis (Word Biblical Commentary)  
+Gordon J. Wenham.  
+Thomas Nelson Inc. October 9, 1987.  
+[Goodreads](https://www.goodreads.com/book/show/1813608.Genesis_1_15?ac=1&from_search=true&qid=rTitY4qg9L&rank=1)
 
 <p style="clear:both;">
 
-[<img src="https://images-na.ssl-images-amazon.com/images/I/71irrBohMyL.jpg" align="left" width="150" style="padding-right: 10px" />The Gospel in Genesis](https://www.amazon.com/Gospel-Genesis-Fig-Leaves-Faith/dp/1433501201/ref=sr_1_1?crid=3HUWOZWRYHXFT&keywords=the+gospel+in+genesis&qid=1662634400&sprefix=the+gospel+in+genesis%2Caps%2C219&sr=8-1).  
-by Martyn Lloyd-Jones.  
-Crossway. 2009.
+---
+
+<img src="/images/book-gospel-in-genesis-lloyd-jones.jpg" align="left" width="100" style="padding-right: 10px" />The Gospel in Genesis  
+Martyn Lloyd-Jones.  
+Crossway. 2009.  
+[Goodreads](https://www.goodreads.com/book/show/6267556-the-gospel-in-genesis?ac=1&from_search=true&qid=XlCQWKUG5b&rank=1)
 
 <p style="clear:both;">
+
+---
