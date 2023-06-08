@@ -47,7 +47,7 @@ The format is based on [Keep a Changelog](http://keepachangelog.com/) and this p
 ### Finished
 
 - Doctrine: The Lord's Prayer
-  - *merged with [Matthew commentary](matthew/matthew00.md)*
+  - *merged with [Matthew](matthew/matthew00.md)*
 
 ## 1.2.0 (2018-07-05)
 
