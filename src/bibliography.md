@@ -130,7 +130,7 @@ Baker Books. May 1, 2006.
 <img src="/images/commentary-genesis-hughes.jpg" align="left" width="100" style="padding-right: 10px" />Genesis: Beginning and Blessing (Preaching the Word)  
 R. Kent Hughes.  
 Crossway. November 30, 2012.  
-[Goodreads]()
+[Goodreads](https://www.goodreads.com/book/show/17131104-genesis)
 
 <p style="clear:both;">
 
