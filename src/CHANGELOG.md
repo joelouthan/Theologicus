@@ -4,13 +4,13 @@ All notable changes to this project will be documented in this file.
 
 The format is based on [Keep a Changelog](http://keepachangelog.com/) and this project adheres to [Semantic Versioning](http://semver.org/) [with some caveats](VERSIONING.md).
 
----
-
 ## 3.0.0 (2023-06-09)
 
 ### Added
 
 - Migrated from Hugo to mdBook
+
+<p style="clear:both;">
 
 ---
 
