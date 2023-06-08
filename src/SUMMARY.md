@@ -7,7 +7,7 @@
 # Creeds
 
 - [Apostles](creed-apostles/apostles-creed.md)
-  - [The Introduction](creed-apostles/apostles-creed00-intro.md)
+  - [An Introduction & Resources](creed-apostles/apostles-creed00-intro.md)
   - [God the Father Almighty](creed-apostles/apostles-creed01-God-the-Father.md)
   - [God the Creator of Heaven and Earth](creed-apostles/apostles-creed02-Creator.md)
   - [Jesus Christ, His Only Son, Our Lord](creed-apostles/apostles-creed03-Jesus-Christ-only-Son.md)
