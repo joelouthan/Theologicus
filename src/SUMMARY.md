@@ -857,3 +857,5 @@
 -----------
 
 [Changelog](CHANGELOG.md)
+
+[Versioning](VERSIONING.md)
