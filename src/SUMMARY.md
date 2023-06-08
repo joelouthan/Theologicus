@@ -129,6 +129,10 @@
 
 -----------
 
+# Doctrines
+
+-----------
+
 # Commentaries
 
 - [Genesis](genesis/genesis-intro-resources.md)
@@ -842,4 +846,8 @@
 
 -----------
 
-[About the author](author.md)
+[Author](author.md)
+
+[Ministry](ministry.md)
+
+[Vocation](vocation.md)
