@@ -4,11 +4,15 @@ All notable changes to this project will be documented in this file.
 
 The format is based on [Keep a Changelog](http://keepachangelog.com/) and this project adheres to [Semantic Versioning](http://semver.org/) [with some caveats](VERSIONING.md).
 
+---
+
 ## 3.0.0 (2023-06-09)
 
 ### Added
 
 - Migrated from Hugo to mdBook
+
+---
 
 ## 2.4.0 (2023-04-13)
 
@@ -36,11 +40,14 @@ The format is based on [Keep a Changelog](http://keepachangelog.com/) and this p
 
 - Migrated from Wordpress to Hugo
 
+---
+
 ## 1.3.0 (2019-11-28)
 
 ### Finished
 
 - Doctrine: The Lord's Prayer
+  - *merged with [Matthew commentary](matthew/matthew00.md)*
 
 ## 1.2.0 (2018-07-05)
 
