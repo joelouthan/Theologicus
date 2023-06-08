@@ -1,14 +1,14 @@
 [![](src/images/github-book-theologic.us.jpg)]()
 
-## finished (albeit, raw) manuscripts
+## finished
 
 [The Gospel of Mark](https://theologic.us/series/devotions-mark/)  
 [The Pastoral Epistles](https://theologic.us/series/gospel-nt-pastorals/)  
 [The Epistle to the Church in Rome](https://theologic.us/series/study-romans/)
 
-## wrote using
+## using
 
-[![tools](https://skillicons.dev/icons?i=rust,vscode,md,css,html,bash,git,github,netlify,linux)]()
+[![tools](https://skillicons.dev/icons?i=vscode,rust,,md,css,html,bash,git,github,netlify,linux)]()
 
 ## contact me
 
