@@ -61,7 +61,7 @@ I don't have a personal insightful recommendation on the following. I just wante
 
 ---
 
-<img src="/images/commentary-calvin-set.png">Calvin's Commentaries.  
+<img src="/images/commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
 by John Calvin.  
 Baker. 2009.  
 [Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)

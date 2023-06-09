@@ -58,7 +58,7 @@ Let us give thanks to God for he has given us grace!
 
 <p style="clear:both;">
 
-<img src="/images/commentary-calvin-set.png" align="left" width="100" style="padding-right: 10px" />Calvin's Commentaries.  
+<img src="/images/commentary-calvin-set-portrait.jpg" align="left" width="100" style="padding-right: 10px" />Calvin's Commentaries.  
 by John Calvin.  
 Baker. 2009.  
 [Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
