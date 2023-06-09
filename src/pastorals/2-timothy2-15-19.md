@@ -3,15 +3,15 @@
 ## The Text
 
 >2 Timothy 2:15–19 (CSB)  
-> 15  Be diligent to present yourself to God as one approved, a worker who doesn’t need to be ashamed, correctly teaching the word of truth. 
-
-> 16  Avoid irreverent and empty speech, since those who engage in it will produce even more godlessness, 
-
-> 17  and their teaching will spread like gangrene. Hymenaeus and Philetus are among them. 
-
-> 18  They have departed from the truth, saying that the resurrection has already taken place, and are ruining the faith of some. 
-
-> 19  Nevertheless, God’s solid foundation stands firm, bearing this inscription: The Lord knows those who are his, and let everyone who calls on the name of the Lord turn away from wickedness.
+><sup>15</sup>Be diligent to present yourself to God as one approved, a worker who doesn’t need to be ashamed, correctly teaching the word of truth. 
+>
+><sup>16</sup>Avoid irreverent and empty speech, since those who engage in it will produce even more godlessness, 
+>
+><sup>17</sup>and their teaching will spread like gangrene. Hymenaeus and Philetus are among them. 
+>
+><sup>18</sup>They have departed from the truth, saying that the resurrection has already taken place, and are ruining the faith of some. 
+>
+><sup>19</sup>Nevertheless, God’s solid foundation stands firm, bearing this inscription: The Lord knows those who are his, and let everyone who calls on the name of the Lord turn away from wickedness.
 
 ## The Meditation
 
@@ -95,4 +95,3 @@ If we are dead, bring us to life!
 
 Amen.
 ```
-
