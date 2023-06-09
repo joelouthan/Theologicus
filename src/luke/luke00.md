@@ -31,8 +31,6 @@ Note: I use the [Christian Standard Bible](https://csbible.com) version on this 
 
 <p style="clear:both;">
 
----
-
 <img src="/images/bible-esv-study.jpg">ESV Study Bible  
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
@@ -42,8 +40,6 @@ Incredible resource. I have purchased this resource multiple times over for myse
 <img class="olive" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
 <p style="clear:both;">
-
----
 
 ## Commentaries & Books
 
@@ -58,8 +54,6 @@ If it ain't broke, don't fix it. Keep on truckin'.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-luke-geldenhuys.jpg" />The Gospel of Luke (NICNT).  
 Norval Geldenhuys.  
 Eerdmans. 1951.  
@@ -71,8 +65,6 @@ When I started up this series, I was hard up for good Luke resources. God's pure
 
 <p style="clear:both;">
 
----
-
 <img src="https://images-na.ssl-images-amazon.com/images/I/514L+mWU6kL._SX331_BO1,204,203,200_.jpg" />Luke (NIVAC).  
 Darrell L. Bock.  
 Zondervan. 1996.
@@ -81,16 +73,12 @@ I swear to beans I have more books from this guy. But a quick look-see on Amazon
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-luke-nolland.jpg" />Luke (WBC).  
 John Nolland.  
 Thomas Nelson. 1989-93.  
 [Goodreads](https://www.goodreads.com/book/show/151083514-word-biblical-commentary-vol-35a-luke-1?from_search=true&from_srp=true&qid=jlCakWA5r8&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-matthew-luke-esv.jpg">ESV Expository Commentary: Matthew–Luke (Volume, 8).  
 Dan Doriani (Author).  

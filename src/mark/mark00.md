@@ -80,8 +80,6 @@ Easily read cover-to-cover.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-mark-hendriksen.jpg" align="left" width="150" style="padding-right: 10px" />New Testament Commentary: Exposition of the Gospel According to Mark  
 by William Hendriksen.  
 Baker. 1981.  
@@ -102,8 +100,6 @@ That said, that one little blurb in Wikipedia and knowing there was one (1) past
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-mark-lane.jpg" align="left" width="150" style="padding-right: 10px" />The Gospel according to Mark: The English Text With Introduction, Exposition, and Notes (The New International Commentary on the New Testament)  
 by William L. Lane.  
 Eerdman's. 1974.  
@@ -113,8 +109,6 @@ Incredible thorough and wonderfully written, Dr. Lane walks the reader masterful
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-mark-oden.jpg" align="left" width="150" style="padding-right: 10px" />Mark (Ancient Christian Commentary on Scripture, NT Volume 2)  
 Edited by Thomas C. Odin & Christopher A. Hall  
 IVP Academic. 2005.  
@@ -123,8 +117,6 @@ IVP Academic. 2005.
 I think this entire series is an excellent resource to have on hand if you can pony up the scratch.  It's all fine and good to read guys from within the last few centuries. But how about reading commentary from within the first few centuries after the ascension of Christ. You ain't going to read anything shockingly new.  But what you are going realize there is absolutely new under the sun and Jesus Christ the same yesterday, today, and tomorrow.
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-mark-gombis.jpg" align="left" width="150" style="padding-right: 10px" />Mark (The Story of God Bible Commentary Series)  
 by Timothy G. Gombis.   

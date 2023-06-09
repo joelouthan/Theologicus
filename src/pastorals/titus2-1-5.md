@@ -56,8 +56,6 @@ And we know that all the promises of God are yes and amen.
 
 Let me put it this way: *coram Deo*.  In other words, we are to live as though we are living before the face of God because in fact, we do. But then we will stand before the King of kings to be judged by God in the face of God for the glory of God. For those who disbelieve and never repentant, they subject themselves to the wrath of the King forever. To those who believe and trust, they stand in the face of the God who love them and gave Himself up for them forever.
 
----
-
 ><sup> 3 </sup> In the same way, older women are to be reverent in behavior, not slanderers, not slaves to excessive drinking. They are to teach what is good, <sup> 4 </sup> so that they may encourage the young women to love their husbands and to love their children, <sup> 5 </sup> to be self-controlled, pure, workers at home, kind, and in submission to their husbands, so that God’s word will not be slandered.
 
 ### Teach like this: what is good

@@ -65,16 +65,12 @@ Baker. 2009.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-matthew-sproul.jpg" align="left" width="100" style="padding-right: 10px" />Matthew: An Expositional Commentary(https://a.co/d/iPO4KvF).  
 by R.C. Sproul.  
 Ligonier Ministries. October 29, 2019.  
 [Goodreads](https://www.goodreads.com/book/show/14453116-matthew?ac=1&from_search=true&qid=1gLpP1i9jq&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-esv-expository-set.jpg" align="left" width="100" style="padding-right: 10px" />ESV Expository Commentary: Matthew–Luke (Volume 8)  
 Dan Doriani (Author)  
@@ -84,12 +80,8 @@ Crossway. September 7, 2021.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-matthew-nac-blomberg.jpg" align="left" width="100" style="padding-right: 10px" />Matthew: An Exegetical and Theological Exposition of Holy Scripture (Volume 22) (The New American Commentary)(https://a.co/d/4nRKV6G).  
 by Craig L. Blomberg.  
 Holman Reference. May 1992.
 
 <p style="clear:both;">
-
----

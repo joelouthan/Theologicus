@@ -5,8 +5,6 @@
 If God did nothing, could we ever know God?
 
 
----
-
 >Luke 8:4-8 (CSB) As a large crowd was gathering, and people were coming to Jesus from every town, he said in a parable,“A sower went out to sow his seed. As he sowed, some seed fell along the path; it was trampled on, and the birds of the sky devoured it.Other seed fell on the rock; when it grew up, it withered away, since it lacked moisture.Other seed fell among thorns; the thorns grew up with it and choked it.Still other seed fell on good ground; when it grew up, it produced fruit: a hundred times what was sown.” As he said this, he called out, “Let anyone who has ears to hear listen.”
 
 When the gospel is preached, does it accomplish what God wants it to do?
@@ -26,8 +24,6 @@ Isaiah 55:10–11 (CSB)
 
 Romans 1:16-17 (CSB) For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek.For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
 
----
-
 >Luke 8:9-15 (CSB) Then his disciples asked him, “What does this parable mean?”So he said, “The secrets of the kingdom of God have been given for you to know, but to the rest it is in parables, so that
 >    Looking they may not see,
 >      and hearing they may not understand.
@@ -39,16 +35,12 @@ What does God have to do in order for us to believe and trust in Him?
 
 Ezekiel 36:25-27 (CSB) I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols.I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh.I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
 
----
-
 >Luke 8:16-18 (CSB) “No one, after lighting a lamp, covers it with a basket or puts it under a bed, but puts it on a lampstand so that those who come in may see its light.For nothing is concealed that won’t be revealed, and nothing hidden that won’t be made known and brought to light.Therefore take care how you listen. For whoever has, more will be given to him; and whoever does not have, even what he thinks he has will be taken away from him.”
 
 What happened when Christ became Man?
 
 
 John 1:1-5 (CSB) In the beginning was the Word, and the Word was with God, and the Word was God.He was with God in the beginning.All things were created through him, and apart from him not one thing was created that has been created.In him was life, and that life was the light of men.That light shines in the darkness, and yet the darkness did not overcome it.
-
----
 
 >Luke 8:19-21 (CSB) Then his mother and brothers came to him, but they could not meet with him because of the crowd.He was told, “Your mother and your brothers are standing outside, wanting to see you.”
 But he replied to them, “My mother and my brothers are those who hear and do the word of God.”
@@ -57,8 +49,6 @@ If you believe and trust in Christ, then who is our Oldest Brother?
 
 
 Romans 8:14-17 (CSB) For all those led by God’s Spirit are God’s sons.For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!”The Spirit himself testifies together with our spirit that we are God’s children,and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
-
----
 
 >Luke 8:22-25 (CSB) One day he and his disciples got into a boat, and he told them, “Let’s cross over to the other side of the lake.” So they set out,and as they were sailing he fell asleep. Then a fierce windstorm came down on the lake; they were being swamped and were in danger.They came and woke him up, saying, “Master, Master, we’re going to die!”
 >
@@ -73,8 +63,6 @@ If He is in charge over everything, who should we obey and trust?
 Does anybody in this world have the same power as God? Does anybody else even come close?
 
 
----
-
 >Luke 8:26-39 (CSB) Then they sailed to the region of the Gerasenes, which is opposite Galilee.When he got out on land, a demon-possessed man from the town met him. For a long time he had worn no clothes and did not stay in a house but in the tombs.When he saw Jesus, he cried out, fell down before him, and said in a loud voice, “What do you have to do with me, Jesus, Son of the Most High God? I beg you, don’t torment me!”For he had commanded the unclean spirit to come out of the man. Many times it had seized him, and though he was guarded, bound by chains and shackles, he would snap the restraints and be driven by the demon into deserted places.
 
 “What is your name?” Jesus asked him. “Legion,” he said, because many demons had entered him.And they begged him not to banish them to the abyss.
@@ -87,8 +75,6 @@ The man from whom the demons had departed begged him earnestly to be with him. B
 
 Does Christ waits until we fix our lives before accepting us into His life?
 
-
----
 
 >Luke 8:40-56 (CSB) When Jesus returned, the crowd welcomed him, for they were all expecting him.Just then, a man named Jairus came. He was a leader of the synagogue. He fell down at Jesus’s feet and pleaded with him to come to his house,because he had an only daughter about twelve years old, and she was dying.
 While he was going, the crowds were nearly crushing him.A woman suffering from bleeding for twelve years, who had spent all she had on doctors and yet could not be healed by any,approached from behind and touched the end of his robe. Instantly her bleeding stopped.

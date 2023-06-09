@@ -39,8 +39,6 @@ Note: I use the [Christian Standard Bible](https://csbible.com) version on this 
 
 <p style="clear:both;">
 
----
-
 <img src="/images/bible-esv-study.jpg">ESV Study Bible  
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
@@ -50,8 +48,6 @@ Incredible resource. I have purchased this resource multiple times over for myse
 <img class="olive" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
 <p style="clear:both;">
-
----
 
 ## Commentaries & Books
 
@@ -66,8 +62,6 @@ Baker. 2009.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-matthew-sproul.jpg">Matthew: An Expositional Commentary  
 R.C. Sproul.  
 Ligonier Ministries. October 29, 2019.
@@ -77,8 +71,6 @@ If Sproul wrote it, 9.9/10 I am going to read it, use it, quote it, and recommen
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-matthew-nac-blomberg.jpg">Matthew: An Exegetical and Theological Exposition of Holy Scripture (Volume 22) (The New American Commentary)  
 Craig L. Blomberg.  
 Holman Reference. May 1992.
@@ -87,8 +79,6 @@ Holman Reference. May 1992.
 I am familiar with Blomberg. And I do like this series. This will also be referenced.
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-matthew-luke-esv.jpg">ESV Expository Commentary: Matthew–Luke (Volume 8)  
 Dan Doriani (Author)  
@@ -101,8 +91,6 @@ So, I got the first three volumes released back a few years ago. Now they are up
 The authors are top notch. This will be referenced for sure.
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-matthew-ebtc-quarles.jpg
 ">Matthew (EBTC).  

@@ -69,8 +69,6 @@ What about the loved ones we lost who did not love the Lord? We might comfort ou
 
 So many of my family members quickly dying--40s, 50s, 60s--never loving God never obeying the Son and never possessing the Spirit. They died and descended into the eternal wrath of the Jesus Christ.
 
----
-
 ><sup> 8 </sup> There is reserved for me the crown of righteousness, which the Lord, the righteous Judge, will give me on that day, and not only to me, but to all those who have loved his appearing.
 
 ### Glorified by God: to those who are his people, Christ has given us his righteousness and his life forever
@@ -85,8 +83,6 @@ there they will be called sons of the living God.
 >2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
 >John 1:12-13 (CSB) But to all who did receive him, he gave them the right to be children of God, to those who believe in his name, who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
-
----
 
 ><sup> 9 </sup> Make every effort to come to me soon, because Demas has deserted me, since he loved this present world, and has gone to Thessalonica. Crescens has gone to Galatia, Titus to Dalmatia. 
 
@@ -112,15 +108,11 @@ Christ's death means that you get to live forever. Christ's sacrifice means that
 
 Only the people of God will witness your end. If you think you are alone, you are never alone when you have the fullness of God. If your life ends with no witness, I promise you that God will receive you into his glory and all of his people--from Adam to Noah to Abraham to Isaac to Jacob to Joseph to Moses to Deborah, Gideon, Ruth, Jesse, David, Solomon all the way to the Apostles and all the saints before--will get to welcome you home into the arms of the Savior where you belong.
 
----
-
 ><sup> 12 </sup> I have sent Tychicus to Ephesus. 
 
 ### Glorified by God: Christ commissioned us--it might be time for you to send others out
 
 Equipping, encouraging, blessing others so that they can take the good news of the gospel to all creatures to the ends of the world.
-
----
 
 ><sup> 13 </sup> When you come, bring the cloak I left in Troas with Carpus, as well as the scrolls, especially the parchments. 
 
@@ -149,8 +141,6 @@ You and I need God today. You and I need God tomorrow. You and I need God to liv
 
 For your life and your soul and your spirit to live eternally, you will need God. In your sin, depravity, and death, you still need God.
 
----
-
 ><sup> 14 </sup> Alexander the coppersmith did great harm to me. The Lord will repay him according to his works. Watch out for him yourself because he strongly opposed our words. At my first defense, no one stood by me, but everyone deserted me. May it not be counted against them. 
 
 ### Glorified by God: your enemies were never your enemies--they didn't determine you are in God
@@ -158,8 +148,6 @@ For your life and your soul and your spirit to live eternally, you will need God
 >Colossians 2:15 (CSB) He disarmed the rulers and authorities and disgraced them publicly; he triumphed over them in him.
 
 >Ephesians 6:10-12 (CSB) Finally, be strengthened by the Lord and by his vast strength. Put on the full armor of God so that you can stand against the schemes of the devil. For our struggle is not against flesh and blood, but against the rulers, against the authorities, against the cosmic powers of this darkness, against evil, spiritual forces in the heavens
-
----
 
 ## The Gospel
 
@@ -171,23 +159,17 @@ we are being put to death all day long;
 we are counted as sheep to be slaughtered.
 No, in all these things we are more than conquerors through him who loved us. For I am persuaded that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
 
----
-
 ><sup> 17 </sup> But the Lord stood with me and strengthened me, so that I might fully preach the word and all the Gentiles might hear it. So I was rescued from the lion’s mouth. 
 
 ### Glorified by God: Christ has determined your worth--so go and do his will
 
 What are we charged and commissioned by God to do: preach the word. Be ready in and out of season. People are not going to listen to you because to some, you are the stench of death. They want to keep believing lies even though they keep getting their hearts broken in two. As for you and me:  God is our strength--control yourself, endure suffering, do the work of the evangelist, fulfill our ministry--and we will be home soon.
 
----
-
 ><sup> 18 </sup> The Lord will rescue me from every evil work and will bring me safely into his heavenly kingdom. To him be the glory forever and ever! Amen. 
 
 ### Glorified by God: He brings us all the way home
 
 >Romans 8:28-30 (CSB) We know that all things work together for the good of those who love God, who are called according to his purpose. For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
-
----
 
 ><sup> 19 </sup> Greet Prisca and Aquila, and the household of Onesiphorus. ><sup> 20 </sup> Erastus has remained at Corinth; I left Trophimus sick at Miletus. <sup> 21 </sup> Make every effort to come before winter. Eubulus greets you, as do Pudens, Linus, Claudia, and all the brothers and sisters. 
 
@@ -198,8 +180,6 @@ What are we charged and commissioned by God to do: preach the word. Be ready in 
 I have preached it time and time again: the gospel calls us to God and to one another. We are love one another. Don't forsake going to church. I know that nowadays that is easier said than done. But be innocent as doves and wise as serpents: there are ways around it and continue to be safe.
 
 Don't neglect yourselves from one another.
-
----
 
 ><sup> 22 </sup> The Lord be with your spirit. Grace be with you all.
 

@@ -39,8 +39,6 @@ Note: I use the [Christian Standard Bible](https://csbible.com) version on this 
 
 <p style="clear:both;">
 
----
-
 <img src="/images/bible-esv-study.jpg">ESV Study Bible  
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
@@ -51,15 +49,11 @@ Incredible resource. I have purchased this resource multiple times over for myse
 
 <p style="clear:both;">
 
----
-
 ## Commentaries & Books
 
 I don't have a personal insightful recommendation on the following. I just wanted to have a stack of resources that I can check by and draw from if I need to.
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-genesis-boice.jpg" align="left" width="100" style="padding-right: 10px" />Genesis    
 James Montgomery Boice.  
@@ -68,16 +62,12 @@ Baker Books. May 1, 2006.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-genesis-hughes.jpg" align="left" width="100" style="padding-right: 10px" />Genesis: Beginning and Blessing (Preaching the Word)  
 R. Kent Hughes.  
 Crossway. November 30, 2012.  
 [Goodreads](https://www.goodreads.com/book/show/17131104-genesis)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-genesis-wenham.jpg" align="left" width="100" style="padding-right: 10px" />Genesis (Word Biblical Commentary)  
 Gordon J. Wenham.  
@@ -86,13 +76,9 @@ Thomas Nelson Inc. October 9, 1987.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/book-gospel-in-genesis-lloyd-jones.jpg" align="left" width="100" style="padding-right: 10px" />The Gospel in Genesis  
 Martyn Lloyd-Jones.  
 Crossway. 2009.  
 [Goodreads](https://www.goodreads.com/book/show/6267556-the-gospel-in-genesis?ac=1&from_search=true&qid=XlCQWKUG5b&rank=1)
 
 <p style="clear:both;">
-
----

@@ -44,47 +44,35 @@ When Christ said, "You must be born again," make no mistake: you must be born ag
 
 "You must be born again" - treat this like a command and you will fall into despair because this is a command that you and I cannot obey. The unbeliever can fool themselves into thinking that they are obeying God because it seems, on the surface, that they can do the same thing we do: read our Bible, pray, give to the poor, don't kill, steal, destroy. But there is difference that is everything: believers are born of the Spirit of God while unbelievers are born of the flesh. One is in God, the other is in himself. One believes in Christ and lives, the other has the wrath of God abiding on him. One is in the Second Adam; the other is still in the First Adam. There is no muddling between the two.
 
----
+#### On Christ: Christ sent to the Spirit to us
 
 >John 16:7 (CSB) Nevertheless, I am telling you the truth. It is for your benefit that I go away, because if I don’t go away the Counselor will not come to you. If I go, I will send him to you. 
 
-#### On Christ: Christ sent to the Spirit to us
-
 >Acts 1:4-8 (CSB) While he was with them, he commanded them not to leave Jerusalem, but to wait for the Father’s promise. “Which,” he said, “you have heard me speak about; for John baptized with water, but you will be baptized with the Holy Spirit in a few days.” So when they had come together, they asked him, “Lord, are you restoring the kingdom to Israel at this time? ” He said to them, “It is not for you to know times or periods that the Father has set by his own authority. But you will receive power when the Holy Spirit has come on you, and you will be my witnesses in Jerusalem, in all Judea and Samaria, and to the ends of the earth.”
-
----
-
->John 16:8 (CSB) When he comes, he will convict the world about sin, righteousness, and judgment: 
 
 #### On Christ: The Spirit will convict the world of three things
 
----
-
->John 16:9 (CSB) About sin, because they do not believe in me; 
+>John 16:8 (CSB) When he comes, he will convict the world about sin, righteousness, and judgment: 
 
 #### On Christ: Only the Spirit can convict of sin
 
-Preaching against sin versus conviction of sin
+>John 16:9 (CSB) About sin, because they do not believe in me; 
 
----
-
->John 16:10 (CSB) about righteousness, because I am going to the Father and you will no longer see me; 
+- Preaching against sin versus conviction of sin 
 
 #### On Christ: Only the Spirit gives us the righteousness of Christ
 
+>John 16:10 (CSB) about righteousness, because I am going to the Father and you will no longer see me;
+
 >Romans 1:17 (CSB) For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
-
----
-
->John 16:11 (CSB) and about judgment, because the ruler of this world has been judged. 
 
 #### On Christ: Only the Spirit has the power to judge the Satan and his demons
 
----
-
->John 16:12-13 (CSB) “I still have many things to tell you, but you can’t bear them now. When the Spirit of truth comes, he will guide you into all the truth. For he will not speak on his own, but he will speak whatever he hears. He will also declare to you what is to come. 
+>John 16:11 (CSB) and about judgment, because the ruler of this world has been judged. 
 
 #### On Christ: Only the Spirit guides into all truth
+
+>John 16:12-13 (CSB) “I still have many things to tell you, but you can’t bear them now. When the Spirit of truth comes, he will guide you into all the truth. For he will not speak on his own, but he will speak whatever he hears. He will also declare to you what is to come. 
 
 >1 Corinthians 2:12 (CSB) Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God.
 
@@ -92,17 +80,13 @@ Preaching against sin versus conviction of sin
 >
 >[1689.1.5 Inward Work of the Holy Spirit Concerning the Scriptures](https://theologic.us/posts/confession-1689/1689-1-5-the-inward-work-of-holy-spirit-concerning-scripture/)
 
----
+#### On Christ: The Spirit glorifies Christ
 
 >John 16:14 (CSB) He will glorify me, because he will take from what is mine and declare it to you. 
 
-#### On Christ: The Spirit glorifies Christ
-
----
+#### On Christ: The Spirit gives us everything the Father has given to Christ
 
 >John 16:15 (CSB) Everything the Father has is mine. This is why I told you that he takes from what is mine and will declare it to you.
-
-#### On Christ: The Spirit gives us everything the Father has given to Christ
 
 ##### Adoption
 

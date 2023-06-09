@@ -85,8 +85,6 @@ Both believers and unbelievers are provided for. Both get to live this life. Bot
 
 But God only provided for those who trusted and obeyed him, then it would stand to reason that we would worship God mostly because of what He can do for us. Then you would be worshipping a mythical creature called a genie. Is that what you want? God doesn't want that and that is not how we are to worship him. We must worship him in spirit and truth--not in health, wealth, and prosperity.
 
----
-
 ><sup> 6 </sup> But the land was unable to support them as long as they stayed together, for they had so many possessions that they could not stay together, 
 >
 ><sup> 7 </sup> and there was quarreling between the herdsmen of Abram’s livestock and the herdsmen of Lot’s livestock. (At that time the Canaanites and the Perizzites were living in the land.) 
@@ -127,8 +125,6 @@ Here is the gospel life.
 
 ### This Life: You get to choose God
 
----
-
 ><sup> 14 </sup> After Lot had separated from him, the LORD said to Abram, “Look from the place where you are. Look north and south, east and west, 
 >
 ><sup> 15 </sup> for I will give you and your offspring forever all the land that you see. 
@@ -154,8 +150,6 @@ For the spiritual? The absolute reality? That comes from God to those whom He ha
 Who gets eternal life? Those who believe. How can we believe? God must give his heart and his spirit in order for us to live and believe.
 
 We are always tempted to go back to the world. Oh, I wish I could give a testimony of my short life in Christ was one of linear progression where I just ascended into glory. But that didn't happen. In the time I have known Christ where the darkest times of my life. And I was abused by my parents. And I worked in porn at one point. But it wasn't me never falling. My testimony is about the God who not only saves but he never stops saving because he never stops loving us because he never started. Because He always loved me. He has always loved his people. We are rescued because He sent his Son to come and get us.
-
----
 
 ><sup> 18 </sup> So Abram moved his tent and went to live near the oaks of Mamre at Hebron, where he built an altar to the LORD.
 
@@ -184,16 +178,12 @@ Baker. 2009.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-genesis-boice.jpg" align="left" width="100" style="padding-right: 10px" />Genesis    
 by James Montgomery Boice.  
 Baker Books. May 1, 2006.  
 [Goodreads](https://www.goodreads.com/book/show/1327853.Genesis_Volumes_1_3?ac=1&from_search=true&qid=gvP0fM9zwn&rank=2)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-genesis-hughes.jpg" align="left" width="100" style="padding-right: 10px" />Genesis: Beginning and Blessing (Preaching the Word)  
 by R. Kent Hughes.  
@@ -202,8 +192,6 @@ Crossway. November 30, 2012.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-genesis-wenham.jpg" align="left" width="100" style="padding-right: 10px" />Genesis (Word Biblical Commentary)  
 by Gordon J. Wenham.  
 Thomas Nelson Inc. October 9, 1987.  
@@ -211,13 +199,9 @@ Thomas Nelson Inc. October 9, 1987.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/book-gospel-in-genesis-lloyd-jones.jpg" align="left" width="100" style="padding-right: 10px" />The Gospel in Genesis  
 by Martyn Lloyd-Jones.  
 Crossway. 2009.  
 [Goodreads](https://www.goodreads.com/book/show/6267556-the-gospel-in-genesis?ac=1&from_search=true&qid=XlCQWKUG5b&rank=1)
 
 <p style="clear:both;">
-
----

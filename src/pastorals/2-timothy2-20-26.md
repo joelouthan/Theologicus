@@ -92,8 +92,6 @@ And if you are having problems with what Paul is saying, then you are definitely
 
 You have two choices in this life to live your life: go your own way or lay your life down to Christ so by the power of the Holy Spirit, he will bring you back to actual and to the fullness of life.
 
----
-
 ><sup> 22 </sup> Flee from youthful passions, and pursue righteousness, faith, love, and peace, along with those who call on the Lord from a pure heart. 
 
 ### Chosen by God: now we get to chase after God
@@ -111,8 +109,6 @@ But I know in my own life, God was kind and patient with me. But all sin leads t
 So, pursue righteousness, faith, love, and peace, and do so with others who call on the Lord from a pure heart. Don't do this alone. God has saved us to himself and to others. And I know the church is messed up. I know the church is infected with wolves. I know it is hard to trust other people. But trust in Jesus and pray that God will send his beloved sons and daughters your way so you don't have to live this live on your own.
 
 - Norman story + Mighty men prophecy
-
----
 
 ><sup> 23 </sup> But reject foolish and ignorant disputes, because you know that they breed quarrels. ><sup> 24 </sup> The Lord’s servant must not quarrel, but must be gentle to everyone, able to teach, and patient, instructing his opponents with gentleness. Perhaps God will grant them repentance leading them to the knowledge of the truth. 
 

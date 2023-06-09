@@ -51,8 +51,6 @@ But a Christian nation American is not and cannot be? Why? The Bible never decla
 
 "I just want everyone to behave." So does God. But guess what? Israel was the first and only nation of God who were governed by God and his holy law. How did that go for them? They always rebelled. They always fled. They always led astray. Some of them went so far they even rejected the only begotten Son of the Father.
 
----
-
 ><sup>2-4</sup> So then, the one who resists the authority is opposing God’s command, and those who oppose it will bring judgment on themselves. For rulers are not a terror to good conduct, but to bad. Do you want to be unafraid of the one in authority? Do what is good, and you will have its approval. For it is God’s servant for your good. But if you do wrong, be afraid, because it does not carry the sword for no reason. For it is God’s servant, an avenger that brings wrath on the one who does wrong. 
 
 
@@ -72,8 +70,6 @@ But get this: you might face consequences from the wicked rulers that God has pl
 
 Obey your leaders. When they tell you to sin against God, then you defy. Cannot do so by sinning more but doing the things that God has commanded us to do: love him, love others, serve one another and within our power, to live peaceably with one another.
 
----
-
 ><sup>5</sup> Therefore, you must submit, not only because of wrath but also because of your conscience.
 
 ### Christ is King: He rules over all
@@ -85,8 +81,6 @@ God sets up our leaders. He sets up other leaders. And sometimes, with wicked na
 God did with Israel. Why would America be the exception? There is nothing in his word that would exempt us from this.
 
 Yet, choose on this day of whom you will serve.
-
----
 
 ## Our Response
 
@@ -117,16 +111,12 @@ Baker. 2009.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/book-no-condemnation-winslow.jpg" align="left" width="100" style="padding-right: 10px" />No Condemnation in Christ Jesus: As Unfolded in the Eighth Chapter of the Epistle to the Romans  
 by Octavius Winslow.  
 Banner of Trust. 1991.  
 [Goodreads](https://www.goodreads.com/book/show/4011534-no-condemnation-in-christ-jesus?ac=1&from_search=true&qid=K1waoHAVw7&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-romans-sproul.jpg" align="left" width="100" style="padding-right: 10px" />Romans: An Expositional Commentary  
 by R.C. Sproul.  
@@ -135,16 +125,12 @@ Reformation Trust Publishing. 2019.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-romans-moo.jpg" align="left" width="100" style="padding-right: 10px" />The Letter to the Romans (New International Commentary on the New Testament (NICNT))  
 by Douglas Moo.    
 Eerdmans. 1996.  
 [Goodreads](https://www.goodreads.com/book/show/48640436-the-letter-to-the-romans-new-international-commentary-on-the-new-testam?ac=1&from_search=true&qid=K0oRkdrYXP&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-romans-hendricksen.webp" align="left" width="100" style="padding-right: 10px" />New Testament Commentary: Romans: Chapters 1-16  
 by William Hendriksen.  
@@ -153,16 +139,12 @@ Baker. 1992.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-romans-plumer.jpeg" align="left" width="100" style="padding-right: 10px" />Romans  
 by William S. Plumer.  
 Kregel. 1993.  
 [Goodreads](https://www.goodreads.com/book/show/3189435-commentary-on-romans?ac=1&from_search=true&qid=pinspEBLVG&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-romans-mounce.jpg" align="left" width="100" style="padding-right: 10px" />Romans: An Exegetical and Theological Exposition of Holy Scripture (The New American Commentary)  
 by Robert Mounce.  
@@ -171,16 +153,12 @@ Holmon Reference. 1995.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-romans-bray.webp" align="left" width="100" style="padding-right: 10px" />Romans (Ancient Christian Commentary on Scripture, NT Volume 6)  
 Edited by Gerald L. Bray.  
 IVP Academic. 2005.  
 [Goodreads](https://www.goodreads.com/book/show/32922759-romans?ac=1&from_search=true&qid=O8EDAlniS5&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-romans-luther.webp" align="left" width="100" style="padding-right: 10px" />Commentary on Romans  
 by Martin Luther.  

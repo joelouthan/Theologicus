@@ -57,8 +57,6 @@ Don't process this pain alone. Don't let it drive you into dispair and isolation
 
 Some call it deconstruction. Others are calling it the elect are being swayed away. I am calling it the promises of God are yes and amen.
 
----
-
 ><sup> 6 </sup>An elder must be blameless, the husband of one wife, with faithful children who are not accused of wildness or rebellion. 
 
 ## Minister Like This: Love God and Love Your Family
@@ -129,8 +127,6 @@ And just to be crystal clear, if you think that this God's call upon your life t
 
 Our Father in heaven loves us, rejoices over us, provides for our every need and takes care of us. We know this for a fact because He sent his only begotten son to live and die for us so that we can be with him whose presence is the fullness of joy and at his right hand are pleasures forevermore. (Psalm 16:11)
 Don't be that parent! Be like your Father in heaven who is perfect. (Matthew 5:48)
-
----
 
 ><sup> 7 </sup>As an overseer of God’s household, he must be blameless, not arrogant, not hot-tempered, not an excessive drinker, not a bully, not greedy for money <sup> 8 </sup>but hospitable, loving what is good, sensible, righteous, holy, self-controlled, 
 

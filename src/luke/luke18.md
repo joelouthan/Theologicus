@@ -16,8 +16,6 @@
 
 5. Can God break his promise?
 
----
-
 >Luke 18:9-14 (CSB) He also told this parable to some who trusted in themselves that they were righteous and looked down on everyone else: “Two men went up to the temple to pray, one a Pharisee and the other a tax collector. The Pharisee was standing and praying like this about himself: ‘God, I thank you that I’m not like other people—greedy, unrighteous, adulterers, or even like this tax collector. I fast twice a week; I give a tenth of everything I get.’
 >
 >“But the tax collector, standing far off, would not even raise his eyes to heaven but kept striking his chest and saying, ‘God, have mercy on me, a sinner!’ I tell you, this one went down to his house justified rather than the other, because everyone who exalts himself will be humbled, but the one who humbles himself will be exalted.”
@@ -34,8 +32,6 @@
 
 6. Can God break his promise?
 
----
-
 >Luke 18:15-17 (CSB) People were bringing infants to him so that he might touch them, but when the disciples saw it, they rebuked them. Jesus, however, invited them: “Let the little children come to me, and don’t stop them, because the kingdom of God belongs to such as these. Truly I tell you, whoever does not receive the kingdom of God like a little child will never enter it.”
 
 1. Why do we pray?
@@ -49,8 +45,6 @@
 5. Does God promise faith?
 
 6. Can God break his promise?
-
----
 
 >Luke 18:18-30 (CSB) A ruler asked him, “Good teacher, what must I do to inherit eternal life?”
 >
@@ -84,8 +78,6 @@
 
 6. Can God break his promise?
 
----
-
 >Luke 18:31-34 (CSB) Then he took the Twelve aside and told them, “See, we are going up to Jerusalem. Everything that is written through the prophets about the Son of Man will be accomplished. For he will be handed over to the Gentiles, and he will be mocked, insulted, spit on; and after they flog him, they will kill him, and he will rise on the third day.”
 >
 >They understood none of these things. The meaning of the saying was hidden from them, and they did not grasp what was said.
@@ -101,8 +93,6 @@
 5. Does God promise fulfillment?
 
 6. Can God break his promise?
-
----
 
 >Luke 18:35-43 (CSB) As he approached Jericho, a blind man was sitting by the road begging. Hearing a crowd passing by, he inquired what was happening. “Jesus of Nazareth is passing by,” they told him.
 >

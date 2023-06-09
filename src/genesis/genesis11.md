@@ -20,16 +20,12 @@ If you have the time: [Philosophy as taught by R.C. Sproul at Ligonier Ministrie
 
 If you don't have the time and like to read, highest recommendation:
 
----
-
 [<img src="https://images-na.ssl-images-amazon.com/images/I/41sAKIAP1oL._SX331_BO1,204,203,200_.jpg" align="left" width="100" style="padding-right: 10px" />The Consequences of Ideas](https://amzn.to/3Gi6KCl).  
 by R.C. Sproul.  
 Crossway. 2018.  
 
 &nbsp;
 &nbsp;
-
----
 
 If you don't have the time and you don't like to read, then let me brutally and tragically summarize modern philosophy. Among of all the schools of thought, the greatest and loudest voices that the Western world is hearing right now from the world and not from God are really three voices:
 
@@ -144,8 +140,6 @@ Look how hard it was for the Israelites to accept Jesus as the Messiah and as Go
 
 God does the opposite. God's kingdom is upside down. God's ways are higher than our ways. And the saints of God do it not the ways of business in a way to produce results fast. We are to love one another and point each other to Christ. And many times, we do so unto death. And many times, we won't see the fruit of our faith. But God does. And that is all that matters.
 
----
-
 ><sup> 4 </sup> And they said, “Come, let’s build ourselves a city and a tower with its top in the sky. Let’s make a name for ourselves; otherwise, we will be scattered throughout the earth.” 
 >
 ><sup> 5 </sup> Then the LORD came down to look over the city and the tower that the humans were building. 
@@ -178,8 +172,6 @@ They would argue that Christianity and the gospel doesn't work because it doesn'
 ## The Gospel
 
 Yet, the good news of God is not a way to protect us from being hurt. The gospel of Christ is the proclamation that we get to be in the eternally safe and loving arms of Jesus. And no power in hell, no scheme of man--including hatred, bigotry, and racism--can ever separate us from the love of God that can only be found in Jesus Christ our Lord.
-
----
 
 ><sup> 7 </sup> Come, let’s go down there and confuse their language so that they will not understand one another’s speech.” 
 >
@@ -224,16 +216,12 @@ Baker. 2009.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-genesis-boice.jpg" align="left" width="100" style="padding-right: 10px" />Genesis    
 by James Montgomery Boice.  
 Baker Books. May 1, 2006.  
 [Goodreads](https://www.goodreads.com/book/show/1327853.Genesis_Volumes_1_3?ac=1&from_search=true&qid=gvP0fM9zwn&rank=2)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-genesis-hughes.jpg" align="left" width="100" style="padding-right: 10px" />Genesis: Beginning and Blessing (Preaching the Word)  
 by R. Kent Hughes.  
@@ -242,16 +230,12 @@ Crossway. November 30, 2012.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-genesis-wenham.jpg" align="left" width="100" style="padding-right: 10px" />Genesis (Word Biblical Commentary)  
 by Gordon J. Wenham.  
 Thomas Nelson Inc. October 9, 1987.  
 [Goodreads](https://www.goodreads.com/book/show/1813608.Genesis_1_15?ac=1&from_search=true&qid=rTitY4qg9L&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/book-gospel-in-genesis-lloyd-jones.jpg" align="left" width="100" style="padding-right: 10px" />The Gospel in Genesis  
 by Martyn Lloyd-Jones.  
@@ -260,11 +244,7 @@ Crossway. 2009.
 
 <p style="clear:both;">
 
----
-
 ## Resources
-
----
 
 [<img src="https://images-na.ssl-images-amazon.com/images/I/41sAKIAP1oL._SX331_BO1,204,203,200_.jpg" align="left" width="100" style="padding-right: 10px" />The Consequences of Ideas)](https://amzn.to/3Gi6KCl).  
 by R.C. Sproul.  
@@ -272,5 +252,3 @@ Crossway. 2018.
 
 &nbsp;
 &nbsp;
-
----

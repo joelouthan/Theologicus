@@ -21,15 +21,11 @@ Acts 1:6–8 (CSB) So when they had come together, they asked him, “Lord, are 
 
 He said to them, “It is not for you to know times or periods that the Father has set by his own authority.  But you will receive power when the Holy Spirit has come on you, and you will be my witnesses in Jerusalem, in all Judea and Samaria, and to the ends of the earth.”
 
----
-
 >Luke 9:7–9 (CSB) Herod the tetrarch heard about everything that was going on. He was perplexed, because some said that John had been raised from the dead,  some that Elijah had appeared, and others that one of the ancient prophets had risen.  “I beheaded John,” Herod said, “but who is this I hear such things about?” And he wanted to see him.
 
 Who is the Christ? Was John the Baptist the Christ?
 
 What does it mean to be the Christ?
-
----
 
 >Luke 9:10–17 (CSB) When the apostles returned, they reported to Jesus all that they had done. He took them along and withdrew privately to a town called Bethsaida.  When the crowds found out, they followed him. He welcomed them, spoke to them about the kingdom of God, and healed those who needed healing.  Late in the day, the Twelve approached and said to him, “Send the crowd away, so that they can go into the surrounding villages and countryside to find food and lodging, because we are in a deserted place here.”  “You give them something to eat,” he told them. “We have no more than five loaves and two fish,” they said, “unless we go and buy food for all these people.”  (For about five thousand men were there.)
 
@@ -39,15 +35,11 @@ Where does our home, food, money, possessions come from?
 
 Where can we be more dependent on God?
 
----
-
 >Luke 9:18–20 (CSB) While he was praying in private and his disciples were with him, he asked them, “Who do the crowds say that I am?”  They answered, “John the Baptist; others, Elijah; still others, that one of the ancient prophets has come back.”  “But you,” he asked them, “who do you say that I am?”
 
 Peter answered, “God’s Messiah.”
 
 What are we to do if Jesus is God? Should we pay attention to his words and his actions? Should we obey Him as God?
-
----
 
 >Luke 9:21–22 (CSB) But he strictly warned and instructed them to tell this to no one,  saying, “It is necessary that the Son of Man suffer many things and be rejected by the elders, chief priests, and scribes, be killed, and be raised the third day.”
 
@@ -58,13 +50,9 @@ Why did Christ have to die?
 
 Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
----
-
 >Luke 9:23–27 (CSB) Then he said to them all, “If anyone wants to follow after me, let him deny himself, take up his cross daily, and follow me.  For whoever wants to save his life will lose it, but whoever loses his life because of me will save it.  For what does it benefit someone if he gains the whole world, and yet loses or forfeits himself?  For whoever is ashamed of me and my words, the Son of Man will be ashamed of him when he comes in his glory and that of the Father and the holy angels.  Truly I tell you, there are some standing here who will not taste death until they see the kingdom of God.”
 
 What does it mean to take up our cross?
-
----
 
 >Luke 9:28–36 (CSB) About eight days after this conversation, he took along Peter, John, and James and went up on the mountain to pray.  As he was praying, the appearance of his face changed, and his clothes became dazzling white.  Suddenly, two men were talking with him—Moses and Elijah.  They appeared in glory and were speaking of his departure, which he was about to accomplish in Jerusalem.  Peter and those with him were in a deep sleep, and when they became fully awake, they saw his glory and the two men who were standing with him.  As the two men were departing from him, Peter said to Jesus, “Master, it’s good for us to be here. Let’s set up three shelters: one for you, one for Moses, and one for Elijah”—not knowing what he was saying.  
 
@@ -78,8 +66,6 @@ Romans 8:30 (CSB) And those he predestined, he also called; and those he called,
 
 If we are predestined, called, and justified in the sight of God, what does it mean when God promises to 'glorify' us?
 
----
-
 >Luke 9:37–43a (CSB) The next day, when they came down from the mountain, a large crowd met him.  Just then a man from the crowd cried out, “Teacher, I beg you to look at my son, because he’s my only child.  A spirit seizes him; suddenly he shrieks, and it throws him into convulsions until he foams at the mouth; severely bruising him, it scarcely ever leaves him.  I begged your disciples to drive it out, but they couldn’t.”  Jesus replied, “You unbelieving and perverse generation, how long will I be with you and put up with you? Bring your son here.”  As the boy was still approaching, the demon knocked him down and threw him into severe convulsions. But Jesus rebuked the unclean spirit, healed the boy, and gave him back to his father.  And they were all astonished at the greatness of God.
 
 Colossians 1:13–14 (CSB) He has rescued us from the domain of darkness and transferred us into the kingdom of the Son he loves.  In him we have redemption, the forgiveness of sins.
@@ -90,8 +76,6 @@ Romans 8:20–21 (CSB) For the creation was subjected to futility—not willingl
 
 What does it mean to be truly free if we are in Christ?
 
----
-
 >Luke 9:43b–45 (CSB) While everyone was amazed at all the things he was doing, he told his disciples,  “Let these words sink in: The Son of Man is about to be betrayed into the hands of men.”  But they did not understand this statement; it was concealed from them so that they could not grasp it, and they were afraid to ask him about it.
 
 John 6:60–71 (CSB) Therefore, when many of his disciples heard this, they said, “This teaching is hard. Who can accept it?”  Jesus, knowing in himself that his disciples were grumbling about this, asked them, “Does this offend you?  Then what if you were to observe the Son of Man ascending to where he was before?  The Spirit is the one who gives life. The flesh doesn’t help at all. The words that I have spoken to you are spirit and are life.  But there are some among you who don’t believe.” (For Jesus knew from the beginning those who did not believe and the one who would betray him.)  He said, “This is why I told you that no one can come to me unless it is granted to him by the Father.”
@@ -99,8 +83,6 @@ John 6:60–71 (CSB) Therefore, when many of his disciples heard this, they said
 From that moment many of his disciples turned back and no longer accompanied him.  So Jesus said to the Twelve, “You don’t want to go away too, do you?”  Simon Peter answered, “Lord, to whom will we go? You have the words of eternal life.  We have come to believe and know that you are the Holy One of God.”  Jesus replied to them, “Didn’t I choose you, the Twelve? Yet one of you is a devil.”  He was referring to Judas, Simon Iscariot’s son, one of the Twelve, because he was going to betray him.
 
 Christ has hard sayings.  How can we believe His words?
-
----
 
 >Luke 9:46–48 (CSB) An argument started among them about who was the greatest of them.  But Jesus, knowing their inner thoughts, took a little child and had him stand next to him.  He told them, “Whoever welcomes this little child in my name welcomes me. And whoever welcomes me welcomes him who sent me. For whoever is least among you—this one is great.”
 
@@ -114,8 +96,6 @@ Is the opposite of humility a sin?
 
 Why does God oppose the proud?
 
----
-
 >Luke 9:49–50 (CSB) John responded, “Master, we saw someone driving out demons in your name, and we tried to stop him because he does not follow us.”  “Don’t stop him,” Jesus told him, “because whoever is not against you is for you.”
 
 Do all churches do the exact same thing?
@@ -128,13 +108,9 @@ If all churches believe in the same Christ, why do they do things different from
 
 If other people believe and obey Christ, can they ever be our enemies? Are they our friends or are they more than that? What does God call them?
 
----
-
 >Luke 9:51–56 (CSB) When the days were coming to a close for him to be taken up, he determined to journey to Jerusalem.  He sent messengers ahead of himself, and on the way they entered a village of the Samaritans to make preparations for him.  But they did not welcome him, because he determined to journey to Jerusalem.  When the disciples James and John saw this, they said, “Lord, do you want us to call down fire from heaven to consume them?”  But he turned and rebuked them,  and they went to another village.
 
 When people refuse to believe and even reject the God's good news, how do we respond?
-
----
 
 >Luke 9:57–62 (CSB) As they were traveling on the road someone said to him, “I will follow you wherever you go.”  Jesus told him, “Foxes have dens, and birds of the sky have nests, but the Son of Man has no place to lay his head.”  Then he said to another, “Follow me.” “Lord,” he said, “first let me go bury my father.”  But he told him, “Let the dead bury their own dead, but you go and spread the news of the kingdom of God.”  Another said, “I will follow you, Lord, but first let me go and say good-bye to those at my house.”  But Jesus said to him, “No one who puts his hand to the plow and looks back is fit for the kingdom of God.”
 

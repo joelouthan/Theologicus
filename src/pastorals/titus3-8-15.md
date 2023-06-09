@@ -72,8 +72,6 @@ Don't read this as "oh now we are God's robots?" as though he suddenly reprogram
 
 Now that you are alive, you **get** to live to God.
 
----
-
 ><sup> 9  </sup>But avoid foolish debates, genealogies, quarrels, and disputes about the law, because they are unprofitable and worthless. 
 
 ### Rest in Christ: Trust in the Gospel
@@ -91,8 +89,6 @@ But even Paul says:
 >... avoid foolish debates, genealogies, quarrels, and disputes about the law, because they are unprofitable and worthless. 
 
 Just as the gospel is absolute truth, the Bible becomes not outdated or obsolete but rather wisdom and commands of God that become more magnificent. We still in a post-Genesis 3 world. But we are all still Christians at the foot of the cross. And that counters all sin and despair that the world has to offer.
-
----
 
 ><sup> 10  </sup>Reject a divisive person after a first and second warning. 
 
@@ -120,8 +116,6 @@ But division cannot be entertained, for:
 
 We will reach unity in faith. We won't get there with divisive people.
 
----
-
 ><sup> 11  </sup>For you know that such a person has gone astray and is sinning; he is self-condemned. 
 
 ### Rest in Christ: Saved by God by the gospel
@@ -139,8 +133,6 @@ You might say, "I want to stop sinning because I find myself keep turning back t
 What did I say early? What the does God preach? Try harder? Do better? Be perfect? No! Repent of your sins and believe in Christ.
 
 Is that a one time for all time declaration? No, it is all the time. Like I asked my son, "Do you think that the righteous can only fall seven times and that's it?" He would say no. Or to mix my metaphors, "How about seven times seventy?" Or how about all the time. Repent and believe. Because Christ has done it all. Christ has you. You just got to rest in him. That's it. Read your Bible. Pray. Worship. Evangelize. Eat. Drink. Work. Write. Whatever you do, do it to the glory of his name.
-
----
 
 ## The Gospel
 

@@ -31,8 +31,6 @@ Note: I use the [Christian Standard Bible](https://csbible.com) version on this 
 
 <p style="clear:both;">
 
----
-
 <img src="/images/bible-esv-study.jpg">ESV Study Bible  
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
@@ -43,8 +41,6 @@ Incredible resource. I have purchased this resource multiple times over for myse
 
 <p style="clear:both;">
 
----
-
 ## Commentaries & Books
 
 <img src="/images/commentary-ephesians-philemon-esv.jpg">ESV Expository Commentary: Ephesians–Philemon (Volume 11)  
@@ -54,16 +50,12 @@ Crossway. 2018.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-thessalonians-pastorals.jpg">Thessalonians, Timothy, and Titus (NTC).  
 William Hendriksen.  
 Baker Book House. 1979.  
 [Goodreads](https://www.goodreads.com/book/show/738489.New_Testament_Commentary)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-pastorals-kostenberger.jpg">1-2 Timothy and Titus (EBTC).  
 Andreas J. Köstenberger.  

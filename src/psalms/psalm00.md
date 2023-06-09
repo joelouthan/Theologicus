@@ -33,8 +33,6 @@ Note: I use the [Christian Standard Bible](https://csbible.com) version on this 
 
 <p style="clear:both;">
 
----
-
 <img src="/images/bible-esv-study.jpg">ESV Study Bible  
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
@@ -45,8 +43,6 @@ Incredible resource. I have purchased this resource multiple times over for myse
 
 <p style="clear:both;">
 
----
-
 ## Commentaries & Books
 
 <img src="/images/commentary-psalms-treasury-of-david-spurgeon.jpg">The Treasury of David (Volumes 1-3)  
@@ -55,8 +51,6 @@ MacDonald Publishing.
 [Goodreads](https://www.goodreads.com/book/show/929973.The_Treasury_Of_David_Volumes_1_3)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-psalms-hamilton.jpg">Psalms (EBTC) (Volumes 1 & 2)  
 James M. Hamilton Jr.  

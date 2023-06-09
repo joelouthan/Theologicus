@@ -178,13 +178,9 @@ And
 
 Keep in mind that "the Father is of none, neither begotten nor proceeding" [^1689.2.3]. That just means he is not of anything or being sent by someone. He is just simply God and we all come from him and we exist for him.
 
-[^1689.2.3]: Second London Baptist Confession (1689), Chapter 2, Paragraph 3, [The Triune God](https://theologic.us/posts/confession-1689/1689-2-3-the-triune-god/)
-
 >John 14:11 (CSB) Believe me that I am in the Father and the Father is in me. Otherwise, believe because of the works themselves.
 
 >1 Corinthians 8:6 (CSB) yet for us there is one God, the Father. All things are from him, and we exist for him. And there is one Lord, Jesus Christ. All things are through him, and we exist through him.
-
----
 
 ### Almighty
 
@@ -251,3 +247,5 @@ Orlando: Reformation Trust, 2019.
 <p style="clear:both;">
 
 [^logos-apostles]: From [Logos: The Apostles' Creed: Its History and Origins](https://www.logos.com/grow/the-apostles-creed-its-history-and-origins/)
+
+[^1689.2.3]: Second London Baptist Confession (1689), Chapter 2, Paragraph 3, [The Triune God](https://theologic.us/posts/confession-1689/1689-2-3-the-triune-god/)

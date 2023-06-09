@@ -56,8 +56,6 @@ bgy {
 >
 >[1689.2.3. The Triune God](https://theologic.us/posts/confession-1689/1689-2-3-the-triune-god/)
 
----
-
 ## The Resources
 
 <img src="/images/book-creedal-imperative-trueman.jpg" align="left" width="100" style="padding-right: 10px" />The Creedal Imperative.  

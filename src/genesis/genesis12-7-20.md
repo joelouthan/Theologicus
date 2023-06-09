@@ -100,8 +100,6 @@ You are not your own. You belong to Christ. Christ is your Lord and he will let 
 
 Your place and home is not your own because this whole world belongs to Christ and He is the heir of all things. But because we have Christ, we are co-heirs with him--now we have everything.
 
----
-
 ><sup> 9 </sup> Then Abram journeyed by stages to the Negev. 
 >
 ><sup> 10 </sup> There was a famine in the land, so Abram went down to Egypt to stay there for a while because the famine in the land was severe. 
@@ -117,8 +115,6 @@ But the kick of it is: some of us want one thing that is not from God and yet wa
 I know God gives us new hearts and new desires. But we don't go our own ways to fulfill those desires. We take them to God and let him worry about the details. 
 
 He already determined when and where you are living. Now he will determine what you get to do.
-
----
 
 ><sup> 11 </sup> When he was about to enter Egypt, he said to his wife, Sarai, “Look, I know what a beautiful woman you are. 
 >
@@ -152,8 +148,6 @@ Oh, if you are curious of the specific sin that Abram commited against his wife?
 
 (You would think and hope, reading this, that this would be the first and last time Abram would do something like this. But how many of us committed a sin just once? That is exactly how you think it is going to go for Abram and Sarai.)
 
----
-
 ><sup> 14 </sup> When Abram entered Egypt, the Egyptians saw that the woman was very beautiful. 
 >
 ><sup> 15 </sup> Pharaoh’s officials saw her and praised her to Pharaoh, so the woman was taken to Pharaoh’s household. 
@@ -175,8 +169,6 @@ And
 >Matthew 5:45b (CSB) For he causes his sun to rise on the evil and the good, and sends rain on the righteous and the unrighteous.
 
 God alone is our provision. And I know we make mistakes or we don't make a mistake and we lose our job or a pandemic hits or we can't catch a break. But God always provides for his kids. More often than not, it doesn't always look like the way you want it to but he does.
-
----
 
 ><sup> 17 </sup> But the LORD struck Pharaoh and his household with severe plagues because of Abram’s wife, Sarai. 
 >
@@ -263,8 +255,6 @@ But how did Christ speak of Abraham?
 
 Abraham messed up like any son of Adam--like all of us. But because of Christ, because Abraham was a son of God like you and me, he "rejoiced to see the day of Christ--he saw it and was glad". We join together with every person of faith in this Bible and throughout the history of mankind because we have seen the day of Christ--we get to rejoice and be glad in it.
 
----
-
 When God saved you to himself, he gave himself to you and in turn, you have received everything: life, provision, heart, Spirit, Son, Father, the world. You have it all.
 
 One last thing he did: he paved way so that you can come all the way home to him.
@@ -308,16 +298,12 @@ Baker. 2009.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-genesis-boice.jpg" align="left" width="100" style="padding-right: 10px" />Genesis    
 by James Montgomery Boice.  
 Baker Books. May 1, 2006.  
 [Goodreads](https://www.goodreads.com/book/show/1327853.Genesis_Volumes_1_3?ac=1&from_search=true&qid=gvP0fM9zwn&rank=2)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-genesis-hughes.jpg" align="left" width="100" style="padding-right: 10px" />Genesis: Beginning and Blessing (Preaching the Word)  
 by R. Kent Hughes.  
@@ -326,8 +312,6 @@ Crossway. November 30, 2012.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-genesis-wenham.jpg" align="left" width="100" style="padding-right: 10px" />Genesis (Word Biblical Commentary)  
 by Gordon J. Wenham.  
 Thomas Nelson Inc. October 9, 1987.  
@@ -335,13 +319,9 @@ Thomas Nelson Inc. October 9, 1987.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/book-gospel-in-genesis-lloyd-jones.jpg" align="left" width="100" style="padding-right: 10px" />The Gospel in Genesis  
 by Martyn Lloyd-Jones.  
 Crossway. 2009.  
 [Goodreads](https://www.goodreads.com/book/show/6267556-the-gospel-in-genesis?ac=1&from_search=true&qid=XlCQWKUG5b&rank=1)
 
 <p style="clear:both;">
-
----

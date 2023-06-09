@@ -13,8 +13,6 @@ cover:
 tocopen: true
 css: "prayers"
 draft: false
----
-
 ## The Introduction
 
 And here is love:
@@ -188,16 +186,12 @@ Baker. 2009.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/book-no-condemnation-winslow.jpg" align="left" width="100" style="padding-right: 10px" />No Condemnation in Christ Jesus: As Unfolded in the Eighth Chapter of the Epistle to the Romans  
 by Octavius Winslow.  
 Banner of Trust. 1991.  
 [Goodreads](https://www.goodreads.com/book/show/4011534-no-condemnation-in-christ-jesus?ac=1&from_search=true&qid=K1waoHAVw7&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-romans-sproul.jpg" align="left" width="100" style="padding-right: 10px" />Romans: An Expositional Commentary  
 by R.C. Sproul.  
@@ -206,16 +200,12 @@ Reformation Trust Publishing. 2019.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-romans-moo.jpg" align="left" width="100" style="padding-right: 10px" />The Letter to the Romans (New International Commentary on the New Testament (NICNT))  
 by Douglas Moo.    
 Eerdmans. 1996.  
 [Goodreads](https://www.goodreads.com/book/show/48640436-the-letter-to-the-romans-new-international-commentary-on-the-new-testam?ac=1&from_search=true&qid=K0oRkdrYXP&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-romans-hendricksen.webp" align="left" width="100" style="padding-right: 10px" />New Testament Commentary: Romans: Chapters 1-16  
 by William Hendriksen.  
@@ -224,16 +214,12 @@ Baker. 1992.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-romans-plumer.jpeg" align="left" width="100" style="padding-right: 10px" />Romans  
 by William S. Plumer.  
 Kregel. 1993.  
 [Goodreads](https://www.goodreads.com/book/show/3189435-commentary-on-romans?ac=1&from_search=true&qid=pinspEBLVG&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-romans-mounce.jpg" align="left" width="100" style="padding-right: 10px" />Romans: An Exegetical and Theological Exposition of Holy Scripture (The New American Commentary)  
 by Robert Mounce.  
@@ -242,16 +228,12 @@ Holmon Reference. 1995.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-romans-bray.webp" align="left" width="100" style="padding-right: 10px" />Romans (Ancient Christian Commentary on Scripture, NT Volume 6)  
 Edited by Gerald L. Bray.  
 IVP Academic. 2005.  
 [Goodreads](https://www.goodreads.com/book/show/32922759-romans?ac=1&from_search=true&qid=O8EDAlniS5&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-romans-luther.webp" align="left" width="100" style="padding-right: 10px" />Commentary on Romans  
 by Martin Luther.  

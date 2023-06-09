@@ -82,8 +82,6 @@ Man is mortal and born in sin and depravity--far from the glory of God.
 
 Make no mistake: look at Religious History. Man will go to great lengths to either exalt Man above his place or make God a little lower than he ought.  Once you do that, you are no longer orthodox and proper and history. Congratulations, you have just created a false religion which the Bible rightfully declares is led by demons (Deuteronomy 32:16-17; 1 Corinthians 10:20)
 
----
-
 >Deuteronomy 32:16-17 (CSB) They provoked his jealousy with different gods;
 they enraged him with detestable practices.
 17 They sacrificed to demons, not God,
@@ -92,8 +90,6 @@ new gods that had just arrived,
 which your ancestors did not fear.
 
 >1 Corinthians 10:20 (CSB) No, but I do say that what they sacrifice, they sacrifice to demons and not to God. I do not want you to be participants with demons!
-
----
 
 God has saved man. God has wiped wickedness from the earth. Yet, Noah sins in the eyes of God.
 
@@ -174,8 +170,6 @@ What does man do about the problem of evil? Nothing on their own.
 
 What does God do about the problem of evil? Everything, continuous for all time until the end of time.
 
----
-
 ><sup> 24 </sup> When Noah awoke from his drinking and learned what his youngest son had done to him, <sup> 25 </sup> he said: Canaan is cursed. He will be the lowest of slaves to his brothers. <sup> 26 </sup> He also said: Blessed be the LORD, the God of Shem; Let Canaan be Shem’s slave. <sup> 27 </sup> Let God extend Japheth; let Japheth dwell in the tents of Shem; let Canaan be Shem’s slave. 
 
 ### The Glory of God: what God does, Mankind cannot undo
@@ -234,16 +228,12 @@ Baker. 2009.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-genesis-boice.jpg" align="left" width="100" style="padding-right: 10px" />Genesis    
 by James Montgomery Boice.  
 Baker Books. May 1, 2006.  
 [Goodreads](https://www.goodreads.com/book/show/1327853.Genesis_Volumes_1_3?ac=1&from_search=true&qid=gvP0fM9zwn&rank=2)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-genesis-hughes.jpg" align="left" width="100" style="padding-right: 10px" />Genesis: Beginning and Blessing (Preaching the Word)  
 by R. Kent Hughes.  
@@ -252,8 +242,6 @@ Crossway. November 30, 2012.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-genesis-wenham.jpg" align="left" width="100" style="padding-right: 10px" />Genesis (Word Biblical Commentary)  
 by Gordon J. Wenham.  
 Thomas Nelson Inc. October 9, 1987.  
@@ -261,13 +249,9 @@ Thomas Nelson Inc. October 9, 1987.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/book-gospel-in-genesis-lloyd-jones.jpg" align="left" width="100" style="padding-right: 10px" />The Gospel in Genesis  
 by Martyn Lloyd-Jones.  
 Crossway. 2009.  
 [Goodreads](https://www.goodreads.com/book/show/6267556-the-gospel-in-genesis?ac=1&from_search=true&qid=XlCQWKUG5b&rank=1)
 
 <p style="clear:both;">
-
----

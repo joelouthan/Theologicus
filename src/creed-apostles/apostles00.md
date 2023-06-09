@@ -91,8 +91,6 @@
 
 >Genesis 3:2-5 (CSB) The woman said to the serpent, “We may eat the fruit from the trees in the garden. But about the fruit of the tree in the middle of the garden, God said, ‘You must not eat it or touch it, or you will die.’ ” “No! You will certainly not die,” the serpent said to the woman. “In fact, God knows that when you eat it your eyes will be opened and you will be like God, knowing good and evil.”
 
----
-
 >Hosea 4:6 (CSB) My people are destroyed for lack of knowledge. Because you have rejected knowledge, I will reject you from serving as my priest. Since you have forgotten the law of your God, I will also forget your sons.
 
 ## The Resources
@@ -104,16 +102,12 @@ Crossway, 2012.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/confession-1689-judacious-reader-renihan.png">To the Judicious and Impartial Reader: Baptist Symbolics Volume 2.  
 by James Renihan.  
 Founders Press. 2022.  
 [Goodreads](https://www.goodreads.com/book/show/17867976-modern-exposition-of-the-1689-baptist-confession-of-faith)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/confession-1689-new-exposition-ventura.jpg">A New Exposition of the London Baptist Confession of Faith of 1689    
 by Rob Ventura.  
@@ -122,13 +116,9 @@ Mentor. January 17, 2023.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/confession-wcf-truths-we-confess-sproul.jpg">Truths We Confess: A Systematic Exposition of the Westminster Confession of Faith.  
 Sproul, R. C.    
 Orlando: Reformation Trust, 2019.  
 [Goodreads](https://www.goodreads.com/book/show/50024945-truths-we-confess?ac=1&from_search=true&qid=ssTkBgIFwE&rank=1)
 
 <p style="clear:both;">
-
----

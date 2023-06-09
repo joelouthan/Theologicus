@@ -10,8 +10,6 @@ Can God command animals?
 
 Can God control the weather?
 
----
-
 >Luke 5:8–11 (CSB) When Simon Peter saw this, he fell at Jesus’s knees and said, “Go away from me, because I’m a sinful man, Lord!”  For he and all those with him were amazed at the catch of fish they had taken,  and so were James and John, Zebedee’s sons, who were Simon’s partners. “Don’t be afraid,” Jesus told Simon. “From now on you will be catching people.”  Then they brought the boats to land, left everything, and followed him.
 
 John 6:66–69 (CSB) From that moment many of his disciples turned back and no longer accompanied him.  So Jesus said to the Twelve, “You don’t want to go away too, do you?”  Simon Peter answered, “Lord, to whom will we go? You have the words of eternal life.  We have come to believe and know that you are the Holy One of God.”
@@ -22,13 +20,9 @@ Can our sins and God exist together? Why or why not?
 
 What are the immediate and ultimate effects of sin? Can those effects happen in the same place as God?
 
----
-
 >Luke 5:12-16 While he was in one of the cities, there came a man full of leprosy. And when he saw Jesus, he fell on his face and begged him, “Lord, if you will, you can make me clean.” And Jesus stretched out his hand and touched him, saying, “I will; be clean.” And immediately the leprosy left him. And he charged him to tell no one, but “go and show yourself to the priest, and make an offering for your cleansing, as Moses commanded, for a proof to them.” But now even more the report about him went abroad, and great crowds gathered to hear him and to be healed of their infirmities. But he would withdraw to desolate places and pray.
 
 Does the God who created us would be in charge over us? Why or why not?
-
----
 
 >Luke 5:17-20 On one of those days, as he was teaching, Pharisees and teachers of the law were sitting there, who had come from every village of Galilee and Judea and from Jerusalem. And the power of the Lord was with him to heal. And behold, some men were bringing on a bed a man who was paralyzed, and they were seeking to bring him in and lay him before Jesus, but finding no way to bring him in, because of the crowd, they went up on the roof and let him down with his bed through the tiles into the midst before Jesus. And when he saw their faith, he said, “Man, your sins are forgiven you.”
 
@@ -44,23 +38,17 @@ Where does faith comes from?
 
 Is faith in God an ultimate good thing?
 
----
-
 >Luke 5:21-26 And the scribes and the Pharisees began to question, saying, “Who is this who speaks blasphemies? Who can forgive sins but God alone?” When Jesus perceived their thoughts, he answered them, “Why do you question in your hearts? Which is easier, to say, ‘Your sins are forgiven you,’ or to say, ‘Rise and walk’? But that you may know that the Son of Man has authority on earth to forgive sins”—he said to the man who was paralyzed—“I say to you, rise, pick up your bed and go home.” And immediately he rose up before them and picked up what he had been lying on and went home, glorifying God. And amazement seized them all, and they glorified God and were filled with awe, saying, “We have seen extraordinary things today.”
 
 When you sin, do you run away from God or run to the God who forgives you and cleanses you of your sin?
 
 Why would this be such a difficult thing to do?
 
----
-
 >Luke 5:27-28 After this he went out and saw a tax collector named Levi, sitting at the tax booth. And he said to him, “Follow me.” And leaving everything, he rose and followed him.
 
 What is success? What is happiness?
 
 What do you want to do in life? Have you ever asked God what he wants you to do with your life?
-
----
 
 >Luke 5:29 And Levi made him a great feast in his house, and there was a large company of tax collectors and others reclining at table with them. And the Pharisees and their scribes grumbled at his disciples, saying, “Why do you eat and drink with tax collectors and sinners?” And Jesus answered them, “Those who are well have no need of a physician, but those who are sick. I have not come to call the righteous but sinners to repentance.”
 
@@ -71,8 +59,6 @@ What is self-righteousness?
 What does God sees when we try to do what is right in our own eyes?
 
 What can God do with our own righteousness?
-
----
 
 >Luke 5:33 And they said to him, “The disciples of John fast often and offer prayers, and so do the disciples of the Pharisees, but yours eat and drink.” And Jesus said to them, “Can you make wedding guests fast while the bridegroom is with them? The days will come when the bridegroom is taken away from them, and then they will fast in those days.”
 
@@ -88,8 +74,6 @@ What will be the result of Christ's work in us?
 
 
 Revelation 19:6–10 (CSB) Then I heard something like the voice of a vast multitude, like the sound of cascading waters, and like the rumbling of loud thunder, saying, Hallelujah, because our Lord God, the Almighty, reigns!  Let us be glad, rejoice, and give him glory, because the marriage of the Lamb has come, and his bride has prepared herself.  She was given fine linen to wear, bright and pure. For the fine linen represents the righteous acts of the saints.  Then he said to me, “Write: Blessed are those invited to the marriage feast of the Lamb!” He also said to me, “These words of God are true.”  Then I fell at his feet to worship him, but he said to me, “Don’t do that! I am a fellow servant with you and your brothers and sisters who hold firmly to the testimony of Jesus. Worship God, because the testimony of Jesus is the spirit of prophecy.”
----
-
 >Luke 5:36 He also told them a parable: “No one tears a piece from a new garment and puts it on an old garment. If he does, he will tear the new, and the piece from the new will not match the old. And no one puts new wine into old wineskins. If he does, the new wine will burst the skins and it will be spilled, and the skins will be destroyed. But new wine must be put into fresh wineskins. And no one after drinking old wine desires new, for he says, ‘The old is good.’ ”
 
 ### From the beginning, mankind wants to add on to God's law
@@ -107,8 +91,6 @@ Revelation 19:6–10 (CSB) Then I heard something like the voice of a vast multi
 ### The law was never intended to save--only point us back to God
 
 >Romans 8:3-4 (CSB) For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering, in order that the law’s requirement would be fulfilled in us who do not walk according to the flesh but according to the Spirit.
----
-
 ## 
 
 ### Westminster Larger Catechism
@@ -134,8 +116,6 @@ Q.
 >than an abundance of pure gold;  
 >and sweeter than honey  
 >dripping from a honeycomb.
----
-
 ## 
 
 ### Westminster Larger Catechism

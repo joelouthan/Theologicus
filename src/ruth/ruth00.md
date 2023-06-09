@@ -57,8 +57,6 @@ Note: I use the [Christian Standard Bible](https://csbible.com) version on this 
 
 <p style="clear:both;">
 
----
-
 <img src="/images/bible-esv-study.jpg">ESV Study Bible  
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
@@ -69,8 +67,6 @@ Incredible resource. I have purchased this resource multiple times over for myse
 
 <p style="clear:both;">
 
----
-
 ## Commentaries & Books
 
 <img src="/images/commentary-totc-judges-ruth-cundall-morris.jpg">Judges and Ruth: An Introduction and Commentary (Tyndale Old Testament Commentary)  
@@ -80,16 +76,12 @@ IVP Academic. June 1, 1968.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-ruth-bitter-and-sweet-piper.jpg">A Sweet and Bitter Providence: Sex, Race, and the Sovereignty of God  
 by John Piper.  
 Crossway. January 1, 2010.  
 [Goodreads](https://www.goodreads.com/book/show/6641627-a-sweet-and-bitter-providence)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-esther-ruth-duguid.jpg">Esther & Ruth (Reformed Expository Commentary)  
 by Iain M. Duguid.  
@@ -98,16 +90,12 @@ P & R Publishing. October 1, 2005.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-judges-ruth-webb.jpg">Judges and Ruth: God in Chaos.  
 Barry G. Webb.  
 Crossway. 2015.  
 [Goodreads](https://www.goodreads.com/book/show/23531554-judges-and-ruth?from_search=true&from_srp=true&qid=t5D46PhcYO&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/bible-esv-reformation-study-sproul.jpg">ESV Reformation Study Bible  
 Commentary & Edited by R.C. Sproul.  
@@ -116,16 +104,12 @@ Ligonier Ministries. March 16, 2015.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-whole-bible-unabridged-henry.jpg">Matthew Henry’s Commentary on the Whole Bible: Complete and Unabridged in One Volume  
 by Matthew Henry.  
 Hendrickson Publishers. 1991.  
 [Goodreads](https://www.goodreads.com/book/show/962955.Matthew_Henry_s_Commentary_on_the_Whole_Bible?ac=1&from_search=true&qid=DNZ1wtYZl3&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-whole-jfb.jpg">Jamieson, Fausset, and Brown's Commentary on the Whole Bible  
 by Robert Jamieson, Alexander Cruden & Andrew Robert Fausset.  
@@ -134,13 +118,9 @@ Zondervan. 1961.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-whole-gill.jpg">An Exposition of the Old Testament, Vols. I–VI  
 by John Gill.  
 Public Domain.  
 [Goodreads](https://www.goodreads.com/book/show/18897526-gill-s-bible-commentary)
 
 <p style="clear:both;">
-
----

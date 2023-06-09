@@ -88,8 +88,6 @@ God does this because God is kind and he is love and his affections were set upo
 >>
 >>Geerhardus Vos. Redemptive History and Biblical Interpretation: The Shorter Writings of Geerhardus Vos.
 
----
-
 ><sup> 5b </sup> not by works of righteousness that we had done, but according to his mercy
 
 ## Christ Appeared: He Does Everything For Us 
@@ -108,8 +106,6 @@ No! Christ commands you to give up, give in and **rest in him**.
 God has the sweetest rest for the soul. Will you take it? Or are you going to keep trying harder to gain the love of God who already loved you because he sent his Son to live and die for you some 2000 years ago. Or to further break your back, crush your soul, and break your heart: go and try to please the world. You will never stop working and it will be for nothing.
 
 Take this gift of God's sweet loving rest. It is yours because you are in Christ and Christ is in you.
-
----
 
 ><sup> 5c-6 </sup> —through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior 
 
@@ -139,8 +135,6 @@ That work in you to conform you to the image of His Son. That is a promise of Go
 >Hebrews 12:1-2 (CSB) Therefore, since we also have such a large cloud of witnesses surrounding us, let us lay aside every hindrance and the sin that so easily ensnares us. Let us run with endurance the race that lies before us, 2 keeping our eyes on Jesus, the pioneer and perfecter of our faith. For the joy that lay before him, he endured the cross, despising the shame, and sat down at the right hand of the throne of God.
 
 Christ is the perfecter and finisher of our faith. He will do the work. Trust in him. Rest in him alone.
-
----
 
 ><sup> 7 </sup> so that, having been justified by his grace, we may become heirs with the hope of eternal life.
 

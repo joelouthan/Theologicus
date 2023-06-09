@@ -16,8 +16,6 @@
 
 3. What is the meal that Christ has invited us to eat and drink from?
 
----
-
 >Luke 19:11-27 (CSB) As they were listening to this, he went on to tell a parable because he was near Jerusalem, and they thought the kingdom of God was going to appear right away.
 >
 >Therefore he said, “A nobleman traveled to a far country to receive for himself authority to be king and then to return. He called ten of his servants, gave them ten minas, and told them, ‘Engage in business until I come back.’
@@ -46,8 +44,6 @@
 
 3. What happens if we say we believe in God yet we do nothing?
 
----
-
 >Luke 19:28-40 (CSB) When he had said these things, he went on ahead, going up to Jerusalem. As he approached Bethphage and Bethany, at the place called the Mount of Olives, he sent two of the disciples and said, “Go into the village ahead of you. As you enter it, you will find a colt tied there, on which no one has ever sat. Untie it and bring it. If anyone asks you, ‘Why are you untying it?’ say this: ‘The Lord needs it.’”
 >
 >So those who were sent left and found it just as he had told them. As they were untying the colt, its owners said to them, “Why are you untying the colt?”
@@ -71,15 +67,11 @@
 
 2. Many have seen God and did not worship him. What does Paul say about everybody knowing God and not believing in him?
 
----
-
 >Luke 19:41-44 (CSB) As he approached and saw the city, he wept for it, saying, “If you knew this day what would bring peace—but now it is hidden from your eyes. For the days will come on you when your enemies will build a barricade around you, surround you, and hem you in on every side. They will crush you and your children among you to the ground, and they will not leave one stone on another in your midst, because you did not recognize the time when God visited you.”
 
 1. Why did many Jews in Jesus' time not believe and obey Jesus?
 
 2. Jesus is the fulfillment of all the Scriptures and yet, many Jewish people do not believe in Christ. What must happen in order for anybody to believe in God? In other words, is it something that we must do or is it something God must do first?
-
----
 
 >Luke 19:45-48 (CSB) He went into the temple and began to throw out those who were selling, and he said, “It is written, my house will be a house of prayer, but you have made it a den of thieves!”
 >

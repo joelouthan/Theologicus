@@ -33,8 +33,6 @@ Note: I use the [Christian Standard Bible](https://csbible.com) version on this 
 
 <p style="clear:both;">
 
----
-
 <img src="/images/bible-esv-study.jpg">ESV Study Bible  
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
@@ -44,8 +42,6 @@ Incredible resource. I have purchased this resource multiple times over for myse
 <img class="olive" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
 <p style="clear:both;">
-
----
 
 ## Commentaries & Books
 
@@ -57,8 +53,6 @@ Baker. 2009.
 <img class="olive" src="/images/icon-bible-olive-tree.png">I mention this because in my go-to mobile Bible Study App, [Olive Tree](https://www.olivetree.com), Calvin's Commentaries are my go-to Commentary text of choice when I need clarification on the go. You can get the entire digital set for your phone (and computer) for about $40 from Olive Tree! (Or catch it on sale for $20 like I did.)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/book-no-condemnation-winslow.jpg">No Condemnation in Christ Jesus: As Unfolded in the Eighth Chapter of the Epistle to the Romans  
 Octavius Winslow.  
@@ -73,8 +67,6 @@ For more of a complete review, read mine here at [Goodreads.com](https://www.goo
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-romans-sproul.jpg">Romans: An Expositional Commentary  
 R.C. Sproul.  
 Reformation Trust Publishing. 2019.  
@@ -88,8 +80,6 @@ A better suggestion: stop reading my drivel and buy this book.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-romans-moo.jpg">The Letter to the Romans (New International Commentary on the New Testament (NICNT))  
 Douglas Moo.    
 Eerdmans. 1996.  
@@ -98,8 +88,6 @@ Eerdmans. 1996.
 I only mentioned the first edition because the second edition came out in 2018 and I haven't gotten my hands on it. This is a standard, el-defacto technical commentary recommendation for Romans. It's so highly recommended across all denominations and Protestant theological convictions, it's almost a generalization. But refer to it just once and you know that it is a generalization because it is true.
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-romans-hendricksen.webp">New Testament Commentary: Romans: Chapters 1-16  
 William Hendriksen.  
@@ -112,8 +100,6 @@ Craziest thing, tho. I have several others in his NT set but for some reason, I 
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-romans-plumer.jpeg">Romans  
 William S. Plumer.  
 Kregel. 1993.  
@@ -122,8 +108,6 @@ Kregel. 1993.
 This dude is pre-Liberalism Princeton Theological Seminary. I have not read through this but those credentials are enough to warrant a place in my library.
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-romans-mounce.jpg">Romans: An Exegetical and Theological Exposition of Holy Scripture (The New American Commentary)  
 Robert Mounce.  
@@ -134,8 +118,6 @@ Going by what other commentaries I have by Mounce, this stays in my library as w
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-romans-bray.webp">Romans (Ancient Christian Commentary on Scripture, NT Volume 6)  
 Edited Gerald L. Bray.  
 IVP Academic. 2005.  
@@ -145,8 +127,6 @@ I think this entire series is an excellent resource to have on hand if you can p
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-romans-luther.webp">Commentary on Romans  
 Martin Luther.  
 Kregel. 2003.  
@@ -155,8 +135,6 @@ Kregel. 2003.
 I would be remiss if I didn't mention Luther's commentary. It was his desperate mediation on one little famous Habakkukan quote that literally and figuratively hammers the change within the Church and help begun the Protestant Reformation: **THE JUST SHALL LIVE BY FAITH!**
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-romans-peterson.jpg">Romans (EBTC).  
 David G. Peterson.  

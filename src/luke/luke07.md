@@ -10,13 +10,9 @@ Why do you think that Christ was amazed at the centurion's faith?
 
 If God says he will do it, won't he do it?
 
----
-
 >Luke 7:11–17 (CSB) Afterward he was on his way to a town called Nain. His disciples and a large crowd were traveling with him.  Just as he neared the gate of the town, a dead man was being carried out. He was his mother’s only son, and she was a widow. A large crowd from the town was also with her.  When the Lord saw her, he had compassion on her and said, “Don’t weep.”  Then he came up and touched the open coffin, and the pallbearers stopped. And he said, “Young man, I tell you, get up!”  The dead man sat up and began to speak, and Jesus gave him to his mother.  Then fear came over everyone, and they glorified God, saying, “A great prophet has risen among us,” and “God has visited his people.”  This report about him went throughout Judea and all the vicinity.
 
 If God doesn't give us a new heart and new life, can we even obey God?
-
----
 
 >Luke 7:18–30 (CSB) Then John’s disciples told him about all these things. So John summoned two of his disciples  and sent them to the Lord, asking, “Are you the one who is to come, or should we expect someone else?”
 >
@@ -36,15 +32,11 @@ If God doesn't give us a new heart and new life, can we even obey God?
 
 How should we respond to prophets? Should we take them at their word or is there a way for us to check what they are saying?
 
----
-
 >Luke 7:29–30 (CSB) (And when all the people, including the tax collectors, heard this, they acknowledged God’s way of righteousness, because they had been baptized with John’s baptism.  But since the Pharisees and experts in the law had not been baptized by him, they rejected the plan of God for themselves.)
 
 Why would anybody reject God?
 
 Why would you reject God?
-
----
 
 >Luke 7:31–35 (CSB) “To what then should I compare the people of this generation, and what are they like?  They are like children sitting in the marketplace and calling to each other:
 >
@@ -58,8 +50,6 @@ Why would you reject God?
 Is coming to God with an honest heart and feelings the same as accusing him of evil and sin?
 
 How does God respond to our cries?
-
----
 
 >Luke 7:36–50 (CSB) Then one of the Pharisees invited him to eat with him. He entered the Pharisee’s house and reclined at the table.  And a woman in the town who was a sinner found out that Jesus was reclining at the table in the Pharisee’s house. She brought an alabaster jar of perfume  and stood behind him at his feet, weeping, and began to wash his feet with her tears. She wiped his feet with her hair, kissing them and anointing them with the perfume.
 >

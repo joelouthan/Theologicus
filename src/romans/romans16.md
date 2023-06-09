@@ -55,8 +55,6 @@
 
 ><sup>27</sup> to the only wise God, through Jesus Christ—to him be the glory forever! Amen.
 
----
-
 ## Our God
 
 >Romans 16:1–16 (CSB) I commend to you our sister Phoebe, who is a servant of the church in Cenchreae. So you should welcome her in the Lord in a manner worthy of the saints and assist her in whatever matter she may require your help. For indeed she has been a benefactor of many—and of me also. Give my greetings to Prisca and Aquila, my coworkers in Christ Jesus, who risked their own necks for my life. Not only do I thank them, but so do all the Gentile churches. Greet also the church that meets in their home. Greet my dear friend Epaenetus, who is the first convert to Christ from Asia. Greet Mary, who has worked very hard for you. Greet Andronicus and Junia, my fellow Jews and fellow prisoners. They are noteworthy in the eyes of the apostles, and they were also in Christ before me. Greet Ampliatus, my dear friend in the Lord. Greet Urbanus, our coworker in Christ, and my dear friend Stachys. Greet Apelles, who is approved in Christ. Greet those who belong to the household of Aristobulus. Greet Herodion, my fellow Jew. Greet those who belong to the household of Narcissus who are in the Lord. Greet Tryphaena and Tryphosa, who have worked hard in the Lord. Greet my dear friend Persis, who has worked very hard in the Lord. Greet Rufus, chosen in the Lord; also his mother—and mine. Greet Asyncritus, Phlegon, Hermes, Patrobas, Hermas, and the brothers and sisters who are with them. Greet Philologus and Julia, Nereus and his sister, and Olympas, and all the saints who are with them. Greet one another with a holy kiss. All the churches of Christ send you greetings.
@@ -94,8 +92,6 @@ And the next time you see them, greet them with a holy kiss and encourage them w
 
 Amen.
 
----
-
 ><sup>13</sup> Greet Rufus, chosen in the Lord; also his mother—and mine.
 
 ### God Has Overcome: Christ has brought us together
@@ -111,8 +107,6 @@ When Mark alone reports of Simon of Cyrene being forced by the Roman army to hel
 Mark mentions this because this was the same Simon, who was the father of Rufus who was doing the work of the Lord in the church in Rome in whom Paul tells them to greet. How amazing is it, that timely visit of Simon crossing paths with our Lord as he is descending unto saving his people from their sins would save Simon in that moment--then would save Simon's wife, and sons, Alexander and Rufus.
 
 Praise be to God!
-
----
 
 ><sup>17-18</sup> Now I urge you, brothers and sisters, to watch out for those who create divisions and obstacles contrary to the teaching that you learned. Avoid them, because such people do not serve our Lord Christ but their own appetites. They deceive the hearts of the unsuspecting with smooth talk and flattering words. 
 
@@ -142,8 +136,6 @@ God protects his sheep. He is not above stomping out your sand kingdom and remov
 
 But go ahead and build that little kingdom. That is on your neck when you stand before the Lord of lords. Good luck with all of that.
 
----
-
 ><sup>19</sup> The report of your obedience has reached everyone. Therefore I rejoice over you, but I want you to be wise about what is good, and yet innocent about what is evil. 
 
 ### God Has Overcome: Christ will grow and mature us
@@ -157,8 +149,6 @@ But go ahead and build that little kingdom. That is on your neck when you stand 
 >Hebrews 5:11–6:3 (CSB) We have a great deal to say about this, and it is difficult to explain, since you have become too lazy to understand. Although by this time you ought to be teachers, you need someone to teach you the basic principles of God’s revelation again. You need milk, not solid food. Now everyone who lives on milk is inexperienced with the message about righteousness, because he is an infant. But solid food is for the mature—for those whose senses have been trained to distinguish between good and evil. Therefore, let us leave the elementary teaching about Christ and go on to maturity, not laying again a foundation of repentance from dead works, faith in God, teaching about ritual washings, laying on of hands, the resurrection of the dead, and eternal judgment. And we will do this if God permits.
 
 Pastor, this is one of the goals you want for your church. Brother and sister, pick a church that wants this.
-
----
 
 ><sup>20</sup> The God of peace will soon crush Satan under your feet. The grace of our Lord Jesus be with you. 
 
@@ -181,8 +171,6 @@ I think Octavius Winslow says it best:
 >>We are more than conquerors through his grace who loved us in the very circumstances that threaten to overwhelm. Fear not, then, the darkest cloud, nor the proudest waves, nor the deepest needs- in these very things you shall, through Christ, prove triumphant. Nor shrink from the battle with the “last enemy.” Death received a death-wound when Christ died. You face a conquered foe. He stands at your side a crownless king, and waving a broken scepter. Your death shall be another victory over the believer’s last foe. Planting your foot of faith upon his prostrate neck, you shall spring into glory, more than a conqueror, through him that loved you. Thus passing to glory in triumph, you shall go to swell the ranks of the “noble army of martyrs”- those Christian heroes of whom it is recorded, “THEY OVERCAME HIM BY THE BLOOD Of THE LAMB.”
 >>
 >>Octavius Winslow. No Condemnation in Christ Jesus. 229.
-
----
 
 ><sup>21</sup> Timothy, my coworker, and Lucius, Jason, and Sosipater, my fellow countrymen, greet you. I, Tertius, who wrote this letter, greet you in the Lord. Gaius, who is host to me and to the whole church, greets you. Erastus, the city treasurer, and our brother Quartus greet you.
 
@@ -214,8 +202,6 @@ Moses tried to do it alone. He ended up not seeing the promise land.
 
 Take the moment right now to thank the people who have ministered with you over the years. Praise God for their lives and their love for you. Praise God for your love for them.
 
----
-
 ## Our Response
 
 ><sup>25-27</sup> Now to him who is able to strengthen you according to my gospel and the proclamation about Jesus Christ, according to the revelation of the mystery kept silent for long ages but now revealed and made known through the prophetic Scriptures, according to the command of the eternal God to advance the obedience of faith among all the Gentiles--to the only wise God, through Jesus Christ—to him be the glory forever! Amen.
@@ -240,16 +226,12 @@ Baker. 2009.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/book-no-condemnation-winslow.jpg" align="left" width="100" style="padding-right: 10px" />No Condemnation in Christ Jesus: As Unfolded in the Eighth Chapter of the Epistle to the Romans  
 by Octavius Winslow.  
 Banner of Trust. 1991.  
 [Goodreads](https://www.goodreads.com/book/show/4011534-no-condemnation-in-christ-jesus?ac=1&from_search=true&qid=K1waoHAVw7&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-romans-sproul.jpg" align="left" width="100" style="padding-right: 10px" />Romans: An Expositional Commentary  
 by R.C. Sproul.  
@@ -258,16 +240,12 @@ Reformation Trust Publishing. 2019.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-romans-moo.jpg" align="left" width="100" style="padding-right: 10px" />The Letter to the Romans (New International Commentary on the New Testament (NICNT))  
 by Douglas Moo.    
 Eerdmans. 1996.  
 [Goodreads](https://www.goodreads.com/book/show/48640436-the-letter-to-the-romans-new-international-commentary-on-the-new-testam?ac=1&from_search=true&qid=K0oRkdrYXP&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-romans-hendricksen.webp" align="left" width="100" style="padding-right: 10px" />New Testament Commentary: Romans: Chapters 1-16  
 by William Hendriksen.  
@@ -276,16 +254,12 @@ Baker. 1992.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-romans-plumer.jpeg" align="left" width="100" style="padding-right: 10px" />Romans  
 by William S. Plumer.  
 Kregel. 1993.  
 [Goodreads](https://www.goodreads.com/book/show/3189435-commentary-on-romans?ac=1&from_search=true&qid=pinspEBLVG&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-romans-mounce.jpg" align="left" width="100" style="padding-right: 10px" />Romans: An Exegetical and Theological Exposition of Holy Scripture (The New American Commentary)  
 by Robert Mounce.  
@@ -294,16 +268,12 @@ Holmon Reference. 1995.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/commentary-romans-bray.webp" align="left" width="100" style="padding-right: 10px" />Romans (Ancient Christian Commentary on Scripture, NT Volume 6)  
 Edited by Gerald L. Bray.  
 IVP Academic. 2005.  
 [Goodreads](https://www.goodreads.com/book/show/32922759-romans?ac=1&from_search=true&qid=O8EDAlniS5&rank=1)
 
 <p style="clear:both;">
-
----
 
 <img src="/images/commentary-romans-luther.webp" align="left" width="100" style="padding-right: 10px" />Commentary on Romans  
 by Martin Luther.  
