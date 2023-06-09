@@ -139,23 +139,9 @@ Break our theology and the English language trying to make two concepts of sover
 
 What we get do: repent of our sins and put our trust in the Mighty One who saves.
 
-## Pray
-
-<div style="font-variant: small-caps;">
-My Lord and my God
-</div>
-&nbsp;
-
-Save me.
-
-Now!
-
-Amen.
-
-
 ## The Resources
 
-<img src="/images/resources/commentary-calvin-set.png" align="left" width="100" style="padding-right: 10px" />Calvin's Commentaries.  
+<img src="/images/commentary-calvin-set.png" align="left" width="100" style="padding-right: 10px" />Calvin's Commentaries.  
 by John Calvin.  
 Baker. 2009.  
 [Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
@@ -164,7 +150,7 @@ Baker. 2009.
 
 ---
 
-<img src="/images/resources/commentary-genesis-boice.jpg" align="left" width="100" style="padding-right: 10px" />Genesis    
+<img src="/images/commentary-genesis-boice.jpg" align="left" width="100" style="padding-right: 10px" />Genesis    
 by James Montgomery Boice.  
 Baker Books. May 1, 2006.  
 [Goodreads](https://www.goodreads.com/book/show/1327853.Genesis_Volumes_1_3?ac=1&from_search=true&qid=gvP0fM9zwn&rank=2)
@@ -173,7 +159,7 @@ Baker Books. May 1, 2006.
 
 ---
 
-<img src="/images/resources/commentary-genesis-hughes.jpg" align="left" width="100" style="padding-right: 10px" />Genesis: Beginning and Blessing (Preaching the Word)  
+<img src="/images/commentary-genesis-hughes.jpg" align="left" width="100" style="padding-right: 10px" />Genesis: Beginning and Blessing (Preaching the Word)  
 by R. Kent Hughes.  
 Crossway. November 30, 2012.  
 [Goodreads]()
@@ -182,7 +168,7 @@ Crossway. November 30, 2012.
 
 ---
 
-<img src="/images/resources/commentary-genesis-wenham.jpg" align="left" width="100" style="padding-right: 10px" />Genesis (Word Biblical Commentary)  
+<img src="/images/commentary-genesis-wenham.jpg" align="left" width="100" style="padding-right: 10px" />Genesis (Word Biblical Commentary)  
 by Gordon J. Wenham.  
 Thomas Nelson Inc. October 9, 1987.  
 [Goodreads](https://www.goodreads.com/book/show/1813608.Genesis_1_15?ac=1&from_search=true&qid=rTitY4qg9L&rank=1)
@@ -191,7 +177,7 @@ Thomas Nelson Inc. October 9, 1987.
 
 ---
 
-<img src="/images/resources/book-gospel-in-genesis-lloyd-jones.jpg" align="left" width="100" style="padding-right: 10px" />The Gospel in Genesis  
+<img src="/images/book-gospel-in-genesis-lloyd-jones.jpg" align="left" width="100" style="padding-right: 10px" />The Gospel in Genesis  
 by Martyn Lloyd-Jones.  
 Crossway. 2009.  
 [Goodreads](https://www.goodreads.com/book/show/6267556-the-gospel-in-genesis?ac=1&from_search=true&qid=XlCQWKUG5b&rank=1)

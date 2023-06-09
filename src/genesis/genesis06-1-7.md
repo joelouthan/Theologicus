@@ -164,29 +164,9 @@ I can keep going all day.
 
 But if you are listen to me, and the Spirit of God is nudging you and speaking to you to give your sin over to Him, don't ignore it. Don't leave this channel to think about it some more. Tomorrow is not guarantee. Walk through that narrow gate. Give up your life for Jesus so Christ can give you the newness of life. You will just have to give up all your sin.
 
-## Pray
-
-<div style="font-variant: small-caps;">
-Savior
-</div>
-&nbsp;
-
-Free us.
-
-Save us.
-
-Give us repentance so that we can confess and give our sin over quicker than the day before.
-
-Be with us. Do not forsake us.
-
-Save us all.
-
-Amen.
-
-
 ## The Resources
 
-<img src="/images/resources/commentary-calvin-set.png" align="left" width="100" style="padding-right: 10px" />Calvin's Commentaries.  
+<img src="/images/commentary-calvin-set.png" align="left" width="100" style="padding-right: 10px" />Calvin's Commentaries.  
 by John Calvin.  
 Baker. 2009.  
 [Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
@@ -195,7 +175,7 @@ Baker. 2009.
 
 ---
 
-<img src="/images/resources/commentary-genesis-boice.jpg" align="left" width="100" style="padding-right: 10px" />Genesis    
+<img src="/images/commentary-genesis-boice.jpg" align="left" width="100" style="padding-right: 10px" />Genesis    
 by James Montgomery Boice.  
 Baker Books. May 1, 2006.  
 [Goodreads](https://www.goodreads.com/book/show/1327853.Genesis_Volumes_1_3?ac=1&from_search=true&qid=gvP0fM9zwn&rank=2)
@@ -204,7 +184,7 @@ Baker Books. May 1, 2006.
 
 ---
 
-<img src="/images/resources/commentary-genesis-hughes.jpg" align="left" width="100" style="padding-right: 10px" />Genesis: Beginning and Blessing (Preaching the Word)  
+<img src="/images/commentary-genesis-hughes.jpg" align="left" width="100" style="padding-right: 10px" />Genesis: Beginning and Blessing (Preaching the Word)  
 by R. Kent Hughes.  
 Crossway. November 30, 2012.  
 [Goodreads]()
@@ -213,7 +193,7 @@ Crossway. November 30, 2012.
 
 ---
 
-<img src="/images/resources/commentary-genesis-wenham.jpg" align="left" width="100" style="padding-right: 10px" />Genesis (Word Biblical Commentary)  
+<img src="/images/commentary-genesis-wenham.jpg" align="left" width="100" style="padding-right: 10px" />Genesis (Word Biblical Commentary)  
 by Gordon J. Wenham.  
 Thomas Nelson Inc. October 9, 1987.  
 [Goodreads](https://www.goodreads.com/book/show/1813608.Genesis_1_15?ac=1&from_search=true&qid=rTitY4qg9L&rank=1)
@@ -222,7 +202,7 @@ Thomas Nelson Inc. October 9, 1987.
 
 ---
 
-<img src="/images/resources/book-gospel-in-genesis-lloyd-jones.jpg" align="left" width="100" style="padding-right: 10px" />The Gospel in Genesis  
+<img src="/images/book-gospel-in-genesis-lloyd-jones.jpg" align="left" width="100" style="padding-right: 10px" />The Gospel in Genesis  
 by Martyn Lloyd-Jones.  
 Crossway. 2009.  
 [Goodreads](https://www.goodreads.com/book/show/6267556-the-gospel-in-genesis?ac=1&from_search=true&qid=XlCQWKUG5b&rank=1)
