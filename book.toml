@@ -24,7 +24,7 @@ git-repository-icon = "fa-github"
 no-section-label = true
 edit-url-template = "https://github.com/joelouthan/book-theologicus/edit/master/guide/{path}"
 
-[output.wordcount]
+# [output.wordcount] # uncomment to enable word count
 
 [output.html.search]
 limit-results = 25
