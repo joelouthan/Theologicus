@@ -1,3 +1,5 @@
+# The Apostles' Creed: Jesus Christ, Crucified
+
 <style>
 bgy { 
   background-color: yellow;
@@ -7,24 +9,24 @@ bgy {
 
 ## The Creed
 
->>I believe in God, the Father Almighty,  
->>the Creator of heaven and earth,  
->>and in Jesus Christ, His only Son, our Lord:  
->>Who was conceived of the Holy Spirit,  
->>born of the Virgin Mary,  
->>suffered under Pontius Pilate,  
->><bgy> **was crucified, died, and was buried.** </bgy>  
->><bgy> **He descended into hell.** </bgy>  
->>  
->>The third day He arose again from the dead.  
->>He ascended into heaven and sits at the right hand of God the Father Almighty,  
->>whence He shall come to judge the living and the dead.  
->>  
->>I believe in the Holy Spirit, the holy catholic church,  
->>the communion of saints, the forgiveness of sins,  
->>the resurrection of the body, and life everlasting.  
->>  
->>Amen.
+>I believe in God, the Father Almighty,  
+>the Creator of heaven and earth,  
+>and in Jesus Christ, His only Son, our Lord:  
+>Who was conceived of the Holy Spirit,  
+>born of the Virgin Mary,  
+>suffered under Pontius Pilate,  
+><bgy> **was crucified, died, and was buried.** </bgy>  
+><bgy> **He descended into hell.** </bgy>  
+>  
+>The third day He arose again from the dead.  
+>He ascended into heaven and sits at the right hand of God the Father Almighty,  
+>whence He shall come to judge the living and the dead.  
+>  
+>I believe in the Holy Spirit, the holy catholic church,  
+>the communion of saints, the forgiveness of sins,  
+>the resurrection of the body, and life everlasting.  
+>  
+>Amen.
 
 ## The Word
 
@@ -89,9 +91,9 @@ Upon the cross, where Jesus died, I am made alive, forgiven of all my sins, my t
 
 Let Charles Spurgeon exposit this text:
 
->>Let us muse upon the fact that Jesus was conducted without the gates of the city. It was the common place of death. That little rising ground, which perhaps was called Golgotha, the place of a skull, from its somewhat resembling the crown of a man's skull, was the common place of execution. It was one of Death's castles; here he stored his gloomiest trophies; he was the grim lord of that stronghold. Our great hero, the destroyer of Death, bearded the lion in his den, slew the monster in his own castle, and dragged the dragon captive from his own den. Methinks Death thought it a splendid triumph when he saw the Master impaled and bleeding in the dominions of destruction; little did he know that the grave was to be rifled, and himself destroyed, by that crucified Son of man.
->>
->>Charles Spurgeon. The Procession of Sorrow. [Sermon 497](https://archive.spurgeon.org/sermons/0497.php). March 1, 1863.
+>Let us muse upon the fact that Jesus was conducted without the gates of the city. It was the common place of death. That little rising ground, which perhaps was called Golgotha, the place of a skull, from its somewhat resembling the crown of a man's skull, was the common place of execution. It was one of Death's castles; here he stored his gloomiest trophies; he was the grim lord of that stronghold. Our great hero, the destroyer of Death, bearded the lion in his den, slew the monster in his own castle, and dragged the dragon captive from his own den. Methinks Death thought it a splendid triumph when he saw the Master impaled and bleeding in the dominions of destruction; little did he know that the grave was to be rifled, and himself destroyed, by that crucified Son of man.
+>
+>Charles Spurgeon. The Procession of Sorrow. [Sermon 497](https://archive.spurgeon.org/sermons/0497.php). March 1, 1863.
 
 For my sake, I belong to Christ because he died for me:
 

@@ -1,3 +1,5 @@
+# The Apostles' Creed: The Holy Catholic Church
+
 <style>
 bgy { 
   background-color: yellow;
@@ -7,24 +9,24 @@ bgy {
 
 ## The Creed
 
->>I believe in God, the Father Almighty,  
->>the Creator of heaven and earth,  
->>and in Jesus Christ, His only Son, our Lord:  
->>Who was conceived of the Holy Spirit,  
->>born of the Virgin Mary,  
->>suffered under Pontius Pilate,  
->>was crucified, died, and was buried.  
->>He descended into hell.  
->>  
->>The third day He arose again from the dead.  
->>He ascended into heaven and sits at the right hand of God the Father Almighty,  
->>whence He shall come to judge the living and the dead.  
->>  
->>I believe in the Holy Spirit,<bgy> **the holy catholic church** </bgy>,  
->>the communion of saints, the forgiveness of sins,  
->>the resurrection of the body, and life everlasting.  
->>  
->>Amen.
+>I believe in God, the Father Almighty,  
+>the Creator of heaven and earth,  
+>and in Jesus Christ, His only Son, our Lord:  
+>Who was conceived of the Holy Spirit,  
+>born of the Virgin Mary,  
+>suffered under Pontius Pilate,  
+>was crucified, died, and was buried.  
+>He descended into hell.  
+>  
+>The third day He arose again from the dead.  
+>He ascended into heaven and sits at the right hand of God the Father Almighty,  
+>whence He shall come to judge the living and the dead.  
+>  
+>I believe in the Holy Spirit,<bgy> **the holy catholic church** </bgy>,  
+>the communion of saints, the forgiveness of sins,  
+>the resurrection of the body, and life everlasting.  
+>  
+>Amen.
 
 ## The Word
 
@@ -32,9 +34,9 @@ bgy {
 
 ## The Belief
 
->>The catholic or universal church, which (with respect to the internal work of the Spirit and truth of grace) may be called invisible, consists of the whole number of the elect, that have been, are, or shall be gathered into one, under Christ, the head thereof; and is the spouse, the body, the fulness of him that filleth all in all.
->>
->>[1689.26.1 Of the Church](/posts/confession-1689/1689-0-working/#chapter-26-of-the-church)
+>The catholic or universal church, which (with respect to the internal work of the Spirit and truth of grace) may be called invisible, consists of the whole number of the elect, that have been, are, or shall be gathered into one, under Christ, the head thereof; and is the spouse, the body, the fulness of him that filleth all in all.
+>
+>[1689.26.1 Of the Church](/posts/confession-1689/1689-0-working/#chapter-26-of-the-church)
 
 ---
 

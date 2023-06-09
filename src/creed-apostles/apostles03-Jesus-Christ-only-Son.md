@@ -1,3 +1,5 @@
+# The Apostles' Creed: Jesus Christ, His Only Son, Our Lord
+
 <style>
 bgy { 
   background-color: yellow;
@@ -7,24 +9,24 @@ bgy {
 
 ## The Creed
 
->>I believe in God, the Father Almighty,  
->>the Creator of heaven and earth,  
->><bgy> **and in Jesus Christ, His only Son, our Lord** </bgy>:  
->>Who was conceived of the Holy Spirit,  
->>born of the Virgin Mary,  
->>suffered under Pontius Pilate,  
->>was crucified, died, and was buried.  
->>He descended into hell.  
->>  
->>The third day He arose again from the dead.  
->>He ascended into heaven and sits at the right hand of God the Father Almighty,  
->>whence He shall come to judge the living and the dead.  
->>  
->>I believe in the Holy Spirit, the holy catholic church,  
->>the communion of saints, the forgiveness of sins,  
->>the resurrection of the body, and life everlasting.  
->>  
->>Amen.
+>I believe in God, the Father Almighty,  
+>the Creator of heaven and earth,  
+><bgy> **and in Jesus Christ, His only Son, our Lord** </bgy>:  
+>Who was conceived of the Holy Spirit,  
+>born of the Virgin Mary,  
+>suffered under Pontius Pilate,  
+>was crucified, died, and was buried.  
+>He descended into hell.  
+>  
+>The third day He arose again from the dead.  
+>He ascended into heaven and sits at the right hand of God the Father Almighty,  
+>whence He shall come to judge the living and the dead.  
+>  
+>I believe in the Holy Spirit, the holy catholic church,  
+>the communion of saints, the forgiveness of sins,  
+>the resurrection of the body, and life everlasting.  
+>  
+>Amen.
 
 ## The Word
 
@@ -97,9 +99,9 @@ When you speak of the Triune God and the word begotten, it is the same yet diffe
 
 The Historic Baptist Confession starts the chapter on God with this: The Lord our God. From his book, *Baptist Symbolics Volume 2.*, Dr. Renihan starts with this sweetest truth,
 
->>the paragraph begins with a personalized assertion about God—He is ours.
->>
->>Renihan. Baptist Symbolics Volume 2. 167
+>the paragraph begins with a personalized assertion about God—He is ours.
+>
+>Renihan. Baptist Symbolics Volume 2. 167
 
 Whatever God wants to reveal about himself to us, it will not be everything about God but it will be *truly* about God and we, as his people, know him truly. Let the world say what they want about our God. But the maker of the heavens and the earth, the Almighty God, from everlasting to everlasting, belongs to his people. God belongs to me and God belongs to you. 
 

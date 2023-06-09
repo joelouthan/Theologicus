@@ -1,3 +1,5 @@
+# The Apostles' Creed: The Holy Spirit as Christ Revealed
+
 <style>
 bgy { 
   background-color: yellow;
@@ -7,24 +9,24 @@ bgy {
 
 ## The Creed
 
->>I believe in God, the Father Almighty,  
->>the Creator of heaven and earth,  
->>and in Jesus Christ, His only Son, our Lord:  
->>Who was conceived of the Holy Spirit,  
->>born of the Virgin Mary,  
->>suffered under Pontius Pilate,  
->>was crucified, died, and was buried.  
->>He descended into hell.  
->>  
->>The third day He arose again from the dead.  
->>He ascended into heaven and sits at the right hand of God the Father Almighty,  
->>whence He shall come to judge the living and the dead.  
->>  
->><bgy> **I believe in the Holy Spirit** </bgy>, the holy catholic church,  
->>the communion of saints, the forgiveness of sins,  
->>the resurrection of the body, and life everlasting.  
->>  
->>Amen.
+>I believe in God, the Father Almighty,  
+>the Creator of heaven and earth,  
+>and in Jesus Christ, His only Son, our Lord:  
+>Who was conceived of the Holy Spirit,  
+>born of the Virgin Mary,  
+>suffered under Pontius Pilate,  
+>was crucified, died, and was buried.  
+>He descended into hell.  
+>  
+>The third day He arose again from the dead.  
+>He ascended into heaven and sits at the right hand of God the Father Almighty,  
+>whence He shall come to judge the living and the dead.  
+>  
+><bgy> **I believe in the Holy Spirit** </bgy>, the holy catholic church,  
+>the communion of saints, the forgiveness of sins,  
+>the resurrection of the body, and life everlasting.  
+>  
+>Amen.
 
 ## The Word
 
@@ -86,9 +88,9 @@ Preaching against sin versus conviction of sin
 
 >1 Corinthians 2:12 (CSB) Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God.
 
->>our full persuasion and assurance of the infallible truth, and divine authority thereof, is from the inward work of the Holy Spirit bearing witness by and with the Word in our hearts.
->>
->>[1689.1.5 Inward Work of the Holy Spirit Concerning the Scriptures](https://theologic.us/posts/confession-1689/1689-1-5-the-inward-work-of-holy-spirit-concerning-scripture/)
+>our full persuasion and assurance of the infallible truth, and divine authority thereof, is from the inward work of the Holy Spirit bearing witness by and with the Word in our hearts.
+>
+>[1689.1.5 Inward Work of the Holy Spirit Concerning the Scriptures](https://theologic.us/posts/confession-1689/1689-1-5-the-inward-work-of-holy-spirit-concerning-scripture/)
 
 ---
 

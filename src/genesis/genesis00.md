@@ -61,17 +61,6 @@ I don't have a personal insightful recommendation on the following. I just wante
 
 ---
 
-<img src="/images/commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
-by John Calvin.  
-Baker. 2009.  
-[Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
-
-<img class="olive" src="/images/icon-bible-olive-tree.png">I mention this because in my go-to mobile Bible Study App, [Olive Tree](https://www.olivetree.com), Calvin's Commentaries are my go-to Commentary text of choice when I need clarification on the go. You can get the entire digital set for your phone (and computer) for about $40 from Olive Tree.
-
-<p style="clear:both;">
-
----
-
 <img src="/images/commentary-genesis-boice.jpg" align="left" width="100" style="padding-right: 10px" />Genesis    
 James Montgomery Boice.  
 Baker Books. May 1, 2006.  

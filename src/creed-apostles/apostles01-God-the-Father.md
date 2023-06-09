@@ -1,3 +1,5 @@
+# The Apostles' Creed: I Believe in God the Father Almighty
+
 <style>
 bgy { 
   background-color: yellow;
@@ -7,24 +9,24 @@ bgy {
 
 ## The Creed
 
->><bgy> **I believe in God, the Father Almighty,** </bgy>  
->>the Creator of heaven and earth,  
->>and in Jesus Christ, His only Son, our Lord:  
->>Who was conceived of the Holy Spirit,  
->>born of the Virgin Mary,  
->>suffered under Pontius Pilate,  
->>was crucified, died, and was buried.  
->>He descended into hell.  
->>  
->>The third day He arose again from the dead.  
->>He ascended into heaven and sits at the right hand of God the Father Almighty,  
->>whence He shall come to judge the living and the dead.  
->>  
->>I believe in the Holy Spirit, the holy catholic church,  
->>the communion of saints, the forgiveness of sins,  
->>the resurrection of the body, and life everlasting.  
->>  
->>Amen.
+><bgy> **I believe in God, the Father Almighty,** </bgy>  
+>the Creator of heaven and earth,  
+>and in Jesus Christ, His only Son, our Lord:  
+>Who was conceived of the Holy Spirit,  
+>born of the Virgin Mary,  
+>suffered under Pontius Pilate,  
+>was crucified, died, and was buried.  
+>He descended into hell.  
+>  
+>The third day He arose again from the dead.  
+>He ascended into heaven and sits at the right hand of God the Father Almighty,  
+>whence He shall come to judge the living and the dead.  
+>  
+>I believe in the Holy Spirit, the holy catholic church,  
+>the communion of saints, the forgiveness of sins,  
+>the resurrection of the body, and life everlasting.  
+>  
+>Amen.
 
 ## The Word
 
