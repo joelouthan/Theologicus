@@ -7,6 +7,7 @@ All notable changes to this project will be documented in this file.
 ### Added
 
 - Migrated from Hugo to mdBook
+- Wordcount: 699793 [^wordcount]
 
 <p style="clear:both;">
 
@@ -82,3 +83,5 @@ New **finished** exposition series. When the series is complete, this will bump 
 ### PATCH 1.1.1
 
 New sermons or new articles. This will go from 3.0.0 to 3.0.1 to 3.0.2 and so on.
+
+[^wordcount]: Per [mdbook-wordcount](https://github.com/nomorepanic/mdbook-wordcount)
