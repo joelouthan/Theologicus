@@ -8,7 +8,7 @@
 
 ## using
 
-[![tools](https://skillicons.dev/icons?i=vscode,rust,,md,css,html,bash,git,github,netlify,linux)]()
+[![tools](https://skillicons.dev/icons?i=vscode,vim,rust,md,css,html,bash,git,github,netlify,linux)]()
 
 ## contact me
 
