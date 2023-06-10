@@ -181,6 +181,11 @@ Both of them got married and moved to the States. They had me and my brother. Th
 >Take the time to trace your life and see how God has been at work so that "you might seek God, and perhaps you might reach out and find him, though he is not far from each one of us."
 ## The Resources
 
+<img src="/images/commentary-calvin-set-portrait.jpg" align="left" width="100" style="padding-right: 10px" />Calvin's Commentaries.  
+by John Calvin.  
+Baker. 2009.  
+[Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
+
 <p style="clear:both;">
 
 <img src="/images/commentary-totc-judges-ruth-cundall-morris.jpg" align="left" width="100" style="padding-right: 10px" />Judges and Ruth: An Introduction and Commentary (Tyndale Old Testament Commentary)  

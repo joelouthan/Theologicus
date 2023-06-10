@@ -71,6 +71,13 @@ Incredible resource. I have purchased this resource multiple times over for myse
 
 ## Commentaries & Books
 
+<img src="/images/commentary-calvin-set-portrait.jpg" align="left" width="100" style="padding-right: 10px" />Calvin's Commentaries.  
+by John Calvin.  
+Baker. 2009.  
+[Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
+
+<p style="clear:both;">
+
 <img src="/images/commentary-totc-judges-ruth-cundall-morris.jpg">Judges and Ruth: An Introduction and Commentary (Tyndale Old Testament Commentary)  
 by Arthur E. Cundall & Leon L. Morris.  
 IVP Academic. June 1, 1968.  

@@ -207,6 +207,11 @@ We don't have to have an excuse. We don't have to blameshift. We don't have to h
 
 ## The Resources
 
+<img src="/images/commentary-calvin-set-portrait.jpg" align="left" width="100" style="padding-right: 10px" />Calvin's Commentaries.  
+by John Calvin.  
+Baker. 2009.  
+[Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
+
 <p style="clear:both;">
 
 <img src="/images/commentary-totc-judges-ruth-cundall-morris.jpg" align="left" width="100" style="padding-right: 10px" />Judges and Ruth: An Introduction and Commentary (Tyndale Old Testament Commentary)  
