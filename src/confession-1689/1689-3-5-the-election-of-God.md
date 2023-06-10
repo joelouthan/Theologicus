@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>Those of mankind that are predestinated to life, God, before the foundation of the world was laid, according to his eternal and immutable purpose, and the secret counsel and good pleasure of his will, hath chosen in Christ unto everlasting glory, out of his mere free grace and love, without any other thing in the creature as a condition or cause moving him thereunto.
+>Those of mankind that are predestinated to life, God, before the foundation of the world was laid, according to his eternal and immutable purpose, and the secret counsel and good pleasure of his will, hath chosen in Christ unto everlasting glory, out of his mere free grace and love, without any other thing in the creature as a condition or cause moving him thereunto.
 
 ## The Confession
 

@@ -6,15 +6,15 @@
 
 ## The Chapter
 
->>The supreme judge, by which all controversies of religion are to be determined, and all decrees of councils, opinions of ancient writers, doctrines of men, and private spirits, are to be examined, and in whose sentence we are to rest, can be no other but the Holy Scripture delivered by the Spirit, into which Scripture so delivered, our faith is finally resolved.
+>The supreme judge, by which all controversies of religion are to be determined, and all decrees of councils, opinions of ancient writers, doctrines of men, and private spirits, are to be examined, and in whose sentence we are to rest, can be no other but the Holy Scripture delivered by the Spirit, into which Scripture so delivered, our faith is finally resolved.
 
 ## The Confession
 
 I think Spurgeon said it best:
 
->>The Word of God is the anvil upon which the opinions of men are smashed. None are more unjust in their judgments of others than those who have a high opinion of themselves.
->>
->>Spurgeon.
+>The Word of God is the anvil upon which the opinions of men are smashed. None are more unjust in their judgments of others than those who have a high opinion of themselves.
+>
+>Spurgeon.
 
 In the Reformed doctrine of *sola Scriptura*, one key teaching remains primary: that the Scripture remains infallible in all matters. Faith and practice to be sure. What about the areas of science, philosophy, and history and the like?
 
@@ -22,7 +22,7 @@ This reminds me of Luther and Calvin's hard counter to the Nicolaus Copernicus' 
 
 [^1]: A much better explanation of this whole ordeal can be found at [Luther, Calvin, and Copernicus — A Reformed Approach to Science and Scripture](https://www.ligonier.org/learn/articles/luther-calvin-and-copernicus-reformed-approach-science-and-scripture) by Keith Mathison. Jun 1, 2012
 
->>Joshua 10:13 (CSB) And the sun stood still and the moon stopped until the nation took vengeance on its enemies. Isn’t this written in the Book of Jashar? So the sun stopped in the middle of the sky and delayed its setting almost a full day.
+>Joshua 10:13 (CSB) And the sun stood still and the moon stopped until the nation took vengeance on its enemies. Isn’t this written in the Book of Jashar? So the sun stopped in the middle of the sky and delayed its setting almost a full day.
 
 The Bible said. "The sun and the moon stood still. Obviously, that means they rotate around the earth." Which we now know, thanks to the works of Galileo Galilei, among many others, that indeed, our system revolves around the sun.
 

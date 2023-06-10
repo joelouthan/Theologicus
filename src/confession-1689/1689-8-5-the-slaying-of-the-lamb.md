@@ -14,7 +14,7 @@
 
 ## The Chapter
 
->>The Lord Jesus, by his perfect obedience and sacrifice of himself, which he through the eternal Spirit once offered up unto God, hath fully satisfied the justice of God, procured reconciliation, and purchased an everlasting inheritance in the kingdom of heaven, for all those whom the Father hath given unto Him.
+>The Lord Jesus, by his perfect obedience and sacrifice of himself, which he through the eternal Spirit once offered up unto God, hath fully satisfied the justice of God, procured reconciliation, and purchased an everlasting inheritance in the kingdom of heaven, for all those whom the Father hath given unto Him.
 
 ## The Confession
 
@@ -34,11 +34,11 @@ The fire was lit.
 
 In their most desperate moment, with his loudest voice so that his friend could hear, Latimer yells to Ridley:
 
->>**Be of good heart, brother, for God will either assuage the fury of the flame, or else strengthen us to abide it.**
+>**Be of good heart, brother, for God will either assuage the fury of the flame, or else strengthen us to abide it.**
 
 The fires began to strengthen and burn their legs. But Latimer pressed on:
 
->>**Be of good comfort, Master Ridley, and play the man; we shall this day light such a candle, by God’s grace, in England, as I trust shall never be put out.**
+>**Be of good comfort, Master Ridley, and play the man; we shall this day light such a candle, by God’s grace, in England, as I trust shall never be put out.**
 
 When the flames reached the gunpowder, they were both annihilated--their bodies exploding into millions of pieces and quickly turned into ash. 
 
@@ -52,9 +52,9 @@ These men died for the truth in Hebrews 9:28.
 
 The entire Roman Catholic church is built upon the superstition that at ever Mass, that is, ever Sunday service, the priest is able to say a few words in order to make the bread and wine of the Eucharist will be turned into the physical body and the real blood of Jesus. And because we are reasonable people with a reasonable faith, you might think, "Sure they are meaning figuratively or even spiritually?"
 
->>The Council of Trent summarizes the Catholic faith by declaring: "Because Christ our Redeemer said that it was truly his body that he was offering under the species of bread, it has always been the conviction of the Church of God, and this holy Council now declares again, that by the consecration of the bread and wine there takes place a change of the whole substance of the bread into the substance of the body of Christ our Lord and of the whole substance of the wine into the substance of his blood. This change the holy Catholic Church has fittingly and properly called transubstantiation."
->>
->>[The Catechism of the Catholic Church. 1376.](http://www.scborromeo.org/ccc/para/1376.htm)
+>The Council of Trent summarizes the Catholic faith by declaring: "Because Christ our Redeemer said that it was truly his body that he was offering under the species of bread, it has always been the conviction of the Church of God, and this holy Council now declares again, that by the consecration of the bread and wine there takes place a change of the whole substance of the bread into the substance of the body of Christ our Lord and of the whole substance of the wine into the substance of his blood. This change the holy Catholic Church has fittingly and properly called transubstantiation."
+>
+>[The Catechism of the Catholic Church. 1376.](http://www.scborromeo.org/ccc/para/1376.htm)
 
 Or take it from the book, *Mangiare Dio: Una storia dell’eucarestia*, which the title is translated into, *Eating God: A History of the Eucharist*, by the Italian historian Alberto Melloni.
 

@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>Christ, in the work of mediation, acteth according to both natures, by each nature doing that which is proper to itself; yet by reason of the unity of the person, that which is proper to one nature is sometimes in Scripture, attributed to the person denominated by the other nature.
+>Christ, in the work of mediation, acteth according to both natures, by each nature doing that which is proper to itself; yet by reason of the unity of the person, that which is proper to one nature is sometimes in Scripture, attributed to the person denominated by the other nature.
 
 ## The Confession
 
@@ -28,7 +28,7 @@ Which in itself is harmful because it is not Orthodox Christianity. But then, if
 
 I have said often: ESS goes against the Creeds. In case you are not familiar, in dealing with the two natures of Christ, here is what the Athanasian Creed says:
 
->>  That we believe and confess
+>  That we believe and confess
   that our Lord Jesus Christ, God's Son,
   is both God and human, equally.
 

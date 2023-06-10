@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>They being the root, and by God's appointment, standing in the room and stead of all mankind, the guilt of the sin was imputed, and corrupted nature conveyed, to all their posterity descending from them by ordinary generation, being now conceived in sin, and by nature children of wrath, the servants of sin, the subjects of death, and all other miseries, spiritual, temporal, and eternal, unless the Lord Jesus set them free.
+>They being the root, and by God's appointment, standing in the room and stead of all mankind, the guilt of the sin was imputed, and corrupted nature conveyed, to all their posterity descending from them by ordinary generation, being now conceived in sin, and by nature children of wrath, the servants of sin, the subjects of death, and all other miseries, spiritual, temporal, and eternal, unless the Lord Jesus set them free.
 
 ## The Confession
 
@@ -34,13 +34,13 @@ So in this, God had marked Adam, his first image-bearing creation, as the federa
 
 Ligonier Ministries quotes Dr. James M. Boice. He:
 
->>argues that it was because the people of the pre-law age had sinned “in Adam.” Because he was the God-appointed representative for all humanity, God counted his sin as their sin and imposed on them the guilt and penalty he incurred.[^ligboice]
+>argues that it was because the people of the pre-law age had sinned “in Adam.” Because he was the God-appointed representative for all humanity, God counted his sin as their sin and imposed on them the guilt and penalty he incurred.[^ligboice]
 
 [^ligboice]: James M. Boice, Romans: An Exposition of Chapter 5:12–21 (Wheaton, IL: Crossway Books, 1991). As taken from [Our First Federal Head](https://www.ligonier.org/learn/devotionals/our-first-federal-head)
 
 Furthermore:
 
->>Federalism, Boice says, is “a proof of God’s grace,” for while the failure of our first federalhead brought terrible results, federalism “was the only way it would later be possible forGod to save us once we had sinned.” This is a difficult subject, and we must pray for graceto trust God’s wisdom and the testimony of His Word as we study it. [^ligboice2]
+>Federalism, Boice says, is “a proof of God’s grace,” for while the failure of our first federalhead brought terrible results, federalism “was the only way it would later be possible forGod to save us once we had sinned.” This is a difficult subject, and we must pray for graceto trust God’s wisdom and the testimony of His Word as we study it. [^ligboice2]
 
 [^ligboice2]: Ibid.
 

@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>The books commonly called Apocrypha, not being of divine inspiration, are no part of the canon or rule of the Scripture, and, therefore, are of no authority to the church of God, nor to be any otherwise approved or made use of than other human writings.
+>The books commonly called Apocrypha, not being of divine inspiration, are no part of the canon or rule of the Scripture, and, therefore, are of no authority to the church of God, nor to be any otherwise approved or made use of than other human writings.
 
 ## The Confession
 
@@ -29,9 +29,9 @@ The Apocrypha consisting of the following:
 
 These books are not canon because they are not wholly inspired by God in their writings. Despite them being not canon, we don't reject them wholesale. They are literature of great historical importance. R.C. Sproul says it this way:
 
->>Although the Apocrypha are not part of the canon of the Scripture, these books need not be completely ignored or discarded. We do not throw away the letters of Clement, Ignatius, or other church fathers, which are of historical interest. The confession makes the point only that the books of the Apocrypha are not inspired and therefore do not belong in the canon.
->>
->> R.C. Sproul. Truths We Confess. 12.
+>Although the Apocrypha are not part of the canon of the Scripture, these books need not be completely ignored or discarded. We do not throw away the letters of Clement, Ignatius, or other church fathers, which are of historical interest. The confession makes the point only that the books of the Apocrypha are not inspired and therefore do not belong in the canon.
+>
+> R.C. Sproul. Truths We Confess. 12.
 
 To believe that the Bible is inspired--breathed out--by God himself through the mind, education, and hand of human authors is one thing. (2 Timothy 3:16) To believe that all sixty-six books, from Genesis to Revelation, contains all that there is revealed nature of Triune God--out of the sovereign grace of the Father through the atoning sacrifice and death-killing resurrection of the Lord Jesus Christ, by the Almighty power of the Spirit--is a belief that has to be completely supernatural from God on high. Yet, we look at all of history, from the creation of Adam through various prophecies, through all of Church history, the thought that the Bible contains all that there is revealed about God is a difficult concept to comprehend. If it were easy, then heresies, sects, and cults, and false teachings wouldn't be a thing. Reformations would not be necessarily sovereignly course corrected by God himself.
 

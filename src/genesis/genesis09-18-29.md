@@ -210,12 +210,12 @@ Paul figured it out. This is his answer.
 
 As the hymn goes:
 
->>Turn your eyes upon Jesus,  
->>Look full in His wonderful face,  
->>And the things of earth will grow strangely dim,  
->>  In the light of His glory and grace.
->>
->> Helen Howarth Lemmel
+>Turn your eyes upon Jesus,  
+>Look full in His wonderful face,  
+>And the things of earth will grow strangely dim,  
+>  In the light of His glory and grace.
+>
+> Helen Howarth Lemmel
 
 Those in the flesh will die in the flesh. Those in the Spirit will have everlasting life. 
 

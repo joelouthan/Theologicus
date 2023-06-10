@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>The Old Testament in Hebrew (which was the native language of the people of God of old), and the New Testament in Greek (which at the time of the writing of it was most generally known to the nations), being immediately inspired by God, and by his singular care and providence kept pure in all ages, are therefore authentic; so as in all controversies of religion, the church is finally to appeal to them. But because these original tongues are not known to all the people of God, who have a right unto, and interest in the Scriptures, and are commanded in the fear of God to read and search them, therefore they are to be translated into the vulgar language of every nation unto which they come, that the Word of God dwelling plentifully in all, they may worship him in an acceptable manner, and through patience and comfort of the Scriptures may have hope.
+>The Old Testament in Hebrew (which was the native language of the people of God of old), and the New Testament in Greek (which at the time of the writing of it was most generally known to the nations), being immediately inspired by God, and by his singular care and providence kept pure in all ages, are therefore authentic; so as in all controversies of religion, the church is finally to appeal to them. But because these original tongues are not known to all the people of God, who have a right unto, and interest in the Scriptures, and are commanded in the fear of God to read and search them, therefore they are to be translated into the vulgar language of every nation unto which they come, that the Word of God dwelling plentifully in all, they may worship him in an acceptable manner, and through patience and comfort of the Scriptures may have hope.
 
 ## The Confession
 
@@ -28,7 +28,7 @@ Or you can be like every single human in history who overthought this point went
 
 ### so as in all controversies of religion, the church is finally to appeal to them
 
->>John 1:1 (New World Translation) In the beginning was the Word, and the Word was with God, and **the Word was a god**.
+>John 1:1 (New World Translation) In the beginning was the Word, and the Word was with God, and **the Word was a god**.
 
 vs.
 
@@ -36,7 +36,7 @@ vs.
 
 This is a quote from the Bible translation used from cult known as Jehovah's Witnesses. The Jehovah's Witnesses uses all the same terminology that Christians do: Jesus, God, Spirit. But their version means something completely different. The prime example is that, to them, Jesus is not god.
 
->>John 8:58 (New World Translation) Jesus said to them: “Most truly I say to you, before Abraham came into existence, **I have been.**”
+>John 8:58 (New World Translation) Jesus said to them: “Most truly I say to you, before Abraham came into existence, **I have been.**”
 
 vs.
 
@@ -58,7 +58,7 @@ And this is what the orthodox, catholic church appeals to: the original language
 
 Knowing ancient language is a gift, blessing and privilege by God. 1% of the population know it. Here is the real blessing: because ancient language knowledge is such a privilege, God has sought it right and good through his blessing and provision to translate the Bible into every language of the world. In many times, when a language did not have a written language, the Bible was translated to provide a written language for those people. Why?
 
->>they may worship him in an acceptable manner, and through patience and comfort of the Scriptures may have hope
+>they may worship him in an acceptable manner, and through patience and comfort of the Scriptures may have hope
 
 God sought it to gospel of his Son that his word would be preserved through out all time--even prior to the invention of the printing press or the Internet--to bring it to every person in the world today and unto the future until Christ returns. That is such an extraordinary feat that it must be of God. Look at church history--mankind will always disagree. But God preserves. Blessed be his name.
 

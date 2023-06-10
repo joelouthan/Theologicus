@@ -20,9 +20,9 @@ I have written these devotions before with just the text and some starter questi
 
 As for leading your family through devotions, don't think of outright preaching and teaching. Instead, we want to generate discussion. Do not worry about being able to teach. Instead, pray, read the text and think of good questions to spark conversations. In my experience, our best devotions are always the ones that are driven to the finish by the kids and not by me. God through his Word provides the topics. Me? I simply read the Bible and ask the questions. How easy is that?
 
->>"I sometimes wonder, my dear friends, if one of the questions—if one of the first questions—God would ask me at the day of judgment, as He assesses my life, is not going to be, ‘How well did you preach?’ but ‘What kind of father were you?’ ‘How faithful were you to the charges I gave you?’. That’s your first ministry, isn’t it? Not to be using your gifts here and there, in the church, here and there. Thank God that you do. But if you do that at the expense of your children’s spiritual well-being, you need to be absolutely convinced in your soul that you can do no other than leave your husband, wife, or children, ‘for the sake of the gospel’.”
->>
->>Sinclair Ferguson. [What Kind of Instrument Are You (in Relationship to Young People)?](http://www.sermonaudio.com/playpopup.asp?SID=3912953483). (_formerly Sin: A Dominion Ended: Romans_). Audio.
+>"I sometimes wonder, my dear friends, if one of the questions—if one of the first questions—God would ask me at the day of judgment, as He assesses my life, is not going to be, ‘How well did you preach?’ but ‘What kind of father were you?’ ‘How faithful were you to the charges I gave you?’. That’s your first ministry, isn’t it? Not to be using your gifts here and there, in the church, here and there. Thank God that you do. But if you do that at the expense of your children’s spiritual well-being, you need to be absolutely convinced in your soul that you can do no other than leave your husband, wife, or children, ‘for the sake of the gospel’.”
+>
+>Sinclair Ferguson. [What Kind of Instrument Are You (in Relationship to Young People)?](http://www.sermonaudio.com/playpopup.asp?SID=3912953483). (_formerly Sin: A Dominion Ended: Romans_). Audio.
 
 ## The Recommendations
 
@@ -89,7 +89,7 @@ Sheer luck (aka sheer blessing from God) that I ran into a small incomplete set 
 
 From the article:
 
->>In his influential work Israel and Prophecy, written a year after the 1967 war, and still in print, Hendriksen criticized the view, held by dispensationalists and Christian Zionists, that the Bible prophesies the return and restoration of the Jews to the land of Israel.[^1] Dispensationalist pastor Barry Horner describes Hendriksen's work as "a classic representation of replacement theology".[^2]
+>In his influential work Israel and Prophecy, written a year after the 1967 war, and still in print, Hendriksen criticized the view, held by dispensationalists and Christian Zionists, that the Bible prophesies the return and restoration of the Jews to the land of Israel.[^1] Dispensationalist pastor Barry Horner describes Hendriksen's work as "a classic representation of replacement theology".[^2]
 
 Make no bones about it: it grieves me to the core that Dispensationalism is the auto-default eschatology of too many American Evangelical churches--including every single church I have ever attended in my life with the exception of the church I attend now. It saddens and frustrates me that I was born into a church that automatically taught a doctrine that was born within the 20th century. But, as with anything, theology and doctrine are to be taught and never assumed.
 

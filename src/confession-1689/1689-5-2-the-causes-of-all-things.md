@@ -8,7 +8,7 @@
 
 ## The Chapter
 
->>Although in relation to the foreknowledge and decree of God, the first cause, all things come to pass immutably and infallibly; so that there is not anything befalls any by chance, or without his providence; yet by the same providence he ordereth them to fall out according to the nature of second causes, either necessarily, freely, or contingently.
+>Although in relation to the foreknowledge and decree of God, the first cause, all things come to pass immutably and infallibly; so that there is not anything befalls any by chance, or without his providence; yet by the same providence he ordereth them to fall out according to the nature of second causes, either necessarily, freely, or contingently.
 
 ## The Confession
 
@@ -44,9 +44,9 @@ What if something he does and all down the line, sin happens? Answer the direct 
 
 What is really going to blow your mind is that it is the God of the Universe who created not just the material but the situation and the circumstance that crucified our beloved Messiah:
 
->>So completely was Jesus bent upon saving sinners by the sacrifice of himself, he created the tree upon which he was to die, and nurtured from infancy the men who were to nail him to the accursed wood.
->>
->>Octavius Winslow. The Life of Christ. 1855.
+>So completely was Jesus bent upon saving sinners by the sacrifice of himself, he created the tree upon which he was to die, and nurtured from infancy the men who were to nail him to the accursed wood.
+>
+>Octavius Winslow. The Life of Christ. 1855.
 
 ## The Resources
 

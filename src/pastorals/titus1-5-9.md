@@ -79,13 +79,13 @@ If in your own church, you are close enough to see the fire and the smoke. In so
 
 From my commentary on 1 Timothy 3:2:
 
->>I read this not as strictly "must be married" and to wholesale reject any single, divorced, or widowed men.
->>
->>You know how I would read this in light of the entire Bible?
->>
->>1 Corinthians 6:18 (CSB) Flee sexual immorality! Every other sin a person commits is outside the body, but the person who is sexually immoral sins against his own body.
->>
->>An elder is one who flees from sexual sin. Single. Divorced. Married. Widowed. It matters not. If you are bought with the blood of Christ, we have the power of the Spirit to flee all sin including sexual sin.
+>I read this not as strictly "must be married" and to wholesale reject any single, divorced, or widowed men.
+>
+>You know how I would read this in light of the entire Bible?
+>
+>1 Corinthians 6:18 (CSB) Flee sexual immorality! Every other sin a person commits is outside the body, but the person who is sexually immoral sins against his own body.
+>
+>An elder is one who flees from sexual sin. Single. Divorced. Married. Widowed. It matters not. If you are bought with the blood of Christ, we have the power of the Spirit to flee all sin including sexual sin.
 
 If your church wants to restrict the office of elder/overseer to married men only, your church is free to abide by the letter of the law. But in light of the Bible, and I hope I am abiding in the spirit of the law, this would not prohibit qualified men from serving as elders of a church.
 
@@ -113,7 +113,7 @@ This is a hill I am certainly not willing to die upon.  I have bigger hills to d
 
 From my [commentary](/gospel-nt/2021-03-17-gospel-nt-1-timothy/#the-husband-of-one-wife/#must-manage-his-own-household-competently-and-have-his-children-under-control-with-all-dignity-if-anyone-does-not-know-how-to-manage-his-own-household-how-will-he-take-care-of-gods-church) on 1 Timothy 3:4:
 
->> Take a walk through your home, budget, and the general "adulting" things that need to get done: are they getting done?
+> Take a walk through your home, budget, and the general "adulting" things that need to get done: are they getting done?
 
 Are we talking about, "Are your adult kids saved by God and faithful to Him alone--never backsliding nor doubting nor deconstructing?" I don't think so.
 

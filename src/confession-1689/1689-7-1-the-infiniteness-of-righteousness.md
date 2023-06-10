@@ -12,7 +12,7 @@
 
 ## The Chapter
 
->>The distance between God and the creature is so great, that although reasonable creatures do owe obedience to him as their creator, yet they could never have attained the reward of life but by some voluntary condescension on God's part, which he hath been pleased to express by way of covenant.
+>The distance between God and the creature is so great, that although reasonable creatures do owe obedience to him as their creator, yet they could never have attained the reward of life but by some voluntary condescension on God's part, which he hath been pleased to express by way of covenant.
 
 ## The Confession
 

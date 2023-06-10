@@ -54,7 +54,7 @@ Some might push back, for whatever reasons, "Wouldn't some people take advantage
 
 God is not calling us to have your stuff together so you can be ready to be blessing. Life is hard and we go through hard things. But God has given His Son and His Spirit and each other to get through this life together so he can bring us all the way home.
 
->>How would you describe your life right at this moment? Like the sadness of Naomi, the desperation of Ruth or this stability of Boaz? Or something else entirely?
+>How would you describe your life right at this moment? Like the sadness of Naomi, the desperation of Ruth or this stability of Boaz? Or something else entirely?
 
 ><sup>2</sup> Ruth the Moabitess asked Naomi, “Will you let me go into the fields and gather fallen grain behind someone with whom I find favor?” Naomi answered her, “Go ahead, my daughter.”
 
@@ -104,7 +104,7 @@ What makes this so incredible is that all riches and power and wealth belong God
 
 There are going to be times where we will be so desperate for God and yet God not for one second is going to without not one drop of his grace, goodness, loving-kindness, and mercy for his children.
 
->>Think of a time this week where God has been gracious, kind, and merciful to you. Give him praise for he is good.
+>Think of a time this week where God has been gracious, kind, and merciful to you. Give him praise for he is good.
 
 ><sup>3</sup> So Ruth left and entered the field to gather grain behind the harvesters. She happened to be in the portion of the field belonging to Boaz, who was from Elimelech’s family.
 
@@ -134,7 +134,7 @@ God gives us science and technology. Praise be to God our work is not as hard as
 
 But work is just part of God's provision. Don't we all know this? The right job at the right company can make all the difference. And I know some people here--myself included--pray for such jobs. Here we see that Ruth "so happened" to work in the field belonging to someone in her father-in-law's family. That is not chance. That is God.
 
->>Think of a time this week where God has provided for you. Give him praise for he is good.
+>Think of a time this week where God has provided for you. Give him praise for he is good.
 
 ><sup>4</sup> Later, when Boaz arrived from Bethlehem, he said to the harvesters, “The LORD be with you.” “The LORD bless you,” they replied.
 
@@ -158,7 +158,7 @@ And here in this text, the power of an employer blessing his workers and the wor
 
 Of all the passages concerning our employment, I am first reminded of Philemon. Read the short letter of Philemon. Paul makes the appeal to Philemon not only to not punish the runaway slave, Onesimus, but to receive him as a brother and to receive him as he would Paul. Paul is asking Philemon to bless Onesimus--despite the fact Onesimus owes him a great amount of debt and working to pay that debt off. Paul is exhorting Philemon to bless his employee.
 
->>How have you been verbally blessed by others? Has it ever happened outside of church?
+>How have you been verbally blessed by others? Has it ever happened outside of church?
 
 ><sup>5-6</sup> Boaz asked his servant who was in charge of the harvesters, “Whose young woman is this?” The servant answered, “She is the young Moabite woman who returned with Naomi from the territory of Moab.
 
@@ -178,7 +178,7 @@ I was born in 1975. End of the Vietnam War. Those two historical moments in Amer
 
 Both of them got married and moved to the States. They had me and my brother. Then my parents got divorced when I was 5 and I haven't seen my mom since then. My dad only gotten more wicked since his drinking and driving days was unfit to raise me and my brother. So we got to be raised by my dad's mom--my grandmother in Haltom City, Texas, where she faithfully attended Bethesda Community Church. And all of that, the good and the evil, was the will of God in my life. And every decision I made, good and evil, was the will of God in my life.
 
->>Take the time to trace your life and see how God has been at work so that "you might seek God, and perhaps you might reach out and find him, though he is not far from each one of us."
+>Take the time to trace your life and see how God has been at work so that "you might seek God, and perhaps you might reach out and find him, though he is not far from each one of us."
 ## The Resources
 
 <p style="clear:both;">

@@ -119,9 +119,9 @@ But if the grace of God through Jesus Christ multiplied exponentially over our s
 
 Do we get to sin more? No! Sin has been put to death because Christ has died for our sins as sinners! We are dead to sin and alive to God! Death has died and Christ is alive! We are divorced from death and in union with Christ, therefore, worship Christ!
 
->>Let us muse upon the fact that Jesus was conducted without the gates of the city. It was the common place of death. That little rising ground, which perhaps was called Golgotha, the place of a skull, from its somewhat resembling the crown of a man's skull, was the common place of execution. It was one of Death's castles; here he stored his gloomiest trophies; he was the grim lord of that stronghold. Our great hero, the destroyer of Death, bearded the lion in his den, slew the monster in his own castle, and dragged the dragon captive from his own den. Methinks Death thought it a splendid triumph when he saw the Master impaled and bleeding in the dominions of destruction; little did he know that the grave was to be rifled, and himself destroyed, by that crucified Son of man.
->>
->>Charles Spurgeon. The Procession of Sorrow. [Sermon 497](https://archive.spurgeon.org/sermons/0497.php). March 1, 1863.
+>Let us muse upon the fact that Jesus was conducted without the gates of the city. It was the common place of death. That little rising ground, which perhaps was called Golgotha, the place of a skull, from its somewhat resembling the crown of a man's skull, was the common place of execution. It was one of Death's castles; here he stored his gloomiest trophies; he was the grim lord of that stronghold. Our great hero, the destroyer of Death, bearded the lion in his den, slew the monster in his own castle, and dragged the dragon captive from his own den. Methinks Death thought it a splendid triumph when he saw the Master impaled and bleeding in the dominions of destruction; little did he know that the grave was to be rifled, and himself destroyed, by that crucified Son of man.
+>
+>Charles Spurgeon. The Procession of Sorrow. [Sermon 497](https://archive.spurgeon.org/sermons/0497.php). March 1, 1863.
 
 And we live this life unto Christ and residual sin from within our sick yet recovering hearts still surfaces and takes actions, there is no despair. For Christ Almighty saves our wretched self from our bodies of death.
 
@@ -199,21 +199,21 @@ Who can separate us from the love of Christ? Can affliction or distress or perse
 
 As it is written: Because of you we are being put to death all day long; we are counted as sheep to be slaughtered. No, in all these things we are more than conquerors through him who loved us.
 
->>"Through him that loved us." Here is the great secret of our victory, the source of our triumph. Behold the mystery explained, how a weak, timid believer, often running from his own shadow, is yet "more than a conqueror" over his many and mighty foes. 
->>
->>To Christ who loved him, who gave himself for him, who died in his stead, and lives to intercede on his behalf, the glory of the triumph is ascribed. And this is the song he chants, "Thanks be to God which gives us the victory through our Lord Jesus Christ." 
->>
->>Through the conquest which he himself obtained, through the grace which he imparts, through the strength which he inspires, through the intercession which he presents, in all our "tribulation, and distress, and persecution, and famine, and nakedness, and peril, and sword" we are "more than conquerors." Accounted though we are as "sheep for the slaughter," yet our Great Shepherd, Himself slain for the sheep, guides his flock, and has declared that no one shall pluck them out of his hand. 
->>
->>We are more than conquerors through his grace who loved us in the very circumstances that threaten to overwhelm. Fear not, then, the darkest cloud, nor the proudest waves, nor the deepest needs- in these very things you shall, through Christ, prove triumphant. Nor shrink from the battle with the "last enemy." Death received a death-wound when Christ died. You face a conquered foe. He stands at your side a crownless king, and waving a broken scepter. Your death shall be another victory over the believer's last foe. Planting your foot of faith upon his prostrate neck, you shall spring into glory, more than a conqueror, through him that loved you. Thus passing to glory in triumph, you shall go to swell the ranks of the "noble army of martyrs"- those Christian heroes of whom it is recorded, "THEY OVERCAME HIM BY THE BLOOD Of THE LAMB."
->>
->>Octavius Winslow. No Condemnation in Christ Jesus. 229.
+>"Through him that loved us." Here is the great secret of our victory, the source of our triumph. Behold the mystery explained, how a weak, timid believer, often running from his own shadow, is yet "more than a conqueror" over his many and mighty foes. 
+>
+>To Christ who loved him, who gave himself for him, who died in his stead, and lives to intercede on his behalf, the glory of the triumph is ascribed. And this is the song he chants, "Thanks be to God which gives us the victory through our Lord Jesus Christ." 
+>
+>Through the conquest which he himself obtained, through the grace which he imparts, through the strength which he inspires, through the intercession which he presents, in all our "tribulation, and distress, and persecution, and famine, and nakedness, and peril, and sword" we are "more than conquerors." Accounted though we are as "sheep for the slaughter," yet our Great Shepherd, Himself slain for the sheep, guides his flock, and has declared that no one shall pluck them out of his hand. 
+>
+>We are more than conquerors through his grace who loved us in the very circumstances that threaten to overwhelm. Fear not, then, the darkest cloud, nor the proudest waves, nor the deepest needs- in these very things you shall, through Christ, prove triumphant. Nor shrink from the battle with the "last enemy." Death received a death-wound when Christ died. You face a conquered foe. He stands at your side a crownless king, and waving a broken scepter. Your death shall be another victory over the believer's last foe. Planting your foot of faith upon his prostrate neck, you shall spring into glory, more than a conqueror, through him that loved you. Thus passing to glory in triumph, you shall go to swell the ranks of the "noble army of martyrs"- those Christian heroes of whom it is recorded, "THEY OVERCAME HIM BY THE BLOOD Of THE LAMB."
+>
+>Octavius Winslow. No Condemnation in Christ Jesus. 229.
 
 Death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord. 
 
->>The gulf between the unbeliever and the ones with the smallest faith is abysmally infinite. However, there is no gap between the ones with the smallest faith and the arms and the heart of the loving Savior.
->>
->>Charles Spurgeon
+>The gulf between the unbeliever and the ones with the smallest faith is abysmally infinite. However, there is no gap between the ones with the smallest faith and the arms and the heart of the loving Savior.
+>
+>Charles Spurgeon
 
 I have one thing to tell you on this day: Worship God!
 
@@ -261,16 +261,16 @@ Feel free to worship our great King!
 
 Call upon the name of the Lord. Be saved by God! Worship his Majesty!
 
->>Majesty, worship His Majesty.  
->>Unto Jesus be all glory, honor and praise!  
->>Majesty, Kingdom Authority,  
->>Flow from His throne, unto His own  
->>His anthem raise!  
->>  
->>So exalt, lift up on high the Name of Jesus!  
->>Magnify, come glorify, Christ Jesus the King.  
->>Majesty, worship His Majesty;  
->>Jesus who died, now glorified, King of all kings! [^hayford]
+>Majesty, worship His Majesty.  
+>Unto Jesus be all glory, honor and praise!  
+>Majesty, Kingdom Authority,  
+>Flow from His throne, unto His own  
+>His anthem raise!  
+>  
+>So exalt, lift up on high the Name of Jesus!  
+>Magnify, come glorify, Christ Jesus the King.  
+>Majesty, worship His Majesty;  
+>Jesus who died, now glorified, King of all kings! [^hayford]
 
 [^hayford]: Jack Hayford. Majesty.
 
@@ -288,16 +288,16 @@ God has made us a part of the greatest plan of redemption. We have sin much but 
 
 Adopted children of God, worship His holy name!
 
->>He is exalted the King is exalted on High  
->>I will praise Him  
->>He is exalted forever exalted  
->>And I will praise His name  
->>  
->>He is the Lord  
->>Forever His truth shall reign  
->>Heaven and Earth  
->>Rejoice in His holy name  
->>He is exalted the King is exalted on high [^paris]
+>He is exalted the King is exalted on High  
+>I will praise Him  
+>He is exalted forever exalted  
+>And I will praise His name  
+>  
+>He is the Lord  
+>Forever His truth shall reign  
+>Heaven and Earth  
+>Rejoice in His holy name  
+>He is exalted the King is exalted on high [^paris]
 
 [^paris]: Twila Paris. He is Exalted.
 

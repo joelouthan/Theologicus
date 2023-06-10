@@ -10,7 +10,7 @@
 
 ## The Chapter
 
->>The Holy Scripture is the only sufficient, certain, and infallible rule of all saving knowledge, faith, and obedience, although the light of nature, and the works of creation and providence do so far manifest the goodness, wisdom, and power of God, as to leave men inexcusable; yet are they not sufficient to give that knowledge of God and his will which is necessary unto salvation. Therefore it pleased the Lord at sundry times and in divers manners to reveal himself, and to declare that his will unto his church; and afterward for the better preserving and propagating of the truth, and for the more sure establishment and comfort of the church against the corruption of the flesh, and the malice of Satan, and of the world, to commit the same wholly unto writing; which maketh the Holy Scriptures to be most necessary, those former ways of God's revealing his will unto his people being now ceased.
+>The Holy Scripture is the only sufficient, certain, and infallible rule of all saving knowledge, faith, and obedience, although the light of nature, and the works of creation and providence do so far manifest the goodness, wisdom, and power of God, as to leave men inexcusable; yet are they not sufficient to give that knowledge of God and his will which is necessary unto salvation. Therefore it pleased the Lord at sundry times and in divers manners to reveal himself, and to declare that his will unto his church; and afterward for the better preserving and propagating of the truth, and for the more sure establishment and comfort of the church against the corruption of the flesh, and the malice of Satan, and of the world, to commit the same wholly unto writing; which maketh the Holy Scriptures to be most necessary, those former ways of God's revealing his will unto his people being now ceased.
 
 ## The Confession
 
@@ -32,13 +32,13 @@ Lets walk through the points:
 
 In an CNN Red Chair Interview, Richard Dawkins was asked what would he say if he met God after his death:
 
->>What's going to happen when I die, if I met god in the unlikely event after I died, I think the first thing I would say is well, which one are you? Are you Zeus? Are you Thor? Are you Baal? Are you Mithras? Are you Yahweh? Which god are you?
+>What's going to happen when I die, if I met god in the unlikely event after I died, I think the first thing I would say is well, which one are you? Are you Zeus? Are you Thor? Are you Baal? Are you Mithras? Are you Yahweh? Which god are you?
 
 Which is a bit peculiar, to say the least. But that bit of banter with the Holy Almighty God is leading up to what Dawkins really wants to ask:
 
->>And why did you take such great pains to conceal yourself and to hide away from us? 
->>
->> Richard Dawkins. CNN Red Chair Interview. September 5, 2012. [CNN](https://www.cnn.com/videos/living/2012/09/05/orig-red-chair-richard-dawkins.cnn)
+>And why did you take such great pains to conceal yourself and to hide away from us? 
+>
+> Richard Dawkins. CNN Red Chair Interview. September 5, 2012. [CNN](https://www.cnn.com/videos/living/2012/09/05/orig-red-chair-richard-dawkins.cnn)
 
 But God didn't. Not even close. I would even give Mr. Dawkins a fair shake if Christ came in as a nobody and left as a nobody and then all of sudden myth after myths started coming up about some son of a carpenter in Palestinian Middle East some 2000 years aog.
 

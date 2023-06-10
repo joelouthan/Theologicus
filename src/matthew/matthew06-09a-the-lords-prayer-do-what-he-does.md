@@ -82,7 +82,7 @@ I don't care how you get it done. If you need to set ten reminders on your phone
 
 If you stop praying for a while, get back on the horse. Don't grieve over not praying. Just pray.
 
->>“I would rather teach one man to pray than ten men to preach. - Charles Spurgeon
+>“I would rather teach one man to pray than ten men to preach. - Charles Spurgeon
 
 Some of y'all act like prayer doesn't work.
 

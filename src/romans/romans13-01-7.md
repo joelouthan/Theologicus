@@ -37,9 +37,9 @@ God has placed President Joe Biden over you.
 
 Saying, "Well, he ain't my president" is a sin against God. God has placed these leaders over you to govern you. If we get an incompetent and wicked ruler like we have in Trump and Biden, then that is reflective of the sins of the people of the nation. On Romans 13, John Calvin says this:
 
->>For since a wicked prince is the Lord’s scourge to punish the sins of the people, let us remember, that it happens through our fault that this excellent blessing of God is turned into a curse.
->>
->>John Calvin. Commentary on Romans 13:1-7. 1540. Translated by John Owen. 1850. 1: 1.
+>For since a wicked prince is the Lord’s scourge to punish the sins of the people, let us remember, that it happens through our fault that this excellent blessing of God is turned into a curse.
+>
+>John Calvin. Commentary on Romans 13:1-7. 1540. Translated by John Owen. 1850. 1: 1.
 
 Want to know how God judges a nation? Look at their leaders.
 

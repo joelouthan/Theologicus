@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>Moreover, man having brought himself under the curse of the law by his fall, it pleased the Lord to make a covenant of grace, wherein he freely offereth unto sinners life and salvation by Jesus Christ, requiring of them faith in him, that they may be saved; and promising to give unto all those that are ordained unto eternal life, his Holy Spirit, to make them willing and able to believe.
+>Moreover, man having brought himself under the curse of the law by his fall, it pleased the Lord to make a covenant of grace, wherein he freely offereth unto sinners life and salvation by Jesus Christ, requiring of them faith in him, that they may be saved; and promising to give unto all those that are ordained unto eternal life, his Holy Spirit, to make them willing and able to believe.
 
 ## The Confession
 
@@ -36,9 +36,9 @@ And yet, your loved ones who give you gifts don't and can't love you as much God
 
 >Psalm 49:15 (CSB) But God will redeem me from the power of Sheol, for he will take me. *Selah*
 
->>In Christ, you have given me so much that heaven and earth could give me no more.
->>
->>The Valley of Vision.
+>In Christ, you have given me so much that heaven and earth could give me no more.
+>
+>The Valley of Vision.
 
 ### and promising to give unto all those that are ordained unto eternal life, His Holy Spirit, to make them willing and able to believe
 

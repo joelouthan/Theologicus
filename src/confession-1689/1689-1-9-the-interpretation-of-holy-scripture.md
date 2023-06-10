@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>The infallible rule of interpretation of Scripture is the Scripture itself; and therefore when there is a question about the true and full sense of any Scripture (which is not manifold, but one), it must be searched by other places that speak more clearly.
+>The infallible rule of interpretation of Scripture is the Scripture itself; and therefore when there is a question about the true and full sense of any Scripture (which is not manifold, but one), it must be searched by other places that speak more clearly.
 
 ## The Confession
 
@@ -26,7 +26,7 @@ To take standalone Scriptures, out of context, and try to teach or preach for th
 
 Now biblicism might sound awesome. Here is one definition:
 
->>adherence to the letter of the Bible.
+>adherence to the letter of the Bible.
 
 Man, I want to do that. But when we do that, without consider what the Bible teaches as whole, we will always go off in error, if not heresy, if not creating cults and sects that twist the Scriptures concerning the grace of our God.
 
@@ -48,7 +48,7 @@ And
 
 Calvin says this:
 
->>The finite mind cannot **fully** comprehend the infinite.
+>The finite mind cannot **fully** comprehend the infinite.
 
 Watch what he says: the limit of our minds cannot fully wrap around the infinite God. We may not be able to fully know God because He is infinite but because he has given us his Son, Christ Jesus, we are able to **truly** know God. For:
 

@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>In this divine and infinite Being there are three subsistences, the Father, the Word or Son, and Holy Spirit, of one substance, power, and eternity, each having the whole divine essence, yet the essence undivided: the Father is of none, neither begotten nor proceeding; the Son is eternally begotten of the Father; the Holy Spirit proceeding from the Father and the Son; all infinite, without beginning, therefore but one God, who is not to be divided in nature and being, but distinguished by several peculiar relative properties and personal relations; which doctrine of the Trinity is the foundation of all our communion with God, and comfortable dependence on him.
+>In this divine and infinite Being there are three subsistences, the Father, the Word or Son, and Holy Spirit, of one substance, power, and eternity, each having the whole divine essence, yet the essence undivided: the Father is of none, neither begotten nor proceeding; the Son is eternally begotten of the Father; the Holy Spirit proceeding from the Father and the Son; all infinite, without beginning, therefore but one God, who is not to be divided in nature and being, but distinguished by several peculiar relative properties and personal relations; which doctrine of the Trinity is the foundation of all our communion with God, and comfortable dependence on him.
 
 ## The Confession
 
@@ -84,7 +84,7 @@ What about one substance?
 
 I think the best way of describing this is loosely quoting Augustine:
 
->>With three people in a room, you have three minds, souls, hearts, spirits and wills. With the Triune God in the room, you still have three persons but you would only have one mind, one soul, one heart, one Spirit, and one will.
+>With three people in a room, you have three minds, souls, hearts, spirits and wills. With the Triune God in the room, you still have three persons but you would only have one mind, one soul, one heart, one Spirit, and one will.
 
 That description alone transcends God from us. God is so unlike us--that even when we are like God in that we love, give, serve, and create and we can do all of these things that reflects his image, what makes God apart from everything else in all of creation is the fact that God is three persons yet with one undivided essence.
 
@@ -100,7 +100,7 @@ The Doctrine of the Trinity is such a mystery. The moment we try to demystify it
 
 Every Lord's Day, in my church, [Reforming Truth Church (Lexington, KY)](https://reformingtruth.church) will conclude our Communion with this utterly Triune declaration:
 
->>Glory to the Father, and to the Son, and to the Holy Spirit, As it was in the beginning, is now, and ever shall be world without end. Amen.
+>Glory to the Father, and to the Son, and to the Holy Spirit, As it was in the beginning, is now, and ever shall be world without end. Amen.
 
 After singing praises, the hearing of God's law, the Confession of our Sins, the Assurance of Pardon, the Catechism, the Prayers, with the preaching of the Gospel and to take the wine and the bread--our little church boldly and loudly declares this fact: that God is Triune and He is Glorious and He is Eternal! Amen!
 
@@ -114,7 +114,7 @@ The Father, the Son, and the Spirit are three distinct subsistences yet are of o
 
 The Nicene Creed states it as this:
 
->>true God from true God
+>true God from true God
 
 And look at Scripture to explain this:
 

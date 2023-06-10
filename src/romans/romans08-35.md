@@ -82,9 +82,9 @@ Peter even says that Scripture is hard to understand, so the leader of the Apost
 
 And there are some of you who feel your faith is so little. You even know the words of Jesus when he keeps telling his disciples “Oh, ye of little faith.” But do you not know that even the saints with the tiniest faiths can move a mountain, see people healed and saved and made whole. For you see, it is not size nor depth nor quantity of the faith that you possess but rather the *object* of your faith that is Christ Jesus, who alone is mighty to save. Nineteenth-century Baptist pastor, Charles Spurgeon once said:
 
->>The gulf between the unbeliever and the ones with the smallest faith is abysmally infinite. However, there is no gap between the ones with the smallest faith and the arms and the heart of the loving Savior.
->>
->>Charles Spurgeon
+>The gulf between the unbeliever and the ones with the smallest faith is abysmally infinite. However, there is no gap between the ones with the smallest faith and the arms and the heart of the loving Savior.
+>
+>Charles Spurgeon
 
 See how Christ did not correct nor rebuked the father who cried out, “**I believe! Help my unbelief!**”. Christ only responded in love and healed his son.[^10]
 

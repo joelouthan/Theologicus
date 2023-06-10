@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>God hath endued the will of man with that natural liberty and power of acting upon choice, that it is neither forced, nor by any necessity of nature determined to do good or evil.
+>God hath endued the will of man with that natural liberty and power of acting upon choice, that it is neither forced, nor by any necessity of nature determined to do good or evil.
 
 ## The Confession
 

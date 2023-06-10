@@ -29,7 +29,7 @@
 
 ## The Chapter
 
->>All things in Scripture are not alike plain in themselves, nor alike clear unto all; yet those things which are necessary to be known, believed, and observed, for salvation, are so clearly propounded and opened in some place of Scripture or other, that not only the learned, but the unlearned, in a due use of the ordinary means, may attain unto a sufficient understanding of them.
+>All things in Scripture are not alike plain in themselves, nor alike clear unto all; yet those things which are necessary to be known, believed, and observed, for salvation, are so clearly propounded and opened in some place of Scripture or other, that not only the learned, but the unlearned, in a due use of the ordinary means, may attain unto a sufficient understanding of them.
 
 ## The Confession
 
@@ -83,7 +83,7 @@ It does say:
 
 But it also says:
 
->>Hebrews 5:11–6:3 (CSB) We have a great deal to say about this, and it is difficult to explain, since you have become too lazy to understand. Although by this time you ought to be teachers, you need someone to teach you the basic principles of God’s revelation again. You need milk, not solid food. Now everyone who lives on milk is inexperienced with the message about righteousness, because he is an infant. But solid food is for the mature—for those whose senses have been trained to distinguish between good and evil. Therefore, let us leave the elementary teaching about Christ and go on to maturity, not laying again a foundation of repentance from dead works, faith in God, teaching about ritual washings, laying on of hands, the resurrection of the dead, and eternal judgment. And we will do this if God permits.
+>Hebrews 5:11–6:3 (CSB) We have a great deal to say about this, and it is difficult to explain, since you have become too lazy to understand. Although by this time you ought to be teachers, you need someone to teach you the basic principles of God’s revelation again. You need milk, not solid food. Now everyone who lives on milk is inexperienced with the message about righteousness, because he is an infant. But solid food is for the mature—for those whose senses have been trained to distinguish between good and evil. Therefore, let us leave the elementary teaching about Christ and go on to maturity, not laying again a foundation of repentance from dead works, faith in God, teaching about ritual washings, laying on of hands, the resurrection of the dead, and eternal judgment. And we will do this if God permits.
 
 We assume that we are mature and that can we demystified the mysteries of God. I am not saying don't study. Do study. But do so with your brothers and sisters. Dig deep into the salvation of God and his great grace and mercy and love for us.
 

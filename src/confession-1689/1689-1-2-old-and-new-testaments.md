@@ -8,7 +8,7 @@
 
 ## The Chapter
 
->>Under the name of Holy Scripture, or the Word of God written, are now contained all the books of the Old and New Testaments, which are these:
+>Under the name of Holy Scripture, or the Word of God written, are now contained all the books of the Old and New Testaments, which are these:
 
 OF THE OLD TESTAMENT: Genesis, Exodus, Leviticus, Numbers, Deuteronomy, Joshua, Judges, Ruth, I Samuel, II Samuel, I Kings, II Kings, I Chronicles, II Chronicles, Ezra, Nehemiah, Esther, Job, Psalms, Proverbs, Ecclesiastes, The Song of Solomen, Isaiah, Jeremiah, Lamentations,Ezekiel, Daniel, Hosea, Joel, Amos, Obadiah, Jonah, Micah, Nahum, Habakkuk, Zephaniah, Haggai, Zechariah, Malachi
 

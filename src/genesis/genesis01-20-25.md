@@ -22,15 +22,15 @@ To believe in God, to trust in Christ, and to take Him at His word, by that very
 
 That is why the Apostles' Creed declares from the start:
 
->>I believe in God, the Father almighty,
->>maker of heaven and earth;
+>I believe in God, the Father almighty,
+>maker of heaven and earth;
 
 And the Nicene Creed from the beginning also declares:
 
->>We believe in one God,
->>the Father, the Almighty,
->>maker of heaven and earth,
->>of all that is, seen and unseen.
+>We believe in one God,
+>the Father, the Almighty,
+>maker of heaven and earth,
+>of all that is, seen and unseen.
 
 What I did not say that we are somehow forbidden to discover, research, and examine all of God's creation--we should because all knowledge, science, and truth comes from God. (1 Corinthians 3:18-23) We can debate how we got here, the number of years that mankind has existed, the number of years that creation itself has existed--there is contention and debate there and I know that those debates will always continue on this side of heaven.
 

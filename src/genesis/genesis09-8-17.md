@@ -69,9 +69,9 @@ In the goodness of Christ, there is only redemption. With that purchase, comes s
 
 Calvin mentions it this way:
 
->>That the memory of the deluge might not inspire them with new terrors, as often as the sky were covered with clouds, lest the earth should again be drowned; this source of anxiety is taken away.
->> 
->> John Calvin. Calvin's Commentaries (22 Vols.)
+>That the memory of the deluge might not inspire them with new terrors, as often as the sky were covered with clouds, lest the earth should again be drowned; this source of anxiety is taken away.
+> 
+> John Calvin. Calvin's Commentaries (22 Vols.)
 
 When Noah saw another rain cloud in the sky, he never had to second guess that another flood was coming and somehow he missed the calling of God. If you have been called by God and you love Christ and you want to obey his every word, you are under the protection of anything that is to come.
 

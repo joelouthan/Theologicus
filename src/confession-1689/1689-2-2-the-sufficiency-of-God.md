@@ -14,7 +14,7 @@
 
 ## The Chapter
 
->>God, having all life, glory, goodness, blessedness, in and of himself, is alone in and unto himself all-sufficient, not standing in need of any creature which he hath made, nor deriving any glory from them, but only manifesting his own glory in, by, unto, and upon them; he is the alone fountain of all being, of whom, through whom, and to whom are all things, and he hath most sovereign dominion over all creatures, to do by them, for them, or upon them, whatsoever himself pleaseth; in his sight all things are open and manifest, his knowledge is infinite, infallible, and independent upon the creature, so as nothing is to him contingent or uncertain; he is most holy in all his counsels, in all his works, and in all his commands; to him is due from angels and men, whatsoever worship, service, or obedience, as creatures they owe unto the Creator, and whatever he is further pleased to require of them.
+>God, having all life, glory, goodness, blessedness, in and of himself, is alone in and unto himself all-sufficient, not standing in need of any creature which he hath made, nor deriving any glory from them, but only manifesting his own glory in, by, unto, and upon them; he is the alone fountain of all being, of whom, through whom, and to whom are all things, and he hath most sovereign dominion over all creatures, to do by them, for them, or upon them, whatsoever himself pleaseth; in his sight all things are open and manifest, his knowledge is infinite, infallible, and independent upon the creature, so as nothing is to him contingent or uncertain; he is most holy in all his counsels, in all his works, and in all his commands; to him is due from angels and men, whatsoever worship, service, or obedience, as creatures they owe unto the Creator, and whatever he is further pleased to require of them.
 
 ## The Confession
 
@@ -38,9 +38,9 @@ And why is that. To speak about God is that we cannot simply stop at "he is good
 
 And if is filled with these things--all life, glory, goodness, blessedness--then what else does he need. He certainly did not need us. R.C. Sproul says it this way:
 
->>“God is alone in and unto himself all-sufficient. God is all-sufficient not only in Himself, but also for Himself, in the absolute sense, needing nothing from any creature. Christians often use expressions that are well meaning but that, if analyzed carefully, approach blasphemy. For example, “I’m so glad that so-and-so allowed God to work through him,” or “Thank you for letting God work through you.” Does this mean that God cannot work through me unless I allow Him? God does not need our permission to do anything, any more than He needed Paul’s permission to appear to him on the Damascus road, or Judas’ to use him for His greater glory, or that of Balaam’s ass to speak prophetically. God is self-sufficient, both in Himself and for Himself.”
->>
->>R. C. Sproul. Truths We Confess. 55-57.
+>“God is alone in and unto himself all-sufficient. God is all-sufficient not only in Himself, but also for Himself, in the absolute sense, needing nothing from any creature. Christians often use expressions that are well meaning but that, if analyzed carefully, approach blasphemy. For example, “I’m so glad that so-and-so allowed God to work through him,” or “Thank you for letting God work through you.” Does this mean that God cannot work through me unless I allow Him? God does not need our permission to do anything, any more than He needed Paul’s permission to appear to him on the Damascus road, or Judas’ to use him for His greater glory, or that of Balaam’s ass to speak prophetically. God is self-sufficient, both in Himself and for Himself.”
+>
+>R. C. Sproul. Truths We Confess. 55-57.
 
 ### all-sufficient, not standing in need of any creature which he hath made, nor deriving any glory from them
 
@@ -114,9 +114,9 @@ One particular book he threw at me was *God of the Possible: A Biblical Introduc
 
 ChatGPT defines Open Theism as:
 
->>Open Theism is a theological viewpoint that emphasizes the belief that God is omniscient, but that the future is not fully determined. This means that God is aware of all possible futures, but that the actions and decisions of human beings can ultimately determine which future comes to pass. This view contrasts with traditional theism, which holds that God has a specific plan for the future that will inevitably come to pass. Open Theism is also sometimes referred to as "free will theism."
->>
->>ChatGPT. "Could you explain to me Open Theism, please?". [https://chat.openai.com/chat](https://chat.openai.com/chat). January 9, 2023 version.
+>Open Theism is a theological viewpoint that emphasizes the belief that God is omniscient, but that the future is not fully determined. This means that God is aware of all possible futures, but that the actions and decisions of human beings can ultimately determine which future comes to pass. This view contrasts with traditional theism, which holds that God has a specific plan for the future that will inevitably come to pass. Open Theism is also sometimes referred to as "free will theism."
+>
+>ChatGPT. "Could you explain to me Open Theism, please?". [https://chat.openai.com/chat](https://chat.openai.com/chat). January 9, 2023 version.
 
 Mr. Boyd introduces the concept of Open Theism by reciting the story of King Hezekiah. The Lord appeared to King Hezekiah and simply stated:
 
@@ -174,7 +174,7 @@ The world and philosophies of this world and certain theologies like Open Theism
 
 But true, historical, orthodox, right, and proper Christian theology is this:
 
->>The Son of God became man so that men might become sons of God. [^packer-deathofdeath]
+>The Son of God became man so that men might become sons of God. [^packer-deathofdeath]
 
 [^packer-deathofdeath]: J.I. Packer. Essay, Introduction to John Owen's The Death of Death in the Death of Christ.
 

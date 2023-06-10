@@ -84,9 +84,9 @@ The fact that Christ appeared, showed up, arrive was a lock for our salvation. P
 
 God does this because God is kind and he is love and his affections were set upon us because He loved us "before the foundations of the world". 
 
->>“The best proof that He will never cease to love us lies in that He never began.”
->>
->>Geerhardus Vos. Redemptive History and Biblical Interpretation: The Shorter Writings of Geerhardus Vos.
+>“The best proof that He will never cease to love us lies in that He never began.”
+>
+>Geerhardus Vos. Redemptive History and Biblical Interpretation: The Shorter Writings of Geerhardus Vos.
 
 ><sup> 5b </sup> not by works of righteousness that we had done, but according to his mercy
 
@@ -117,7 +117,7 @@ God himself will dwell in the hearts of men. He does so by sending His Spirit to
 
 From there, you are saved. No second baptism of the Holy Spirit. No waiting around for the filling of the Holy Spirit. God from the day he saved you went to work in you to conform you to the image of his son: 
 
->>Romans 8:29 (CSB) For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
+>Romans 8:29 (CSB) For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
 
 >Zechariah 13:8–9 (CSB)  In the whole land— this is the LORD’s declaration— two-thirds will be cut off and die, but a third will be left in it.  
 

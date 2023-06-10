@@ -29,7 +29,7 @@
 
 ## The Chapter
 
->>It pleased God, in His eternal purpose, to choose and ordain the Lord Jesus, his only begotten Son, according to the covenant made between them both, to be the mediator between God and man; the prophet, priest, and king; head and saviour of the church, the heir of all things, and judge of the world; unto whom he did from all eternity give a people to be his seed and to be by him in time redeemed, called, justified, sanctified, and glorified.
+>It pleased God, in His eternal purpose, to choose and ordain the Lord Jesus, his only begotten Son, according to the covenant made between them both, to be the mediator between God and man; the prophet, priest, and king; head and saviour of the church, the heir of all things, and judge of the world; unto whom he did from all eternity give a people to be his seed and to be by him in time redeemed, called, justified, sanctified, and glorified.
 
 ## The Confession
 
@@ -183,11 +183,11 @@ For those who belongs to Christ, he judges them into his glory:
 
 >Revelation 21:5-8 (CSB) Then the one seated on the throne said, “Look, I am making everything new.” He also said, “Write, because these words are faithful and true.” Then he said to me, “It is done! I am the Alpha and the Omega, the beginning and the end. I will freely give to the thirsty from the spring of the water of life. The one who conquers will inherit these things, and I will be his God, and he will be my son. But the cowards, faithless, detestable, murderers, sexually immoral, sorcerers, idolaters, and all liars — their share will be in the lake that burns with fire and sulfur, which is the second death.”
 
->>Oh close and blessed union! Justified by God, accepted in Christ, condemnation there cannot be. I stand in the Divine presence as Joshua stood before the Lord, or as the woman stood before the Savior, charged, accused, guilty; but I am in the presence of him who, though now he sits upon the throne as my Judge, once hung upon the cross as my Savior. And, investing me with his own spotless robe, he proceeds to pronounce the sentence- "NO CONDEMNATION!"
->>
->>"These things write I unto you that your joy may be full."
->>
->>Octavius Winslow. No Condemnation in Christ Jesus. 191.
+>Oh close and blessed union! Justified by God, accepted in Christ, condemnation there cannot be. I stand in the Divine presence as Joshua stood before the Lord, or as the woman stood before the Savior, charged, accused, guilty; but I am in the presence of him who, though now he sits upon the throne as my Judge, once hung upon the cross as my Savior. And, investing me with his own spotless robe, he proceeds to pronounce the sentence- "NO CONDEMNATION!"
+>
+>"These things write I unto you that your joy may be full."
+>
+>Octavius Winslow. No Condemnation in Christ Jesus. 191.
 
 ## The Resources
 

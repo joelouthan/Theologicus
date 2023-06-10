@@ -89,9 +89,9 @@ You think your sins are too much. How about the sins of the world? Do you think 
 
 ><sup>3</sup> They forbid marriage and demand abstinence from foods that God created to be received with gratitude by those who believe and know the truth.
 
->>People want to be told what to do so badly that they'll listen to anyone.
->>
->>Don Draper, Mad Men
+>People want to be told what to do so badly that they'll listen to anyone.
+>
+>Don Draper, Mad Men
 
 Some of you will hear this and balk at it. Yet, most of you actually operate in this way--no different than the children of Israel.
 

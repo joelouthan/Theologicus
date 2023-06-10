@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>This office the Lord Jesus did most willingly undertake, which that he might discharge he was made under the law, and did perfectly fulfil it, and underwent the punishment due to us, which we should have borne and suffered, being made sin and a curse for us; enduring most grievous sorrows in his soul, and most painful sufferings in his body; was crucified, and died, and remained in the state of the dead, yet saw no corruption: on the third day he arose from the dead with the same body in which he suffered, with which he also ascended into heaven, and there sitteth at the right hand of his Father making intercession, and shall return to judge men and angels at the end of the world.
+>This office the Lord Jesus did most willingly undertake, which that he might discharge he was made under the law, and did perfectly fulfil it, and underwent the punishment due to us, which we should have borne and suffered, being made sin and a curse for us; enduring most grievous sorrows in his soul, and most painful sufferings in his body; was crucified, and died, and remained in the state of the dead, yet saw no corruption: on the third day he arose from the dead with the same body in which he suffered, with which he also ascended into heaven, and there sitteth at the right hand of his Father making intercession, and shall return to judge men and angels at the end of the world.
 
 ## The Confession
 
@@ -166,9 +166,9 @@ Make no mistake: since Christ has perfect saved his people from their sins, what
 
 What would it look like in your life if you knew that both Christ and the Spirit was in the next room, praying to the Father on your behalf?
 
->>If I could hear Christ praying for me in the next room, I would not fear a million enemies. Yet distance makes no difference. He is praying for me.
->>
->>Robert Murray M'Cheyne.
+>If I could hear Christ praying for me in the next room, I would not fear a million enemies. Yet distance makes no difference. He is praying for me.
+>
+>Robert Murray M'Cheyne.
 
 When we say loudly proclaim and celebrate that we have God, that is to be taken literally. God has us and by his grace alone, we get to behold the Risen God. Just as nothing will ever be broken in the Triune God, so too, nothing will ever be broken with us.
 

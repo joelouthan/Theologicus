@@ -135,7 +135,7 @@ Yours is to do nothing but sit still, know that He is God, that He is good, that
 
 The moment we listen to the lies of Satan, this world, and our old hearts that we have to earn God's sweet, precious love is is anti-Christ--because Christ did it all.
 
->>Zephaniah 3:17 (CSB) The LORD your God is among you, a warrior who saves. He will rejoice over you with gladness. He will be quiet in his love. He will delight in you with singing.”
+>Zephaniah 3:17 (CSB) The LORD your God is among you, a warrior who saves. He will rejoice over you with gladness. He will be quiet in his love. He will delight in you with singing.”
 
 Do you know because of Christ, the Triune God looks upon you and delights you in singing and rejoices over you in gladness--continuously forever without ceasing. 
 

@@ -36,15 +36,15 @@
 - 1996. A time before social media--it would be another 7 years before MySpace came online. The internet was just in its infancy. X Files show. Two FBI agents that investigated the paranormal. One major character, whom we didn't know the name of, was simply called the Cigarette Smoking Man.
 - Tell you how far the conspiracy theories on this show went:
 
->>"What I don't want to see is the Bills winning a Super Bowl. As long as >>I'm alive, that doesn't happen."
->>
->>An aide responded: "It is going to be tough, sir. Buffalo wants it bad."
->>
->>"So did the Soviets in '80," replied the CSM (who is called Cancer Man by >>Agent Mulder).
->>
->>"Are you saying you rigged the Olympic hockey game?" asks an aide.
->>
->>"What's the matter, don't you believe in miracles," replied CSM.[^xfiles]
+>"What I don't want to see is the Bills winning a Super Bowl. As long as >I'm alive, that doesn't happen."
+>
+>An aide responded: "It is going to be tough, sir. Buffalo wants it bad."
+>
+>"So did the Soviets in '80," replied the CSM (who is called Cancer Man by >Agent Mulder).
+>
+>"Are you saying you rigged the Olympic hockey game?" asks an aide.
+>
+>"What's the matter, don't you believe in miracles," replied CSM.[^xfiles]
 
 [^xfiles]: THE CIGARETTE SMOKING MAN REVEALS WHY BILLS LOST FOUR SUPER BOWLS. Alan Pergament. November 19, 1996. The Buffalo News.
 

@@ -86,10 +86,10 @@ But where we are commanded by God to do this and yet cannot, he sent his Son to 
 
 Make no mistake--we are not to be idle. And yet, we do not have live in fear or anxiety of getting it right so that God is pleased with us. Christ did it perfectly and the Father was pleased with us.
 
->>For God, the Just, is satisfied  
->>To look on Him and pardon me.  
->>
->> C.L. Bancroft. Before The Throne of God. 1863.
+>For God, the Just, is satisfied  
+>To look on Him and pardon me.  
+>
+> C.L. Bancroft. Before The Throne of God. 1863.
 
 
 <div style="page-break-after: always;"></div>

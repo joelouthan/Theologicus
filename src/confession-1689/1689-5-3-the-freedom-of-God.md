@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>God, in his ordinary providence maketh use of means, yet is free to work without, above, and against them at his pleasure.
+>God, in his ordinary providence maketh use of means, yet is free to work without, above, and against them at his pleasure.
 
 ## The Confession
 
@@ -26,9 +26,9 @@ The fact that God created my dad to take part in creating me but this same dad a
 
 I promise you: if I have gone through the trauma that I had not went through, I would not be in love with God as much as I am now. I would not desire to see his lovely face. I already know that I will kiss the face of my Savior with a thousand kisses because he has called me his own and saved me from his wrath. And I am here to praise him with my life and to do his will.
 
->>I have learned to kiss the wave that throws me against the Rock of Ages.
->>
->>Charles Spurgeon.
+>I have learned to kiss the wave that throws me against the Rock of Ages.
+>
+>Charles Spurgeon.
 
 Listen to what I am saying. Never did I say that deep love for God came easy nor cheap nor fast. God took all of eternity and over 2000 years and my lifetime to do what he wanted to do in order for me to be with him forever.
 

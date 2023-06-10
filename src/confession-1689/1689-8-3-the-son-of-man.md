@@ -58,7 +58,7 @@ g { color: Green }
 
 ## The Chapter
 
->>The Lord Jesus, in his human nature thus united to the divine, in the person of the Son, was sanctified and anointed with the Holy Spirit above measure, having in Him all the treasures of wisdom and knowledge; in whom it pleased the Father that all fullness should dwell, to the end that being holy, harmless, undefiled, and full of grace and truth, he might be throughly furnished to execute the office of mediator and surety; which office he took not upon himself, but was thereunto called by his Father; who also put all power and judgement in his hand, and gave him commandment to execute the same.
+>The Lord Jesus, in his human nature thus united to the divine, in the person of the Son, was sanctified and anointed with the Holy Spirit above measure, having in Him all the treasures of wisdom and knowledge; in whom it pleased the Father that all fullness should dwell, to the end that being holy, harmless, undefiled, and full of grace and truth, he might be throughly furnished to execute the office of mediator and surety; which office he took not upon himself, but was thereunto called by his Father; who also put all power and judgement in his hand, and gave him commandment to execute the same.
 
 ## The Confession
 
@@ -72,7 +72,7 @@ g { color: Green }
 
 Second chapter of the 1689 deals with the Attributes of God. So by the time you got to the Chapter 8 on the Person of Christ, you would have seen this statement from Chapter 2 Paragraph 1:
 
->>...whose subsistence is in and of himself, infinite in being and perfection; whose essence cannot be comprehended by any but himself; a most pure spirit, invisible, without body, parts...
+>...whose subsistence is in and of himself, infinite in being and perfection; whose essence cannot be comprehended by any but himself; a most pure spirit, invisible, without body, parts...
 
 The authors of the 1689 broke a little from the Westminster in that instead of their use of the word, "essence", we use the word, "subsistence", which is defined as, "the quality or state of being self-derived or self-originated specifically **the absolute self-sufficiency, independence, and autonomy of God**." (Merriam-Webster)
 
@@ -120,7 +120,7 @@ Fighting for the truth in the theology of Christ has gone back to the first cent
 
 Nicene Creed's excerpt on the Jesus Christ as fully God and fully human:
 
->>I believe in one Lord Jesus Christ,
+>I believe in one Lord Jesus Christ,
 the Only Begotten Son of God,
 born of the Father before all ages.
 God from God, Light from Light,
@@ -134,7 +134,7 @@ and became man.
 
 And the same from the Athanasian Creed:
 
->>That we believe and confess
+>That we believe and confess
  that our Lord Jesus Christ, God's Son,
  is both God and human, equally.
 

@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>God hath decreed in himself, from all eternity, by the most wise and holy counsel of his own will, freely and unchangeably, all things, whatsoever comes to pass; yet so as thereby is God neither the author of sin nor hath fellowship with any therein; nor is violence offered to the will of the creature, nor yet is the liberty or contingency of second causes taken away, but rather established; in which appears his wisdom in disposing all things, and power and faithfulness in accomplishing his decree.
+>God hath decreed in himself, from all eternity, by the most wise and holy counsel of his own will, freely and unchangeably, all things, whatsoever comes to pass; yet so as thereby is God neither the author of sin nor hath fellowship with any therein; nor is violence offered to the will of the creature, nor yet is the liberty or contingency of second causes taken away, but rather established; in which appears his wisdom in disposing all things, and power and faithfulness in accomplishing his decree.
 
 ## The Confession
 
@@ -48,9 +48,9 @@ And:
 
 One thing that is remarkable through out the Bible is the will of God.
 
->>The hardest choices require the strongest wills.
->>
->>Thanos
+>The hardest choices require the strongest wills.
+>
+>Thanos
 
 It is one thing for any being--mythological or otherwise--having the power and the ability to do what they want to do but do they possess the will to do so.
 
@@ -160,9 +160,9 @@ Consider that God is the only being ever in existence that will state what he in
 
 Paul's use of the past tense, "glorified", was not a grammatical mistake. Because Christ has died, we ere saved unto him. Our salvation happened on Golgotha over 2,000 years ago.
 
->>Let us muse upon the fact that Jesus was conducted without the gates of the city. It was the common place of death. That little rising ground, which perhaps was called Golgotha, the place of a skull, from its somewhat resembling the crown of a man's skull, was the common place of execution. It was one of Death's castles; here he stored his gloomiest trophies; he was the grim lord of that stronghold. Our great hero, the destroyer of Death, bearded the lion in his den, slew the monster in his own castle, and dragged the dragon captive from his own den. Methinks Death thought it a splendid triumph when he saw the Master impaled and bleeding in the dominions of destruction; little did he know that the grave was to be rifled, and himself destroyed, by that crucified Son of man.
->>
->>Charles Spurgeon. The Procession of Sorrow. [Sermon 497](https://archive.spurgeon.org/sermons/0497.php). March 1, 1863.
+>Let us muse upon the fact that Jesus was conducted without the gates of the city. It was the common place of death. That little rising ground, which perhaps was called Golgotha, the place of a skull, from its somewhat resembling the crown of a man's skull, was the common place of execution. It was one of Death's castles; here he stored his gloomiest trophies; he was the grim lord of that stronghold. Our great hero, the destroyer of Death, bearded the lion in his den, slew the monster in his own castle, and dragged the dragon captive from his own den. Methinks Death thought it a splendid triumph when he saw the Master impaled and bleeding in the dominions of destruction; little did he know that the grave was to be rifled, and himself destroyed, by that crucified Son of man.
+>
+>Charles Spurgeon. The Procession of Sorrow. [Sermon 497](https://archive.spurgeon.org/sermons/0497.php). March 1, 1863.
 
 My beloved, we were saved on Good Friday.
 

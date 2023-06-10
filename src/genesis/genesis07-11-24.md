@@ -24,7 +24,7 @@ But what is also true is that God's will in his kindness is meant to lead you to
 
 Every thing in the Old Testament is a foreshadow to Christ in the New Testament. Oft quoted:
 
->> Old Testament is Christ concealed. New Testament is Christ revealed.
+> Old Testament is Christ concealed. New Testament is Christ revealed.
 
 And throughout the annuals of history, you have seen the will of man--under the barrage of temptation, the hubris of the soul, and the sin infection of the heart--will fool themselves into thinking that they can take on the will of God. And man does so by altering and twisting right theology so that mankind can do what is right in their own eyes.
 

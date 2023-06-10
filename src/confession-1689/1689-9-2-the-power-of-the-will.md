@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>Man, in his state of innocency, had freedom and power to will and to do that which was good and well- pleasing to God, but yet was unstable, so that he might fall from it.
+>Man, in his state of innocency, had freedom and power to will and to do that which was good and well- pleasing to God, but yet was unstable, so that he might fall from it.
 
 ## The Confession
 

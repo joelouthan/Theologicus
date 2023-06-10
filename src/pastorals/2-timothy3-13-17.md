@@ -87,7 +87,7 @@ Let me tell you something, whether we were born in a family of believers or heat
 
 Or Leonard Ravenhill says it this way:
 
->>“One of these days some simple soul will pick up the Book of God, read it, and believe it. Then the rest of us will be embarrassed. We have adopted the convenient theory that the Bible is a Book to be explained, whereas first and foremost it is a Book to be believed (and after that to be obeyed).”
+>“One of these days some simple soul will pick up the Book of God, read it, and believe it. Then the rest of us will be embarrassed. We have adopted the convenient theory that the Bible is a Book to be explained, whereas first and foremost it is a Book to be believed (and after that to be obeyed).”
 
 All of the teaching, the preaching, books, commentaries, videos, podcasts, live streams, private Christian schools, Bible colleges, seminaries, or especially me yelling at you is not going to save you. This is not "salvation by explanation" alone. That is not a tenet or the faith.
 

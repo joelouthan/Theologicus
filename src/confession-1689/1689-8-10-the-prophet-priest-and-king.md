@@ -6,7 +6,7 @@ TODO:
 
 ## The Chapter
 
->>This number and order of offices is necessary; for in respect of our ignorance, we stand in need of his prophetical office; and in respect of our alienation from God, and imperfection of the best of our services, we need his priestly office to reconcile us and present us acceptable unto God; and in respect to our averseness and utter inability to return to God, and for our rescue and security from our spiritual adversaries, we need his kingly office to convince, subdue, draw, uphold, deliver, and preserve us to his heavenly kingdom.
+>This number and order of offices is necessary; for in respect of our ignorance, we stand in need of his prophetical office; and in respect of our alienation from God, and imperfection of the best of our services, we need his priestly office to reconcile us and present us acceptable unto God; and in respect to our averseness and utter inability to return to God, and for our rescue and security from our spiritual adversaries, we need his kingly office to convince, subdue, draw, uphold, deliver, and preserve us to his heavenly kingdom.
 
 ## The Confession
 

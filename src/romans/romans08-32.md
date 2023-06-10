@@ -81,7 +81,7 @@ But I hope that we can each pray the prayer of the wealthiest man of all time:
 
 and pray this for always:
 
->>In Christ, you have given me so much that heaven and earth can give me no more.[^2]
+>In Christ, you have given me so much that heaven and earth can give me no more.[^2]
 
 [^2]: Valley of Vision
 

@@ -50,11 +50,11 @@ In other words, verse 7:
 
 And when you sit under the word of God through prayer, reading, listening, and meditating constantly, what is happening? You are being trained in godliness. R.C. Sproul said it best, and I loosely quoting,
 
->>"There is no transformation of the heart through head knowledge alone. However, the heart will not change unless the head knows it first."
+>"There is no transformation of the heart through head knowledge alone. However, the heart will not change unless the head knows it first."
 
 As my old professor, Sinclair Ferguson, also said:
 
->>“We are to work at bible study. The Scriptures do not disclose their riches to lazy minds and hearts.”
+>“We are to work at bible study. The Scriptures do not disclose their riches to lazy minds and hearts.”
 
 You think you knowing nothing and pursuing nothing of God will automatically train you in godliness?
 

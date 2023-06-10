@@ -26,7 +26,7 @@ description: "The Bible never says the birth, the work, the cross, the resurrect
 
 ## The Chapter
 
->>To all those for whom Christ hath obtained eternal redemption, he doth certainly and effectually apply and communicate the same, making intercession for them; uniting them to himself by his Spirit, revealing unto them, in and by his Word, the mystery of salvation, persuading them to believe and obey, governing their hearts by his Word and Spirit, and overcoming all their enemies by his almighty power and wisdom, in such manner and ways as are most consonant to his wonderful and unsearchable dispensation; and all of free and absolute grace, without any condition foreseen in them to procure it.
+>To all those for whom Christ hath obtained eternal redemption, he doth certainly and effectually apply and communicate the same, making intercession for them; uniting them to himself by his Spirit, revealing unto them, in and by his Word, the mystery of salvation, persuading them to believe and obey, governing their hearts by his Word and Spirit, and overcoming all their enemies by his almighty power and wisdom, in such manner and ways as are most consonant to his wonderful and unsearchable dispensation; and all of free and absolute grace, without any condition foreseen in them to procure it.
 
 ## The Confession
 
@@ -142,10 +142,10 @@ Make no mistake: those who have hurt you is not your enemy. I don't care what th
 
 >Ephesians 6:10-12 (CSB) Finally, be strengthened by the Lord and by his vast strength. Put on the full armor of God so that you can stand against the schemes of the devil. For our struggle is not against flesh and blood, but against the rulers, against the authorities, against the cosmic powers of this darkness, against evil, spiritual forces in the heavens.
 
->>There's a war goin on outside, no man is safe from  
->>You could run but you can't hide forever
->>
->> Prodigy. Mobb Deep. Survival of the Fittest.
+>There's a war goin on outside, no man is safe from  
+>You could run but you can't hide forever
+>
+> Prodigy. Mobb Deep. Survival of the Fittest.
 
 If we were able to see the spiritual warfare that is always going on, that would immediately put everything in to perspective and in the order most important. And the thing about it is, God sees and knows the war going on and he is telling you about it. 
 
@@ -155,9 +155,9 @@ We know of the story of David and Goliath. But do you know of the other giants i
 
 We are to fight against our enemies in the spiritual war.
 
->>We are more than conquerors through his grace who loved us in the very circumstances that threaten to overwhelm. Fear not, then, the darkest cloud, nor the proudest waves, nor the deepest needs- in these very things you shall, through Christ, prove triumphant. Nor shrink from the battle with the "last enemy." Death received a death-wound when Christ died. You face a conquered foe. He stands at your side a crownless king, and waving a broken scepter. Your death shall be another victory over the believer's last foe. Planting your foot of faith upon his prostrate neck, you shall spring into glory, more than a conqueror, through him that loved you. Thus passing to glory in triumph, you shall go to swell the ranks of the "noble army of martyrs"- those Christian heroes of whom it is recorded, "THEY OVERCAME HIM BY THE BLOOD Of THE LAMB."
->>
->>Octavius Winslow. No Condemnation in Christ Jesus. 229.
+>We are more than conquerors through his grace who loved us in the very circumstances that threaten to overwhelm. Fear not, then, the darkest cloud, nor the proudest waves, nor the deepest needs- in these very things you shall, through Christ, prove triumphant. Nor shrink from the battle with the "last enemy." Death received a death-wound when Christ died. You face a conquered foe. He stands at your side a crownless king, and waving a broken scepter. Your death shall be another victory over the believer's last foe. Planting your foot of faith upon his prostrate neck, you shall spring into glory, more than a conqueror, through him that loved you. Thus passing to glory in triumph, you shall go to swell the ranks of the "noble army of martyrs"- those Christian heroes of whom it is recorded, "THEY OVERCAME HIM BY THE BLOOD Of THE LAMB."
+>
+>Octavius Winslow. No Condemnation in Christ Jesus. 229.
 
 Even if we die, we win for to live is Christ but to die is behold the risen Christ!
 

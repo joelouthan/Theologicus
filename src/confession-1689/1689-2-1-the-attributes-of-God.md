@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>The Lord our God is but one only living and true God; whose subsistence is in and of himself, infinite in being and perfection; whose essence cannot be comprehended by any but himself; a most pure spirit, invisible, without body, parts, or passions, who only hath immortality, dwelling in the light which no man can approach unto; who is immutable, immense, eternal, incomprehensible, almighty, every way infinite, most holy, most wise, most free, most absolute; working all things according to the counsel of his own immutable and most righteous will for his own glory; most loving, gracious, merciful, long-suffering, abundant in goodness and truth, forgiving iniquity, transgression, and sin; the rewarder of them that diligently seek him, and withal most just and terrible in his judgments, hating all sin, and who will by no means clear the guilty.
+>The Lord our God is but one only living and true God; whose subsistence is in and of himself, infinite in being and perfection; whose essence cannot be comprehended by any but himself; a most pure spirit, invisible, without body, parts, or passions, who only hath immortality, dwelling in the light which no man can approach unto; who is immutable, immense, eternal, incomprehensible, almighty, every way infinite, most holy, most wise, most free, most absolute; working all things according to the counsel of his own immutable and most righteous will for his own glory; most loving, gracious, merciful, long-suffering, abundant in goodness and truth, forgiving iniquity, transgression, and sin; the rewarder of them that diligently seek him, and withal most just and terrible in his judgments, hating all sin, and who will by no means clear the guilty.
 
 ## The Confession
 
@@ -18,9 +18,9 @@ And the Historical Confessions (Westminster, Savoy Declaration, and London Bapti
 
 Another way of seeing these attributes organized is Richard Muller defined it. In *To the Judicious and Impartial Reader: Baptist Symbolics Volume 2*, Dr. Renihan attributes the following terms from Richard Muller's *Dictionary of Latin and Greek Theological Terms (2nd edition)*:
 
->>“*Archetypal theology* is “the infinite knowledge of God known only to God himself” while *ectypal theology* is “all true finite theology, defined as a reflection of the divine archetype.”
->>
->>Renihan. Baptist Symbolics Volume 2. 162.
+>“*Archetypal theology* is “the infinite knowledge of God known only to God himself” while *ectypal theology* is “all true finite theology, defined as a reflection of the divine archetype.”
+>
+>Renihan. Baptist Symbolics Volume 2. 162.
 
 To learn these attributes, we must examine them bit by bit and connect them with the appropriate declaration from Scripture.
 
@@ -55,7 +55,7 @@ There is only one response to this absolute and blessed truth: praise be to God!
 
 John Calvin said it succinctly:
 
->>Man's nature is a perpetual factory of idols
+>Man's nature is a perpetual factory of idols
 
 Certainly, Satan rules the air. Demons, or principalities, rule regions. From the fall of humanity, we certainly will conjure up and put our trust in a little god who we hoped will make this life a little bit easier. Sadly, Satan, demons, and our idols have zero power. They can only kill, deceive, twist, oppress, and when it comes to our idols, do absolutely nothing for our lives.
 
@@ -83,7 +83,7 @@ God is not a figment of mankind's imagination. God was not conjured up by man. M
 
 The best word to describe the simplicity of God is *aseity*. Webster's properly defines this:
 
->> the quality or state of being self-derived or self-originated specifically : **the absolute self-sufficiency, independence, and autonomy of God**
+> the quality or state of being self-derived or self-originated specifically : **the absolute self-sufficiency, independence, and autonomy of God**
 
 God is not like anything in all creation in that one, he is not made up of complex parts and two, he is not created. God is simply one essence. He in of himself is God. He has no beginning nor end. No one made him. He is the maker of all things and all people. The Mormon religion states that their god existed as a mortal man in another universe and when he came to our universe, that's when he became god. The gods of other religions, cults, and sects--even the gods of other so-called Christian groups who fall outside of Christian orthodoxy--are built up in the minds of man and incredibly more complex than the one true living God. God sustains himself. God is joy and love unto and from himself. God did not need to make mankind. The Triune God was in perfect harmony, unity, community within himself because God is love. From all things and all truth overflows out from God.
 
@@ -115,9 +115,9 @@ Because we have been born into and choose to sin, we cannot approach God. We can
 
 [^stott-brightest]: John Stott. The Cross of Christ. 109. 
 
->>I am in sweet communion with Christ as a poor sinner can be; and am only pained that he hath much beauty and fairness, and I little love; he great power and mercy, and I little faith; he much light and I bleared eyes.
->>
->>Samuel Rutherford. The Loveliness of Christ.
+>I am in sweet communion with Christ as a poor sinner can be; and am only pained that he hath much beauty and fairness, and I little love; he great power and mercy, and I little faith; he much light and I bleared eyes.
+>
+>Samuel Rutherford. The Loveliness of Christ.
 
 Because of our present state, if we looked upon God, we would die. We could not approach God. Therefore, God must come to us. Immanuel--God is with us. In order for us to be with God, God must come to us. This is the only way. Christ is the only way.
 
@@ -173,7 +173,7 @@ To sum up *immenseness* of God, God is not just everywhere at all times but wher
 
 John Calvin wrote:
 
->> finitum non capax infiniti
+> finitum non capax infiniti
 
 In other words, "the finite mind cannot comprehend the infinite." If there is one attribute of God that is the hardest for us to grasp, I suggest it would be the eternality of God.
 
@@ -264,7 +264,7 @@ Yet God says:
 
 In my Genesis commentary, I wrote this about verse 4:
 
->>We live in a culture that celebrates the powerful and the famous. If we are not too careful we might look at that line and think nothing of it. But God declares prideful men and women “detestable”.
+>We live in a culture that celebrates the powerful and the famous. If we are not too careful we might look at that line and think nothing of it. But God declares prideful men and women “detestable”.
 
 We power grab everything. We even will construct entire theologies over power structures. 
 
@@ -294,11 +294,11 @@ Take these attributes of God--*immensity, eternal, incomprehensible, almighty*--
 
 R.C. Sproul is famous for correctly stating:
 
->>The Bible doesn't say God is "love, love, love," or "grace, grace, grace." The Bible says He is "holy, holy, holy."
+>The Bible doesn't say God is "love, love, love," or "grace, grace, grace." The Bible says He is "holy, holy, holy."
 
 Holiness of God is revealed by God in one of two ways. One, our sinfulness and far from Him we really are. Two, his absolute moral perfection. Sproul sums up nicely in this way:
 
->>“That attribution of greatness and goodness to God can be summed up as “He is holy,” because holiness incorporates both greatness and goodness.” [^sproul-truths-holy-goodness]
+>“That attribution of greatness and goodness to God can be summed up as “He is holy,” because holiness incorporates both greatness and goodness.” [^sproul-truths-holy-goodness]
 
 [^sproul-truths-holy-goodness]: R.C. Sproul. Truths We Confess. 46.
 
@@ -499,7 +499,7 @@ But what we have seen in his word and in the history of creation, that, while Go
 
 I am reminded of a great Paul Washer quote:
 
->>Right at this exact moment, the arms of the steadfast love of God are extending out towards us. His Almighty arms of grace and mercy remain outstretched towards to the wicked and depraved. Then one day, he drops his hands.
+>Right at this exact moment, the arms of the steadfast love of God are extending out towards us. His Almighty arms of grace and mercy remain outstretched towards to the wicked and depraved. Then one day, he drops his hands.
 
 There is no time like right now to fall into the arms of Jesus Christ. There is no day like today to look upon him, call his name and he will save you. That is a guarantee fact.
 

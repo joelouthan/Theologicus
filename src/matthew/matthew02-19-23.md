@@ -10,7 +10,7 @@ Christ at his infancy and most vulnerable. Yet, he was not ready to give his lif
 
 No matter the danger he was in, Christ remain invincible. The Evangelist George Whitefield said it best:
 
->>We are immortal until our work on earth is done.
+>We are immortal until our work on earth is done.
 
 >Job 14:5 (CSB) Since a person’s days are determined
 and the number of his months depends on you,
@@ -22,9 +22,9 @@ If the days of Christ are numbered, how can we be anything less? If we are in Ch
 
 Jesus Christ, fully God and fully man, did not live a life without fear or alarm. From while he was in his mother's womb, he lived a dangerous life. But His days were numbered until the moment He perfectly saved His people from their sins.
 
->>We must always bear in mind the purpose of God, in training his Son, from the commencement, under the discipline of the cross, because this was the way in which he was to redeem his Church. He bore our infirmities, and was exposed to dangers and to fears, that he might deliver his Church from them by his divine power, and might bestow upon it everlasting peace. His danger was our safety: his fear was our confidence.
->>
->>John Calvin. Commentary on Matthew.
+>We must always bear in mind the purpose of God, in training his Son, from the commencement, under the discipline of the cross, because this was the way in which he was to redeem his Church. He bore our infirmities, and was exposed to dangers and to fears, that he might deliver his Church from them by his divine power, and might bestow upon it everlasting peace. His danger was our safety: his fear was our confidence.
+>
+>John Calvin. Commentary on Matthew.
 
 Like Christ, our works of God have been laid out for us by God. Go and complete that work to the glory of God.
 

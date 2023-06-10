@@ -87,13 +87,13 @@ Description of the Acts of the Apostles?
 
 Description and prescription will play a crucial role in understanding Ruth. 
 
->>Since studying the Christ Key, where have you seen Christ in the Scriptures in where he is not explicitly mentioned? How has that helped you understand the Scriptures?
+>Since studying the Christ Key, where have you seen Christ in the Scriptures in where he is not explicitly mentioned? How has that helped you understand the Scriptures?
 
 To quote Dr Bird:
 
->>Practically speaking, this means that reading Genesis in light of Colossians or Daniel in light of Revelation is not violating a chronological taboo but fully embracing the inspiration of the Scriptures. Yes, of course, we look at each work in its own historical, cultural, and linguistic context, but not to the exclusion of its canonical context.
->>
->>Bird. The Christ Key. 23.
+>Practically speaking, this means that reading Genesis in light of Colossians or Daniel in light of Revelation is not violating a chronological taboo but fully embracing the inspiration of the Scriptures. Yes, of course, we look at each work in its own historical, cultural, and linguistic context, but not to the exclusion of its canonical context.
+>
+>Bird. The Christ Key. 23.
 
 While it is true that the authors in the OT could not have seen the revealed Christ for he was not revealed as the Messiah yet, you best be sure when Moses wrote Genesis 3:15, he knew and believe the gospel of God. For Christ said:
 
@@ -162,7 +162,7 @@ Ruth 1
 
 In God's provision and predestination and leading and directing saves the people of God but then people of God end up in gross sins and wickedness (Judges), sins of slavery (Exodus), sins of incest (Genesis 41), or our deaths (Ruth 1), is God the author of evil?
 
->> **1689.3.1 Sovereignty of God**: God hath decreed in himself, from all eternity, by the most wise and holy counsel of his own will, freely and unchangeably, all things, whatsoever comes to pass; yet so as thereby is God neither the author of sin nor hath fellowship with any therein;
+> **1689.3.1 Sovereignty of God**: God hath decreed in himself, from all eternity, by the most wise and holy counsel of his own will, freely and unchangeably, all things, whatsoever comes to pass; yet so as thereby is God neither the author of sin nor hath fellowship with any therein;
 
 >Isaiah 46:10 (CSB) I declare the end from the beginning, and from long ago what is not yet done, saying: my plan will take place, and I will do all my will.
 
@@ -172,7 +172,7 @@ In God's provision and predestination and leading and directing saves the people
 
 >1 John 1:5 (CSB) This is the message we have heard from him and declare to you: God is light, and there is absolutely no darkness in him.
 
->>Where have you seen evil done against you that God has turned into good? Can you believe that God allowed that to happen?
+>Where have you seen evil done against you that God has turned into good? Can you believe that God allowed that to happen?
 
 These are hard questions and the answers don't come easy. You might have had great evil done against you and you might not yet see how God has redeem you. But be careful and not grieve that moment, try to stuff your feelings and explain it away, "Whelp, God is sovereign." God is sovereign and we live in the post-Genesis 3 world. God is good and entire cosmos is broken.
 
@@ -193,7 +193,7 @@ Was it God's intent for Naomi and her husband to settle in the land of the child
 
 But out of this great desperation and great mingling of evilness, God will work out all things for our good and his great pleasure. Every single time.
 
->>Here's a more difficult question to ask yourself and be honest: where have you seen your own sins turned into redemption by God alone?
+>Here's a more difficult question to ask yourself and be honest: where have you seen your own sins turned into redemption by God alone?
 
 I will never forget what one of my pastors said to me: "Christians have a hard time dealing with redemption. What they want is God to go back in the past, erase all of the sins we have committed and the sins committed against others and God like it never happened so that no bad things have ever happened."
 

@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>From this original corruption, whereby we are utterly indisposed, disabled, and made opposite to all good, and wholly inclined to all evil, do proceed all actual transgressions.
+>From this original corruption, whereby we are utterly indisposed, disabled, and made opposite to all good, and wholly inclined to all evil, do proceed all actual transgressions.
 
 ## The Confession
 
@@ -18,9 +18,9 @@
 
 We, as humans, as the only sons of Adam, cannot hope on our best day, be able to approach the holy throne of God. We are infected, tinctured, shaped, molded, and developed in sin by sin.
 
->>So sin cannot approach God, and God cannot tolerate sin.
->>
->>John Stott, The Cross of Christ. 107-111
+>So sin cannot approach God, and God cannot tolerate sin.
+>
+>John Stott, The Cross of Christ. 107-111
 
 John Stott further expounds five ways in which God and sin cannot coexist together:
 

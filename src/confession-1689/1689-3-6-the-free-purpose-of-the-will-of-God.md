@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>As God hath appointed the elect unto glory, so he hath, by the eternal and most free purpose of his will, foreordained all the means thereunto; wherefore they who are elected, being fallen in Adam, are redeemed by Christ, are effectually called unto faith in Christ, by his Spirit working in due season, are justified, adopted, sanctified, and kept by his power through faith unto salvation; neither are any other redeemed by Christ, or effectually called, justified, adopted, sanctified, and saved, but the elect only.
+>As God hath appointed the elect unto glory, so he hath, by the eternal and most free purpose of his will, foreordained all the means thereunto; wherefore they who are elected, being fallen in Adam, are redeemed by Christ, are effectually called unto faith in Christ, by his Spirit working in due season, are justified, adopted, sanctified, and kept by his power through faith unto salvation; neither are any other redeemed by Christ, or effectually called, justified, adopted, sanctified, and saved, but the elect only.
 
 ## The Confession
 
@@ -20,9 +20,9 @@ No! We have not known because we don't know who is elect! Who all has God chosen
 
 Spurgeon said it definitively:
 
->>If God would have painted a yellow stripe on the backs of the elect I would go around lifting shirts. But since He didn’t I must preach “whosoever will” and when “whatsoever” believes I know that he is one of the elect.
->>
->>Charles Spurgeon. The Metropolitan Tabernacle Pulpit. Volume 1. London: Passmore & Alabaster, 1855.
+>If God would have painted a yellow stripe on the backs of the elect I would go around lifting shirts. But since He didn’t I must preach “whosoever will” and when “whatsoever” believes I know that he is one of the elect.
+>
+>Charles Spurgeon. The Metropolitan Tabernacle Pulpit. Volume 1. London: Passmore & Alabaster, 1855.
 
 We don't know whom has he elected. I believe in Christ and that faith that God has given me has been counted to me as righteousness of Christ. Therefore, logic dictates that I am his elected.
 

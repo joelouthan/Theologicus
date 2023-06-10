@@ -162,15 +162,15 @@ Pastor, this is one of the goals you want for your church. Brother and sister, p
 
 I think Octavius Winslow says it best:
 
->>“Through him that loved us.” Here is the great secret of our victory, the source of our triumph. Behold the mystery explained, how a weak, timid believer, often running from his own shadow, is yet “more than a conqueror” over his many and mighty foes.
->>
->>To Christ who loved him, who gave himself for him, who died in his stead, and lives to intercede on his behalf, the glory of the triumph is ascribed. And this is the song he chants, “Thanks be to God which gives us the victory through our Lord Jesus Christ.”
->>
->>Through the conquest which he himself obtained, through the grace which he imparts, through the strength which he inspires, through the intercession which he presents, in all our “tribulation, and distress, and persecution, and famine, and nakedness, and peril, and sword” we are “more than conquerors.” Accounted though we are as “sheep for the slaughter,” yet our Great Shepherd, Himself slain for the sheep, guides his flock, and has declared that no one shall pluck them out of his hand.
->>
->>We are more than conquerors through his grace who loved us in the very circumstances that threaten to overwhelm. Fear not, then, the darkest cloud, nor the proudest waves, nor the deepest needs- in these very things you shall, through Christ, prove triumphant. Nor shrink from the battle with the “last enemy.” Death received a death-wound when Christ died. You face a conquered foe. He stands at your side a crownless king, and waving a broken scepter. Your death shall be another victory over the believer’s last foe. Planting your foot of faith upon his prostrate neck, you shall spring into glory, more than a conqueror, through him that loved you. Thus passing to glory in triumph, you shall go to swell the ranks of the “noble army of martyrs”- those Christian heroes of whom it is recorded, “THEY OVERCAME HIM BY THE BLOOD Of THE LAMB.”
->>
->>Octavius Winslow. No Condemnation in Christ Jesus. 229.
+>“Through him that loved us.” Here is the great secret of our victory, the source of our triumph. Behold the mystery explained, how a weak, timid believer, often running from his own shadow, is yet “more than a conqueror” over his many and mighty foes.
+>
+>To Christ who loved him, who gave himself for him, who died in his stead, and lives to intercede on his behalf, the glory of the triumph is ascribed. And this is the song he chants, “Thanks be to God which gives us the victory through our Lord Jesus Christ.”
+>
+>Through the conquest which he himself obtained, through the grace which he imparts, through the strength which he inspires, through the intercession which he presents, in all our “tribulation, and distress, and persecution, and famine, and nakedness, and peril, and sword” we are “more than conquerors.” Accounted though we are as “sheep for the slaughter,” yet our Great Shepherd, Himself slain for the sheep, guides his flock, and has declared that no one shall pluck them out of his hand.
+>
+>We are more than conquerors through his grace who loved us in the very circumstances that threaten to overwhelm. Fear not, then, the darkest cloud, nor the proudest waves, nor the deepest needs- in these very things you shall, through Christ, prove triumphant. Nor shrink from the battle with the “last enemy.” Death received a death-wound when Christ died. You face a conquered foe. He stands at your side a crownless king, and waving a broken scepter. Your death shall be another victory over the believer’s last foe. Planting your foot of faith upon his prostrate neck, you shall spring into glory, more than a conqueror, through him that loved you. Thus passing to glory in triumph, you shall go to swell the ranks of the “noble army of martyrs”- those Christian heroes of whom it is recorded, “THEY OVERCAME HIM BY THE BLOOD Of THE LAMB.”
+>
+>Octavius Winslow. No Condemnation in Christ Jesus. 229.
 
 ><sup>21</sup> Timothy, my coworker, and Lucius, Jason, and Sosipater, my fellow countrymen, greet you. I, Tertius, who wrote this letter, greet you in the Lord. Gaius, who is host to me and to the whole church, greets you. Erastus, the city treasurer, and our brother Quartus greet you.
 
@@ -182,7 +182,7 @@ I know that we love the stories of startup businesses that started in their gara
 
 That's all fine and great except in the case of Apple, it is just a myth.
 
->>“The garage is a bit of a myth. It’s overblown,” Wozniak told [Bloomberg BusinessWeek on Thursday](http://www.bloomberg.com/video/steve-wozniak-on-steve-jobs-geekiness-and-starting-apple-GVS_jUoTQtGYj9fwLg8dbQ.html). “The garage represents us better than anything else, but we did no designs there. We would drive the finished products to the garage, make them work and then we’d drive them down to the store that paid us cash.” [^wp20141205]
+>“The garage is a bit of a myth. It’s overblown,” Wozniak told [Bloomberg BusinessWeek on Thursday](http://www.bloomberg.com/video/steve-wozniak-on-steve-jobs-geekiness-and-starting-apple-GVS_jUoTQtGYj9fwLg8dbQ.html). “The garage represents us better than anything else, but we did no designs there. We would drive the finished products to the garage, make them work and then we’d drive them down to the store that paid us cash.” [^wp20141205]
 
 [^wp20141205]: [Washington Post: Steve Wozniak refutes Apple’s creation story: ‘The garage is a bit of a myth’](https://www.washingtonpost.com/news/morning-mix/wp/2014/12/05/steve-wozniak-refutes-apples-creation-story-the-garage-is-a-bit-of-a-myth/)
 
@@ -210,8 +210,8 @@ Take the moment right now to thank the people who have ministered with you over 
 
 >Hebrews 1:1-3 (CSB) Long ago God spoke to our ancestors by the prophets at different times and in different ways. In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him. The Son is the radiance of God’s glory and the exact expression of his nature, sustaining all things by his powerful word. After making purification for sins, he sat down at the right hand of the Majesty on high.
 
->>Glory to the Father, and to the Son, and to the Holy Spirit,
->>As it was in the beginning, is now, and ever shall be world without end. Amen.
+>Glory to the Father, and to the Son, and to the Holy Spirit,
+>As it was in the beginning, is now, and ever shall be world without end. Amen.
 
 Peace to you. Amen.
 

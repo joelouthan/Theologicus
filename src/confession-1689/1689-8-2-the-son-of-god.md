@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->>The Son of God, the second person in the Holy Trinity, being very and eternal God, the brightness of the Father's glory, of one substance and equal with him who made the world, who upholdeth and governeth all things he hath made, did, when the fullness of time was come, take upon him man's nature, with all the essential properties and common infirmities thereof, yet without sin; being conceived by the Holy Spirit in the womb of the Virgin Mary, the Holy Spirit coming down upon her: and the power of the Most High overshadowing her; and so was made of a woman of the tribe of Judah, of the seed of Abraham and David according to the Scriptures; so that two whole, perfect, and distinct natures were inseparably joined together in one person, without conversion, composition, or confusion; which person is very God and very man, yet one Christ, the only mediator between God and man.
+>The Son of God, the second person in the Holy Trinity, being very and eternal God, the brightness of the Father's glory, of one substance and equal with him who made the world, who upholdeth and governeth all things he hath made, did, when the fullness of time was come, take upon him man's nature, with all the essential properties and common infirmities thereof, yet without sin; being conceived by the Holy Spirit in the womb of the Virgin Mary, the Holy Spirit coming down upon her: and the power of the Most High overshadowing her; and so was made of a woman of the tribe of Judah, of the seed of Abraham and David according to the Scriptures; so that two whole, perfect, and distinct natures were inseparably joined together in one person, without conversion, composition, or confusion; which person is very God and very man, yet one Christ, the only mediator between God and man.
 
 ## The Confession
 
@@ -20,9 +20,9 @@ I am writing this particular exposition on 1689 Chapter 9 Paragraph 2 on April 2
 
 Back on February 9, 2023, I posted my expositing on the [1689 2.3 Of The Triune God](https://theologic.us/posts/confession-1689/1689-2-3-the-triune-god/#who-is-not-to-be-divided-in-nature-and-being-but-distinguished-by-several-peculiar-relative-properties-and-personal-relations). In that exposition, I wrote:
 
->>There is a new-old heresy being circulated around that fired up about ten years ago then sort of fizzled like a fart in church, called the Eternal Submission of the Son (ESS). Those who are spouting out such nonsense are always those who fall so far into hard **Complementarianism** camp (those who believe genders of mankind are different but equal) that they are indistinguishable from Patriarchy (men are always right and women need to shut up and stay quiet.) There one verse that they have built their house of cards upon is 1 Corinthians 11:3.
->>
->>Now, I hope you can tell from reading the last paragraph, that I have zero grace towards people who keep teaching *ESS* like it is a real and Biblical thing. Those are false teachers and I will not stand for it. Come into my church shooting that nonsense and you will be handled promptly and according. (Not a threat but a fact.)
+>There is a new-old heresy being circulated around that fired up about ten years ago then sort of fizzled like a fart in church, called the Eternal Submission of the Son (ESS). Those who are spouting out such nonsense are always those who fall so far into hard **Complementarianism** camp (those who believe genders of mankind are different but equal) that they are indistinguishable from Patriarchy (men are always right and women need to shut up and stay quiet.) There one verse that they have built their house of cards upon is 1 Corinthians 11:3.
+>
+>Now, I hope you can tell from reading the last paragraph, that I have zero grace towards people who keep teaching *ESS* like it is a real and Biblical thing. Those are false teachers and I will not stand for it. Come into my church shooting that nonsense and you will be handled promptly and according. (Not a threat but a fact.)
 
 Little did I know that what I was writing ended up being prophetic. At the same time I posted that, I am sad to say that my former church, a large Evangelical non-denomination, had made a hard pivot into not only preaching and teaching ESS but go as far as to double-down on the heretic doctrine. This heresy, in my former church, has already disqualified my best friend from leadership because he, being a former church planter, an ordained pastor and a well-educated, Ph.D from a conservative Baptist seminary, would not affirm ESS as true. My friend could not affirm ESS as true because it is not true. It is crap. It is a heresy because the Bible does not teach it. It is outside the Bible.
 
@@ -56,9 +56,9 @@ Take this all the way. Surely, the family of Jesus bore witness.
 
 His half-brother, James, who went on to pen the Epistle of his name. This is what the famous Roman historian, Josephus, wrote of James, the brother of Jesus:
 
->>Ananus, who, as we have told you already, took the high priesthood, was a bold man in his temper, and very insolent; he was also of the sect of the Sadducees, who are very rigid in judging offenders, above all the rest of the Jews, as we have already observed; when, therefore, Ananus was of this disposition, he thought he had now a proper opportunity [to exercise his authority]. Festus was now dead, and Albinus was but upon the road; so he assembled the Sanhedrin of judges, and brought before them the brother of Jesus, who was called Christ, whose name was James, and some others, [or, some of his companions]; and when he had formed an accusation against them as breakers of the law, he delivered them to be stoned
->>
->>Flavius Josephus: Antiquities of the Jews, Book 20, Chapter 9, 1, based on the translation of Louis H. Feldman, The Loeb Classical Library.
+>Ananus, who, as we have told you already, took the high priesthood, was a bold man in his temper, and very insolent; he was also of the sect of the Sadducees, who are very rigid in judging offenders, above all the rest of the Jews, as we have already observed; when, therefore, Ananus was of this disposition, he thought he had now a proper opportunity [to exercise his authority]. Festus was now dead, and Albinus was but upon the road; so he assembled the Sanhedrin of judges, and brought before them the brother of Jesus, who was called Christ, whose name was James, and some others, [or, some of his companions]; and when he had formed an accusation against them as breakers of the law, he delivered them to be stoned
+>
+>Flavius Josephus: Antiquities of the Jews, Book 20, Chapter 9, 1, based on the translation of Louis H. Feldman, The Loeb Classical Library.
 
 Have you met of one sibling in all of the history of the world who willing let themselves be killed in the name of their brother who claimed to be Son of God who is God? Never in the their right mind.
 

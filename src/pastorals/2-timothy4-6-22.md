@@ -92,9 +92,9 @@ there they will be called sons of the living God.
 
 Let have Octavius Winslow say it best:
 
->>Accounted though we are as "sheep for the slaughter," yet our Great Shepherd, Himself slain for the sheep, guides his flock, and has declared that no one shall pluck them out of his hand. We are more than conquerors through his grace who loved us in the very circumstances that threaten to overwhelm. Fear not, then, the darkest cloud, nor the proudest waves, nor the deepest needs- in these very things you shall, through Christ, prove triumphant. Nor shrink from the battle with the "last enemy." Death received a death-wound when Christ died. You face a conquered foe. He stands at your side a crownless king, and waving a broken scepter. Your death shall be another victory over the believer's last foe. Planting your foot of faith upon his prostrate neck, you shall spring into glory, more than a conqueror, through him that loved you. Thus passing to glory in triumph, you shall go to swell the ranks of the "noble army of martyrs"- those Christian heroes of whom it is recorded, "THEY OVERCAME HIM BY THE BLOOD Of THE LAMB."
->>
->>Octavius Winslow. No Condemnation in Christ Jesus. 229.
+>Accounted though we are as "sheep for the slaughter," yet our Great Shepherd, Himself slain for the sheep, guides his flock, and has declared that no one shall pluck them out of his hand. We are more than conquerors through his grace who loved us in the very circumstances that threaten to overwhelm. Fear not, then, the darkest cloud, nor the proudest waves, nor the deepest needs- in these very things you shall, through Christ, prove triumphant. Nor shrink from the battle with the "last enemy." Death received a death-wound when Christ died. You face a conquered foe. He stands at your side a crownless king, and waving a broken scepter. Your death shall be another victory over the believer's last foe. Planting your foot of faith upon his prostrate neck, you shall spring into glory, more than a conqueror, through him that loved you. Thus passing to glory in triumph, you shall go to swell the ranks of the "noble army of martyrs"- those Christian heroes of whom it is recorded, "THEY OVERCAME HIM BY THE BLOOD Of THE LAMB."
+>
+>Octavius Winslow. No Condemnation in Christ Jesus. 229.
 
 Christ's death means that you get to live forever. Christ's sacrifice means that you are holy and blameless before Christ. Christ's life means you now get to live, move, and have you being in him--not just now but for all of eternity.
 

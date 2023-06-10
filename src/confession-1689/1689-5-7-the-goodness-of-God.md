@@ -8,7 +8,7 @@
 
 ## The Chapter
 
->>As the providence of God doth in general reach to all creatures, so after a more special manner it taketh care of his church, and disposeth of all things to the good thereof.
+>As the providence of God doth in general reach to all creatures, so after a more special manner it taketh care of his church, and disposeth of all things to the good thereof.
 
 ## The Confession
 
@@ -22,7 +22,7 @@ For:
 
 And
 
->>Mark 16:15 (CSB) Then he said to them, “Go into all the world and preach the gospel to all creation.
+>Mark 16:15 (CSB) Then he said to them, “Go into all the world and preach the gospel to all creation.
 
 And
 
