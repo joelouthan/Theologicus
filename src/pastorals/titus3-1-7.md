@@ -164,8 +164,6 @@ God is going to bring you home--whether you have great or little faith. God is g
 My Wonderful
 </div>
 
-```text
-Bring us all the way home.
+>Bring us all the way home.
 
 Amen
-```

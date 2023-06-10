@@ -103,17 +103,11 @@ Christ says, "Come, give me your soul crushing sin, your back-breaking self-righ
 
 ## The Discussion
 
-```text
-1. If you don't believe, why are you working so hard?
-```
+>1. If you don't believe, why are you working so hard?
 
-```text
-2. Have you been brought to your end yet?
-```
+>2. Have you been brought to your end yet?
 
-```text
-3. If God has saved you, tell me when you were radically changed from your old self to your new self?
-```
+>3. If God has saved you, tell me when you were radically changed from your old self to your new self?
 
 ## The Prayer
 
@@ -121,11 +115,9 @@ Christ says, "Come, give me your soul crushing sin, your back-breaking self-righ
 Salvation By No Other Name
 </div>
 
-```text
-Save us today. Save us in this moment. Right now.
+>Save us today. Save us in this moment. Right now.
 
 Amen.
-```
 
 <div style="page-break-after: always;"></div>
 

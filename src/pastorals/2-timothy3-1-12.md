@@ -112,11 +112,9 @@ My Christ
 </div>
 &nbsp;
 
-```text
-Save us to yourself.
+>Save us to yourself.
 
 Amen.
-```
 
 <div style="page-break-after: always;"></div>
 

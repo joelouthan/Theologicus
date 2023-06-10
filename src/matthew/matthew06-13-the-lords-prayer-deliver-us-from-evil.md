@@ -155,9 +155,7 @@ Never not once would I blame God for that. God was not tempted me. None of my si
 My Strength,  
 </div>
 
-```text
-Help us. We need you.
+>Help us. We need you.
 
 Amen.
-```
 

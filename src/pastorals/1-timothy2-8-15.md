@@ -125,9 +125,7 @@ Our God
 </div>
 &nbsp;
 
-```text
-Keep our eyes focused on you
+>Keep our eyes focused on you
 
 Amen
-```
 

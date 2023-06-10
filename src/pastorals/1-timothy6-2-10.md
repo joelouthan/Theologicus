@@ -129,8 +129,7 @@ Our Infinite God
 </div>
 &nbsp;
 
-```text
-Come into our hearts
+>Come into our hearts
   and occupy the entire space
   so we would be less in love with world
   and love you more
@@ -140,5 +139,4 @@ For in your Son's beautiful and holy name
   I pray.
 
 Amen.
-```
 

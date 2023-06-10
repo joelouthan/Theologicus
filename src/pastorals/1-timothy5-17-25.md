@@ -199,13 +199,11 @@ Our Eldest Brother
 </div>
 &nbsp;
 
-```text
-In your word, you have called some to lead and guide your church. But those callings are to be tested and tried that they would be found qualified in the sight of the people--that your people would see what you see.
+>In your word, you have called some to lead and guide your church. But those callings are to be tested and tried that they would be found qualified in the sight of the people--that your people would see what you see.
 
 We trust you, Lord. Thank you for giving us clear instructions on how to be a part of your church. Thank you for your grace to do your will and trust you more. 
 
 We will forever praise your holy name.
 
 Amen.
-```
 

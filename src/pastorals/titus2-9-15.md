@@ -136,8 +136,6 @@ No weightless talk. No empty speeches. No social media posts that makes us sound
 Our Blessed Grace
 </div>
 
-```text
-Open our eyes and open our mouths to preach your great news to those who everyone all the time. But open our hearts to love them just as you love them.
+>Open our eyes and open our mouths to preach your great news to those who everyone all the time. But open our hearts to love them just as you love them.
 
 Amen.
-```

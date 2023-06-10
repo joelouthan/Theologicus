@@ -157,9 +157,7 @@ Our God
 </div>
 &nbsp;
 
-```text
-Whatever you have called us to do, give us grace to do your will.
+>Whatever you have called us to do, give us grace to do your will.
 
 Amen.
-```
 

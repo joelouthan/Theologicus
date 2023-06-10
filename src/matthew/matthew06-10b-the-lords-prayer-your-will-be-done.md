@@ -36,8 +36,7 @@ My Father
 </div>
 &nbsp;
 
-```text
-I am but a little kid.
+>I am but a little kid.
   And I don't know much.
 
 But I know you are holy.
@@ -70,5 +69,4 @@ For me to do anything you want
   of everything your Son has commanded.
 
 Amen.
-```
 

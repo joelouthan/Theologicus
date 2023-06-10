@@ -69,11 +69,9 @@ My Christ
 </div>
 &nbsp;
 
-```text
-I belong to you.
+>I belong to you.
 
 Show me how to live with you in my heart forever.
 
 Amen.
-```
 

@@ -26,8 +26,7 @@ My Savior Lord God
 </div>
 &nbsp;
 
-```text
-I was astray
+>I was astray
   Coaxed by the world
   Deceived by Satan
   Corrupted by sin
@@ -92,5 +91,4 @@ Jesus,
   Worthy is your name forever.
 
 Amen.
-```
 

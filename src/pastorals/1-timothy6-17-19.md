@@ -51,11 +51,9 @@ My Provider
 </div>
 &nbsp;
 
-```text
-You loved me so much that you gave me Christ.
+>You loved me so much that you gave me Christ.
 
 You have given me everything.
 
 Blessed be your name.
-```
 

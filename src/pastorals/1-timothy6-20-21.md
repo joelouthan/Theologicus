@@ -123,9 +123,7 @@ Father of lights,
 </div>
 &nbsp;
 
-```text
-Where we have believed something that did not come from you, would you give us the gift to repent and turn our hearts towards you.
+>Where we have believed something that did not come from you, would you give us the gift to repent and turn our hearts towards you.
 
 Amen.
-```
 

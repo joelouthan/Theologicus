@@ -79,8 +79,7 @@ My Lord
 </div>
 &nbsp;
 
-```text
-You have perfectly obeyed our Father in heaven. I believe and trust in you. You are my Savior.
+>You have perfectly obeyed our Father in heaven. I believe and trust in you. You are my Savior.
 
 You have remove my fear--place my affections and awe in you alone.
 
@@ -94,5 +93,4 @@ Death is a conquered foe--I am forever alive in you because you dwell in me.
 
 Amen.
 
-```
 

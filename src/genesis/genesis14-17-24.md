@@ -27,9 +27,7 @@
 
 <div style="page-break-after: always;"></div>
 
-```text
-Where do you see God in the text? What does the text say about God?
-```
+>Where do you see God in the text? What does the text say about God?
 
 ## Our God
 

@@ -81,17 +81,11 @@ Do the works that God has set out for you to do. You have no opponent that can a
 
 ## The Discussion
 
-```text
-1. What is the difference between perfectionism and being above reproach?
-```
+>1. What is the difference between perfectionism and being above reproach?
 
-```text
-2. Who is in ministry?
-```
+>2. Who is in ministry?
 
-```text
-3. If we are all ministers but commit sin, what can we do? What does Christ command us to do?
-```
+>3. If we are all ministers but commit sin, what can we do? What does Christ command us to do?
 
 ## The Prayer
 
@@ -99,10 +93,8 @@ Do the works that God has set out for you to do. You have no opponent that can a
 God of Grace
 </div>
 
-```text
-Give us strength to do your will today.
+>Give us strength to do your will today.
 
 Amen.
-```
 
 

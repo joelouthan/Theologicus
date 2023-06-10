@@ -164,21 +164,13 @@ Believe on this and you shall be saved.
 
 ## The Discussion
 
-```text
-1. Why can we not assume that every pastor is saved?
-```
+>1. Why can we not assume that every pastor is saved?
 
-```text
-2. How do know for sure that someone else is saved? Can we see the heart like God?
-```
+>2. How do know for sure that someone else is saved? Can we see the heart like God?
 
-```text
-3. On the same thought, can we know when someone is not saved?
-```
+>3. On the same thought, can we know when someone is not saved?
 
-```text
-4. How many Christians do you know who want to serve as an elder in their local church?
-```
+>4. How many Christians do you know who want to serve as an elder in their local church?
 
 ## The Prayer
 
@@ -186,11 +178,9 @@ Believe on this and you shall be saved.
 Beckoning of our Souls
 </div>
 
-```text
-Call us to love and minister to one another.
+>Call us to love and minister to one another.
 
 Amen.
-```
 
 <div style="page-break-after: always;"></div>
 

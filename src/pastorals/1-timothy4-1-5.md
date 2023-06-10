@@ -130,8 +130,7 @@ My Righteousness
 </div>
 &nbsp;
 
-```text
-Call us close.
+>Call us close.
 
 Keep us near.
 
@@ -146,5 +145,4 @@ On this day, give us you.
 We need you.
 
 Amen.
-```
 

@@ -17,8 +17,7 @@ My Lord and My God
 </div>
 &nbsp;
 
-```text
-So what then can I say?  
+>So what then can I say?  
 So what then can I do?  
 All I can do is simply thank you.
 
@@ -219,4 +218,3 @@ His name is
 the Lord Jesus Christ.  
 
 Amen.
-```

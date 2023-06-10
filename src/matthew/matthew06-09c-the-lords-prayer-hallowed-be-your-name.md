@@ -73,8 +73,7 @@ My Father
 </div>
 &nbsp;
 
-```text
-Because You are my good Father in heaven, I get to say this:
+>Because You are my good Father in heaven, I get to say this:
 
 You are holy.
 
@@ -141,5 +140,4 @@ You have always known me
 How glorious is Your Name!
 
 Amen.
-```
 

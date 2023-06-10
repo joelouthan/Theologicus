@@ -86,12 +86,10 @@ Savior of the world
 </div>
 &nbsp;
 
-```text
-If we do not believe, help us believe.
+>If we do not believe, help us believe.
 
 If we do not love you, give us your love to love you.
 
 If we are dead, bring us to life!
 
 Amen.
-```

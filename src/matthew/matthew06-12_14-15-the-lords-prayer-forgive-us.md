@@ -70,11 +70,9 @@ My Love and My Life
 </div>
 &nbsp;
 
-```text
-You have forgiven everything.
+>You have forgiven everything.
 
 Help us to forgive others.
 
 Amen.
-```
 

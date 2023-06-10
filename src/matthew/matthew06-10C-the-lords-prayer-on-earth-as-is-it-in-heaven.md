@@ -190,8 +190,7 @@ Lord
 </div>
 &nbsp;
 
-```text
-We are far from you.
+>We are far from you.
 
 We need to hear from you.
 
@@ -211,5 +210,4 @@ My Christ,
 
 Amen
 
-```
 

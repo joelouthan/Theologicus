@@ -108,12 +108,10 @@ Savior and Lord and God
 </div>
 &nbsp;
 
-```text
-We give you thanks
+>We give you thanks
 for you are our righteousness.
 
 Praise your holy name forever.
 
 Amen.
-```
 

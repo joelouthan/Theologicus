@@ -162,9 +162,7 @@ My Saving God
 </div>
 &nbsp;
 
-```text
-I believe and trust in you. Make me alive in you today.
+>I believe and trust in you. Make me alive in you today.
 
 Amen.
-```
 

@@ -61,8 +61,7 @@ Almighty Savior
 </div>
 &nbsp;
 
-```text
-As the song goes
+>As the song goes
   we are little ones
   that belong to you
   we are weak
@@ -141,5 +140,4 @@ You are my crown
   forevermore.
 
 Amen.
-```
 

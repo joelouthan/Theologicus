@@ -137,8 +137,7 @@ Our All-in-all
 </div>
 &nbsp;
 
-```text
-You have said it in your word
+>You have said it in your word
   that you have shown us the path of life
   in your presence is the fullness of joy
   and at your right hand are pleasures forevermore
@@ -152,5 +151,4 @@ Keep our face towards your shining face
 
 
 Amen.
-```
 

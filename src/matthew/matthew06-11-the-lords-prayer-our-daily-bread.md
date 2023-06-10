@@ -97,9 +97,7 @@ But Christ already said that his word gets taken away, choked up, or burns in th
 My Salvation
 </div>
 
-```text
-Today, save me.
+>Today, save me.
 
 Amen
-```
 

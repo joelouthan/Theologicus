@@ -114,20 +114,17 @@ Jesus Christ. the Head Pastor of the Church
 </div>
 &nbsp;
 
-```text
-If you called us
+>If you called us
   to do your will
   give us your grace
   to do your will.
-```
 
 <div style="font-variant: small-caps;">
 Father
 </div>
 &nbsp;
 
-```text
-Give us your Spirit
+>Give us your Spirit
   exactly how you gave to your Son
   to minister, care, and love one another,
   to proclaim the gospel
@@ -149,4 +146,3 @@ I love you
   because you have loved me first.
 
 Amen.
-```

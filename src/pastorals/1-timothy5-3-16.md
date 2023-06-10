@@ -95,11 +95,9 @@ Our Christ
 </div>
 &nbsp;
 
-```text
-There is a day when you will come back and complete the work you have started.
+>There is a day when you will come back and complete the work you have started.
 
 Come quickly, Lord.
 
 Amen.
-```
 

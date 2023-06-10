@@ -124,8 +124,7 @@ My Mediator
 </div>
 &nbsp;
 
-```text
-Be with me.
+>Be with me.
 
 Draw near to me.
 
@@ -134,5 +133,4 @@ Saved those who do not know you.
 Thank you for everything.
 
 Amen
-```
 

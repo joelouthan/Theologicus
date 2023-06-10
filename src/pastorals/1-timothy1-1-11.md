@@ -57,8 +57,7 @@ The Savior of the World
 </div>
 &nbsp;
 
-```text
-You are the way  
+>You are the way  
   the truth  
   the light  
   and no one comes  
@@ -121,5 +120,4 @@ Be our pastor
   and send help.
 
 Amen.
-```
 

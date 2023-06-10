@@ -124,9 +124,7 @@ My Deliverer
 </div>
 &nbsp;
 
-```text
-Do not lose your children! Save us forever!
+>Do not lose your children! Save us forever!
 
 Amen!
-```
 

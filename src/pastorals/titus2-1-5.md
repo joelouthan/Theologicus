@@ -139,21 +139,13 @@ The ESV rightly calls this atoning sacrifice, "the propitiation for our sins." I
 
 ## The Discussion
 
-```text
-1. Who can define self-control and kindness and gentleness?
-```
+>1. Who can define self-control and kindness and gentleness?
 
-```text
-2. Who can define how to love one another?
-```
+>2. Who can define how to love one another?
 
-```text
-3. Where does love come from?
-```
+>3. Where does love come from?
 
-```text
-4. What is greatest example of everything that God command us to do?
-```
+>4. What is greatest example of everything that God command us to do?
 
 ## The Prayer
 
@@ -161,10 +153,8 @@ The ESV rightly calls this atoning sacrifice, "the propitiation for our sins." I
 My Love
 </div>
 
-```text
-Help us to love one another.
+>Help us to love one another.
 
 Amen.
-```
 
 

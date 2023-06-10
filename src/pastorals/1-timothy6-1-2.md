@@ -59,8 +59,7 @@ My Lord
 </div>
 &nbsp;
 
-```text
-How many times
+>How many times
   did you rescue me
   from my sins
   from death
@@ -88,5 +87,4 @@ Then, I call to you
 I will love you with all that I have.
 
 Amen.
-```
 

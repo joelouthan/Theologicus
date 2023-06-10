@@ -187,21 +187,13 @@ Amen.
 
 ## The Discussion
 
-```text
-1. Have you thought about your last years on earth?
-```
+>1. Have you thought about your last years on earth?
 
-```text
-2. What do you think you want to do in ministry to God and to others?
-```
+>2. What do you think you want to do in ministry to God and to others?
 
-```text
-3. What is stopping you from starting?
-```
+>3. What is stopping you from starting?
 
-```text
-4. Why can't you start now?
-```
+>4. Why can't you start now?
 
 ## The Prayer
 
@@ -209,8 +201,7 @@ Amen.
 My All-in-all
 </div>
 
-```text
-For all of our days, we will praise your holy name.
+>For all of our days, we will praise your holy name.
 
 For all of our life, we will worship you.
 
@@ -219,7 +210,6 @@ For all that we have, we will love you.
 Be exalted, Lord.
 
 Amen.
-```
 
 <div style="page-break-after: always;"></div>
 

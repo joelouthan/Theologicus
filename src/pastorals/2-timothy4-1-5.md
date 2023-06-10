@@ -134,21 +134,13 @@ Repent of sin. Love God. Love others. Preach the gospel to every creature to the
 
 ## The Discussion
 
-```text
-1. Can any Christian "preach the word" or is that only for preacher and pastors?
-```
+>1. Can any Christian "preach the word" or is that only for preacher and pastors?
 
-```text
-2. How can you preach the word to one other?
-```
+>2. How can you preach the word to one other?
 
-```text
-3. What about this: what would it be like to encourage each other with word or weep with those who are grieving in loss and death? What would that look like in our lives?
-```
+>3. What about this: what would it be like to encourage each other with word or weep with those who are grieving in loss and death? What would that look like in our lives?
 
-```text
-4. Name some of the ways to be better in rightly handling the word of God?
-```
+>4. Name some of the ways to be better in rightly handling the word of God?
 
 ## The Prayer
 
@@ -156,15 +148,13 @@ Repent of sin. Love God. Love others. Preach the gospel to every creature to the
 My Savior God
 </div>
 
-```text
-Unmute my tongue.
+>Unmute my tongue.
 
 Sanctify my words.
 
 I want to worship you. You are my king.
 
 Amen.
-```
 
 <div style="page-break-after: always;"></div>
 

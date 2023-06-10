@@ -122,8 +122,7 @@ Our Blessed Lord
 </div>
 &nbsp;
 
-```text
-All of your Scripture
+>All of your Scripture
   is breathed out by you
   and is profitable for teaching
   for rebuking
@@ -163,5 +162,4 @@ Thank you for the work
 Be our strength and our grace forever, O Lord.
 
 Amen.
-```
 

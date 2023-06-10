@@ -62,9 +62,7 @@ Rejoice on this day.
 
 The 1689 confesses:
 
-```text
-the Son is eternally begotten of the Father
-```
+>the Son is eternally begotten of the Father
 
 >John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 

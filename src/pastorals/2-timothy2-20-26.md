@@ -145,11 +145,9 @@ Our Great God
 </div>
 &nbsp;
 
-```text
-If we are holding on to sins, would you give us the gift to repent so we can let go of our sins, give them over to your Son who bled and died for me, so that we would live to you forever and ever.
+>If we are holding on to sins, would you give us the gift to repent so we can let go of our sins, give them over to your Son who bled and died for me, so that we would live to you forever and ever.
 
 Amen.
-```
 
 <div style="page-break-after: always;"></div>
 

@@ -105,8 +105,7 @@ Our Holy Spirit
 </div>
 &nbsp;
 
-```text
-Show us your precious glory
+>Show us your precious glory
 so that we can start to hope and groan
 for the Son to come back
 and make all things right with Himself.
@@ -119,5 +118,4 @@ Redeem our time here, Lord
 and turn our hearts towards you.
 
 Amen.
-```
 

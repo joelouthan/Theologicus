@@ -101,21 +101,13 @@ We must pick up the Scriptures and *believe*. We must trust the Lord. We must ob
 
 ## The Discussion
 
-```text
-1. What is to believe? Is it the same as knowing?
-```
+>1. What is to believe? Is it the same as knowing?
 
-```text
-2. Read Romans 1:17. What do you think the Lord meant by saying, "The righteous will live by faith?"
-```
+>2. Read Romans 1:17. What do you think the Lord meant by saying, "The righteous will live by faith?"
 
-```text
-3. In other words, is it possible to believe something and not live by that belief?
-```
+>3. In other words, is it possible to believe something and not live by that belief?
 
-```text
-4. How can we believe God?
-```
+>4. How can we believe God?
 
 ## The Prayer
 
@@ -123,11 +115,9 @@ We must pick up the Scriptures and *believe*. We must trust the Lord. We must ob
 My Love Supreme
 </div>
 
-```text
-Show me and change my heart so that I can love you and love others like you love them.
+>Show me and change my heart so that I can love you and love others like you love them.
 
 Amen.
-```
 
 <div style="page-break-after: always;"></div>
 
