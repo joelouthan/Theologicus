@@ -47,6 +47,13 @@ Incredible resource. I have purchased this resource multiple times over for myse
 
 ## Commentaries & Books
 
+<img src="/images/commentary-calvin-set-portrait.jpg" >Calvin's Commentaries.  
+by John Calvin.  
+Baker. 2009.  
+[Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
+
+<p style="clear:both;">
+
 <img src="/images/commentary-psalms-treasury-of-david-spurgeon.jpg">The Treasury of David (Volumes 1-3)  
 Charles Spurgeon.  
 MacDonald Publishing.  
