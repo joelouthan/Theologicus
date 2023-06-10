@@ -30,8 +30,6 @@ Ligonier Ministries. March 16, 2015.
 
 <p style="clear:both;">
 
----
-
 <img src="/images/bible-esv-study.jpg">ESV Study Bible.  
 ESV Text Edition: 2016.  
 Crossway. 2008.  

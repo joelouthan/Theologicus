@@ -5,7 +5,7 @@
     img {
       padding-right: 10px;
       padding-bottom: 10px;
-      width: 150px;
+      width: 100px;
       float: left;
     }
   

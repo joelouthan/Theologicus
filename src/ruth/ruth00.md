@@ -5,7 +5,7 @@
   img {
     padding-right: 10px;
     padding-bottom: 10px;
-    width: 150px;
+    width: 100px;
     float: left;
   }
 
@@ -71,7 +71,7 @@ Incredible resource. I have purchased this resource multiple times over for myse
 
 ## Commentaries & Books
 
-<img src="/images/commentary-calvin-set-portrait.jpg" align="left" width="100" style="padding-right: 10px" />Calvin's Commentaries.  
+<img src="/images/commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
 by John Calvin.  
 Baker. 2009.  
 [Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)

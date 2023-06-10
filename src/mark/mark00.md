@@ -1,5 +1,22 @@
 # The Gospel of Mark
 
+<style>
+
+  img {
+    padding-right: 10px;
+    padding-bottom: 10px;
+    width: 100px;
+    float: left;
+  }
+
+  .olive {
+    padding-left: 10px;
+    width: 50px;
+    float: right
+  }
+
+ </style>
+
 ## The Introduction
 
 I still remember when I first did family devotions. Every Thursday night at dinner.
@@ -28,7 +45,7 @@ As for leading your family through devotions, don't think of outright preaching 
 
 ### It Goes Without Say
 
-<img src="/images/bible-csb-study.jpg" align="left" width="150" style="padding-right: 10px" />Christian Standard Bible  
+<img src="/images/bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
 [Goodreads](https://www.goodreads.com/book/show/30746885-csb-study-bible)
 
@@ -42,7 +59,7 @@ Note: I use the [Christian Standard Bible](https://csbible.com) version on this 
 
 ___
 
-<img src="/images/bible-esv-study.jpg" align="left" width="150" style="padding-right: 10px" />ESV Study Bible  
+<img src="/images/bible-esv-study.jpg">ESV Study Bible  
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
 
@@ -56,7 +73,7 @@ ___
 
 ### Commentaries
 
-<img src="/images/commentary-calvin-set-portrait.jpg" align="left" width="150" style="padding-right: 10px" />Calvin's Commentaries.  
+<img src="/images/commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
 by John Calvin.  
 Baker. 2009.  
 [Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
@@ -67,7 +84,7 @@ Baker. 2009.
 
 ___
 
-<img src="/images/commentary-mark-sproul.jpg" align="left" width="150" style="padding-right: 10px" />Mark: An Expositional Commentary  
+<img src="/images/commentary-mark-sproul.jpg">Mark: An Expositional Commentary  
 by R.C. Sproul.  
 Reformation Trust Publisher. 2011.  
 [Goodreads](https://www.goodreads.com/book/show/13329901-mark?ac=1&from_search=true&qid=AjPCOwNAXj&rank=1)
@@ -80,7 +97,7 @@ Easily read cover-to-cover.
 
 <p style="clear:both;">
 
-<img src="/images/commentary-mark-hendriksen.jpg" align="left" width="150" style="padding-right: 10px" />New Testament Commentary: Exposition of the Gospel According to Mark  
+<img src="/images/commentary-mark-hendriksen.jpg">New Testament Commentary: Exposition of the Gospel According to Mark  
 by William Hendriksen.  
 Baker. 1981.  
 [Goodreads](https://www.goodreads.com/book/show/2365098.Mark)
@@ -100,7 +117,7 @@ That said, that one little blurb in Wikipedia and knowing there was one (1) past
 
 <p style="clear:both;">
 
-<img src="/images/commentary-mark-lane.jpg" align="left" width="150" style="padding-right: 10px" />The Gospel according to Mark: The English Text With Introduction, Exposition, and Notes (The New International Commentary on the New Testament)  
+<img src="/images/commentary-mark-lane.jpg">The Gospel according to Mark: The English Text With Introduction, Exposition, and Notes (The New International Commentary on the New Testament)  
 by William L. Lane.  
 Eerdman's. 1974.  
 [Goodreads](https://www.goodreads.com/book/show/978619.The_Gospel_of_Mark?from_search=true&from_srp=true&qid=UOUMUiJ7z4&rank=2)
@@ -109,7 +126,7 @@ Incredible thorough and wonderfully written, Dr. Lane walks the reader masterful
 
 <p style="clear:both;">
 
-<img src="/images/commentary-mark-oden.jpg" align="left" width="150" style="padding-right: 10px" />Mark (Ancient Christian Commentary on Scripture, NT Volume 2)  
+<img src="/images/commentary-mark-oden.jpg">Mark (Ancient Christian Commentary on Scripture, NT Volume 2)  
 Edited by Thomas C. Odin & Christopher A. Hall  
 IVP Academic. 2005.  
 [Goodreads](https://www.goodreads.com/book/show/33015669-mark)
@@ -118,7 +135,7 @@ I think this entire series is an excellent resource to have on hand if you can p
 
 <p style="clear:both;">
 
-<img src="/images/commentary-mark-gombis.jpg" align="left" width="150" style="padding-right: 10px" />Mark (The Story of God Bible Commentary Series)  
+<img src="/images/commentary-mark-gombis.jpg">Mark (The Story of God Bible Commentary Series)  
 by Timothy G. Gombis.   
 Zondervan Academic. March 9th 2021.  
 [Goodreads](https://www.goodreads.com/book/show/54287613-mark)

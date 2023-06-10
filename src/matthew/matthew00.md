@@ -5,7 +5,7 @@
   img {
     padding-right: 10px;
     padding-bottom: 10px;
-    width: 150px;
+    width: 100px;
     float: left;
   }
 
@@ -55,7 +55,7 @@ Incredible resource. I have purchased this resource multiple times over for myse
 
 I don't have a personal insightful recommendation on the following. I just wanted to have a stack of resources that I can check and draw from if I need to.
 
-<img src="/images/commentary-calvin-set-portrait.jpg" align="left" width="100" style="padding-right: 10px" />Calvin's Commentaries.  
+<img src="/images/commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
 John Calvin.  
 Baker. 2009.  
 [Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
