@@ -1,10 +1,25 @@
 # The Apostles' Creed: Jesus Christ, Fully Man
 
 <style>
+
 bgy { 
   background-color: yellow;
   color: black;
   }
+
+  img {
+    padding-right: 10px;
+    padding-bottom: 10px;
+    width: 100px;
+    float: left;
+  }
+
+  .olive {
+    padding-left: 10px;
+    width: 50px;
+    float: right
+  }
+
 </style>
 
 ## The Creed
@@ -96,6 +111,13 @@ Attack the Christ from every angle just reinforces Romans 1:18-25. To attack Chr
 Carl R. Trueman  
 Crossway, 2012.  
 [Goodreads](https://www.goodreads.com/book/show/14452976-the-creedal-imperative?ac=1&from_search=true&qid=GTaJVGWwOY&rank=1)
+
+<p style="clear:both;">
+
+<img src="/images/book-all-that-is-God-dolezal.jpg">All That Is in God: Evangelical Theology and the Challenge of Classical Christian Theism.  
+James E. Dolezal.  
+Reformation Heritage Books. 2017.  
+[Goodreads](https://www.goodreads.com/book/show/35783848-all-that-is-in-god?from_search=true&from_srp=true&qid=HZn57Z1Qqc&rank=3)
 
 <p style="clear:both;">
 

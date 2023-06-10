@@ -1,6 +1,5 @@
 # The Apostles' Creed: An Introduction & Resources
 
-
 <style>
 
     img {
@@ -99,6 +98,13 @@
 Carl R. Trueman  
 Crossway, 2012.  
 [Goodreads](https://www.goodreads.com/book/show/14452976-the-creedal-imperative?ac=1&from_search=true&qid=GTaJVGWwOY&rank=1)
+
+<p style="clear:both;">
+
+<img src="/images/book-all-that-is-God-dolezal.jpg">All That Is in God: Evangelical Theology and the Challenge of Classical Christian Theism.  
+James E. Dolezal.  
+Reformation Heritage Books. 2017.  
+[Goodreads](https://www.goodreads.com/book/show/35783848-all-that-is-in-god?from_search=true&from_srp=true&qid=HZn57Z1Qqc&rank=3)
 
 <p style="clear:both;">
 
