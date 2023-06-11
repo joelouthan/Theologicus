@@ -40,19 +40,15 @@ Note: I use the [Christian Standard Bible](https://csbible.com) version on this 
 
 <hr style="clear:both;">
 
-___
-
 <img src="/images/bible-esv-study.jpg">ESV Study Bible  
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
 
 Incredible resource. I have purchased this resource multiple times over for myself and friends. If you want one and can't afford one, hit me up.
 
-<img src="/images/icon-bible-olive-tree.png" align="right" width="100" style="padding-left: 10px" />If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
+<img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
 <hr style="clear:both;">
-
-___
 
 ### Commentaries
 
@@ -61,11 +57,9 @@ by John Calvin.
 Baker. 2009.  
 [Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
 
-<img src="/images/icon-bible-olive-tree.png" align="right" width="100" style="padding-left: 10px" />I mention this because in my go-to mobile Bible Study App, [Olive Tree](https://www.olivetree.com), Calvin's Commentaries are my go-to Commentary text of choice when I need clarification on the go. You can get the entire digital set for your phone (and computer) for about $40 from Olive Tree.
+<img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png">I mention this because in my go-to mobile Bible Study App, [Olive Tree](https://www.olivetree.com), Calvin's Commentaries are my go-to Commentary text of choice when I need clarification on the go. You can get the entire digital set for your phone (and computer) for about $40 from Olive Tree.
 
 <hr style="clear:both;">
-
-___
 
 <img src="/images/commentary-mark-sproul.jpg">Mark: An Expositional Commentary  
 by R.C. Sproul.  
@@ -95,9 +89,6 @@ Make no bones about it: it grieves me to the core that Dispensationalism is the 
 
 That said, that one little blurb in Wikipedia and knowing there was one (1) pastor who bucked against Rapture theology, William Hendriksen forever became 'my boy'.
 
-[^1]: Hendriksen, William (2007). Israel in prophecy. London: Wakeman, (Originally published by Baker Book House in 1968). p. 16.
-[^2]: Horner, Barry (15 January 2015). "The Reformed Eschatology of William Hendriksen" (PDF). Future Israel website. Archived from the original (PDF) on 8 March 2015. Retrieved 8 March 2015
-
 <hr style="clear:both;">
 
 <img src="/images/commentary-mark-lane.jpg">The Gospel according to Mark: The English Text With Introduction, Exposition, and Notes (The New International Commentary on the New Testament)  
@@ -124,3 +115,6 @@ Zondervan Academic. March 9th 2021.
 [Goodreads](https://www.goodreads.com/book/show/54287613-mark)
 
 <hr style="clear:both;">
+
+[^1]: Hendriksen, William (2007). Israel in prophecy. London: Wakeman, (Originally published by Baker Book House in 1968). p. 16.
+[^2]: Horner, Barry (15 January 2015). "The Reformed Eschatology of William Hendriksen" (PDF). Future Israel website. Archived from the original (PDF) on 8 March 2015. Retrieved 8 March 2015
