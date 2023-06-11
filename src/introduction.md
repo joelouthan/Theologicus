@@ -13,7 +13,6 @@ img {
   margin-bottom: 10px;
   float: left;
   }
-}
 
 </style>
 
