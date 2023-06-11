@@ -24,18 +24,19 @@ Through judgment and wrath and righteousness and the holiness of God and his rig
 <style>
 
     img {
-      padding-right: 10px;
-      padding-bottom: 10px;
+      margin-top: 10px;
+      margin-right: 10px;
+      margin-bottom: 10px;
       width: 100px;
       float: left;
     }
   
     .olive {
-      padding-left: 10px;
+      margin-left: 10px;
       width: 50px;
       float: right
     }
-  
+
 </style>
 
 ## The Text

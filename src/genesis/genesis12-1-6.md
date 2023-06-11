@@ -17,18 +17,19 @@ I want you to keep in mind when we read and study Genesis 12, God is putting tog
 <style>
 
     img {
-      padding-right: 10px;
-      padding-bottom: 10px;
+      margin-top: 10px;
+      margin-right: 10px;
+      margin-bottom: 10px;
       width: 100px;
       float: left;
     }
   
     .olive {
-      padding-left: 10px;
+      margin-left: 10px;
       width: 50px;
       float: right
     }
-  
+
 </style>
 
 ## The Text

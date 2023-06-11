@@ -27,18 +27,19 @@ But what is the end of sin? We are just six chapters in the Bible itself and God
 <style>
 
     img {
-      padding-right: 10px;
-      padding-bottom: 10px;
+      margin-top: 10px;
+      margin-right: 10px;
+      margin-bottom: 10px;
       width: 100px;
       float: left;
     }
   
     .olive {
-      padding-left: 10px;
+      margin-left: 10px;
       width: 50px;
       float: right
     }
-  
+
 </style>
 
 ## The Text
