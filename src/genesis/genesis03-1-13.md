@@ -1,23 +1,5 @@
 # Genesis 3:1-13 The Gospel Needed
 
-<style>
-
-    img {
-      margin-top: 10px;
-      margin-right: 10px;
-      margin-bottom: 10px;
-      width: 100px;
-      float: left;
-    }
-  
-    .olive {
-      margin-left: 10px;
-      width: 50px;
-      float: right
-    }
-
-</style>
-
 ## The Text
 
 >Genesis 3:1-13 (CSB) Now the serpent was the most cunning of all the wild animals that the LORD God had made. He said to the woman, “Did God really say, ‘You can’t eat from any tree in the garden’?”

@@ -33,24 +33,6 @@ We are 12 chapters into the Bible where when God makes a promise to mankind, man
 
 Do you think it will be different this time around?
 
-<style>
-
-    img {
-      margin-top: 10px;
-      margin-right: 10px;
-      margin-bottom: 10px;
-      width: 100px;
-      float: left;
-    }
-  
-    .olive {
-      margin-left: 10px;
-      width: 50px;
-      float: right
-    }
-
-</style>
-
 ## The Text
 
 >Genesis 12:7-20 (CSB)

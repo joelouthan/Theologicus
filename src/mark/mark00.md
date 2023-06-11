@@ -1,23 +1,5 @@
 # The Gospel of Mark
 
-<style>
-
-  img {
-    margin-top: 10px;
-    margin-right: 10px;
-    margin-bottom: 10px;
-    width: 100px;
-    float: left;
-  }
-
-  .olive {
-    margin-left: 10px;
-    width: 50px;
-    float: right
-  }
-
- </style>
-
 ## The Introduction
 
 I still remember when I first did family devotions. Every Thursday night at dinner.

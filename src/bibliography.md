@@ -2,13 +2,6 @@
 
 <style>
 
-  img {
-    padding-right: 10px;
-    padding-bottom: 10px;
-    width: 100px;
-    float: left;
-  }
-
   h2, h3, h4 {
     text-align: center;
   }

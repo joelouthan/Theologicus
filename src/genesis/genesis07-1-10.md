@@ -22,24 +22,6 @@ God is going to bring judgment and he will spare and protect his people.
 
 Let us get into the text and see how this goes.
 
-<style>
-
-    img {
-      margin-top: 10px;
-      margin-right: 10px;
-      margin-bottom: 10px;
-      width: 100px;
-      float: left;
-    }
-  
-    .olive {
-      margin-left: 10px;
-      width: 50px;
-      float: right
-    }
-
-</style>
-
 ## The Text
 
 >Genesis 7:1–10 (CSB)  

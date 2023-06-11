@@ -28,24 +28,6 @@ Sounds familiar? Like a parent to a child? Like a husband to a wife? Like home t
 
 Let us examine the covenant--the unbreakable promise of God.
 
-<style>
-
-    img {
-      margin-top: 10px;
-      margin-right: 10px;
-      margin-bottom: 10px;
-      width: 100px;
-      float: left;
-    }
-  
-    .olive {
-      margin-left: 10px;
-      width: 50px;
-      float: right
-    }
-
-</style>
-
 ## The Text
 
 >Genesis 9:1–7 (CSB)  

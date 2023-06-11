@@ -1,23 +1,5 @@
 # Ruth: An Introduction & Resources
 
-<style>
-
-  img {
-    margin-top: 10px;
-    margin-right: 10px;
-    margin-bottom: 10px;
-    width: 100px;
-    float: left;
-  }
-
-  .olive {
-    margin-left: 10px;
-    width: 50px;
-    float: right
-  }
-
- </style>
-
 ## The Introduction
 
 There is no doubt in anybody's mind that Jesus Christ, the Son of God, who is God, was born Jewish and is very much Jewish. He was born to Mary and Joseph--which we can tell by the Christ genealogies in both Matthew 1 & Luke 3 that Jesus is double the son of King David. That is, one lineage through Solomon to Joseph and one lineage through Nathan to Mary.

@@ -21,24 +21,6 @@
 
 Through judgment and wrath and righteousness and the holiness of God and his right decisions, the people of God who have put their faith, trust, believe, and obedience and yes, hope, in their Christ alone, will be saved.
 
-<style>
-
-    img {
-      margin-top: 10px;
-      margin-right: 10px;
-      margin-bottom: 10px;
-      width: 100px;
-      float: left;
-    }
-  
-    .olive {
-      margin-left: 10px;
-      width: 50px;
-      float: right
-    }
-
-</style>
-
 ## The Text
 
 >Genesis 8:15–22 (CSB)  

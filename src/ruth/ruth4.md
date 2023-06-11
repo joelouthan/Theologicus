@@ -1,23 +1,5 @@
 # Ruth 4 God Brings Us All The Way Home
 
-<style>
-
-  img {
-    margin-top: 10px;
-    margin-right: 10px;
-    margin-bottom: 10px;
-    width: 100px;
-    float: left;
-  }
-
-  .olive {
-    margin-left: 10px;
-    width: 50px;
-    float: right
-  }
-
- </style>
-
 >Ruth 4 (CSB)  
 ><sup>1</sup> Boaz went to the gate of the town and sat down there. Soon the family redeemer Boaz had spoken about came by. Boaz said, “Come over here and sit down.” So he went over and sat down.
 >

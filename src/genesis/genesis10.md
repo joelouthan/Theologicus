@@ -8,24 +8,6 @@ It might help to know where we came from, who are our ancestors, or what's in ou
 
 Let us examine the passage and get into it.
 
-<style>
-
-    img {
-      margin-top: 10px;
-      margin-right: 10px;
-      margin-bottom: 10px;
-      width: 100px;
-      float: left;
-    }
-  
-    .olive {
-      margin-left: 10px;
-      width: 50px;
-      float: right
-    }
-
-</style>
-
 ## The Text
 
 >Genesis 10 (CSB)  

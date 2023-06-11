@@ -32,24 +32,6 @@ Yet, not even Noah cried out for mercy and grace. But God extended to him.
 
 And not even the salvation of Noah was a big enough warning to everybody else around Noah that something is terribly wrong and it is coming for them.
 
-<style>
-
-    img {
-      margin-top: 10px;
-      margin-right: 10px;
-      margin-bottom: 10px;
-      width: 100px;
-      float: left;
-    }
-  
-    .olive {
-      margin-left: 10px;
-      width: 50px;
-      float: right
-    }
-
-</style>
-
 ## The Text
 
 > Genesis 6:10–22 (CSB)  

@@ -1,23 +1,5 @@
 # Genesis 4 The Gospel Meeting
 
-<style>
-
-    img {
-      margin-top: 10px;
-      margin-right: 10px;
-      margin-bottom: 10px;
-      width: 100px;
-      float: left;
-    }
-  
-    .olive {
-      margin-left: 10px;
-      width: 50px;
-      float: right
-    }
-
-</style>
-
 ## The Text
 
 >Genesis 4 (CSB) The man was intimate with his wife Eve, and she conceived and gave birth to Cain. She said, “I have had a male child with the LORD’s help.” 2 She also gave birth to his brother Abel. Now Abel became a shepherd of flocks, but Cain worked the ground. 3 In the course of time Cain presented some of the land’s produce as an offering to the LORD. 4 And Abel also presented an offering—some of the firstborn of his flock and their fat portions. The LORD had regard for Abel and his offering, 5 but he did not have regard for Cain and his offering. Cain was furious, and he looked despondent.

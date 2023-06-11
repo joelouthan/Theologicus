@@ -18,24 +18,6 @@ But let me tell you what God does here is one of the grandest displays of redemp
 
 Let us get into it.
 
-<style>
-
-    img {
-      margin-top: 10px;
-      margin-right: 10px;
-      margin-bottom: 10px;
-      width: 100px;
-      float: left;
-    }
-  
-    .olive {
-      margin-left: 10px;
-      width: 50px;
-      float: right
-    }
-
-</style>
-
 ## The Text
 
 >Genesis 9:8–17 (CSB)  

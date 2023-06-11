@@ -1,23 +1,5 @@
 # Ruth 3:1-9 God's Redeeming Work for His People
 
-<style>
-
-  img {
-    margin-top: 10px;
-    margin-right: 10px;
-    margin-bottom: 10px;
-    width: 100px;
-    float: left;
-  }
-
-  .olive {
-    margin-left: 10px;
-    width: 50px;
-    float: right
-  }
-
- </style>
-
 >Ruth 3:1-9 (CSB)  
 ><sup>1</sup> Ruth’s mother-in-law Naomi said to her, “My daughter, shouldn’t I find rest for you, so that you will be taken care of?
 >

@@ -1,22 +1,5 @@
 # Luke: A Few Resources
 
-<style>
-
-  img {
-    padding-right: 10px;
-    padding-bottom: 10px;
-    width: 100px;
-    float: left;
-  }
-
-  .olive {
-    padding-left: 10px;
-    width: 100px;
-    float: right
-  }
-
- </style>
-
 ## It Goes Without Say
 
 <img src="/images/bible-csb-study.jpg">Christian Standard Bible  

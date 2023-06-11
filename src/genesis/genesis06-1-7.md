@@ -24,24 +24,6 @@ How's that working for us?
 
 But what is the end of sin? We are just six chapters in the Bible itself and God reveals to us just how quickly it goes demonic, dark, and dead.
 
-<style>
-
-    img {
-      margin-top: 10px;
-      margin-right: 10px;
-      margin-bottom: 10px;
-      width: 100px;
-      float: left;
-    }
-  
-    .olive {
-      margin-left: 10px;
-      width: 50px;
-      float: right
-    }
-
-</style>
-
 ## The Text
 
 Let us start off by reading the text first and then go to God in prayer:

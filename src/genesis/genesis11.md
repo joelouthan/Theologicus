@@ -39,24 +39,6 @@ Now, if you got a glance at today's study in Genesis 11, you might be asking, "W
 
 I am so glad you asked that question.
 
-<style>
-
-    img {
-      margin-top: 10px;
-      margin-right: 10px;
-      margin-bottom: 10px;
-      width: 100px;
-      float: left;
-    }
-  
-    .olive {
-      margin-left: 10px;
-      width: 50px;
-      float: right
-    }
-
-</style>
-
 ## The Text
 
 >Genesis 11 (CSB)  
