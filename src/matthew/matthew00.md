@@ -22,8 +22,6 @@ Note: I use the [Christian Standard Bible](https://csbible.com) version on this 
 
 <hr style="clear:both;">
 
----
-
 <img src="/images/bible-esv-study.jpg">ESV Study Bible  
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)

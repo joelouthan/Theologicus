@@ -51,8 +51,6 @@ Zondervan. 2011.
 
 <hr style="clear:both;">
 
------------
-
 ## Books
 
 <img src="/images/book-all-that-is-God-dolezal.jpg">All That Is in God: Evangelical Theology and the Challenge of Classical Christian Theism.  
@@ -75,8 +73,6 @@ Banner of Trust. 1991.
 [Goodreads](https://www.goodreads.com/book/show/4011534-no-condemnation-in-christ-jesus?ac=1&from_search=true&qid=K1waoHAVw7&rank=1)
 
 <hr style="clear:both;">
-
------------
 
 ## Expositions
 
@@ -121,8 +117,6 @@ The Directory for the Public Worship of God, with Associated Historical Document
 [Goodreads](https://www.goodreads.com/book/show/39905592-the-westminster-confession?ac=1&from_search=true&qid=oMfahlcldC&rank=1)
 
 <hr style="clear:both;">
-
------------
 
 ## Commentaries
 
@@ -376,8 +370,6 @@ Lexham Press. 2021.
 [Goodreads](https://www.goodreads.com/book/show/57585155-1-2-timothy-and-titus?ac=1&from_search=true&qid=t1XEFOJTqe&rank=2)
 
 <hr style="clear:both;">
-
------------
 
 ## Sources
 
