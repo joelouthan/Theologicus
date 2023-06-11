@@ -1,22 +1,5 @@
 # Genesis: An Introduction & Resources
 
-<style>
-  
-    img {
-      padding-right: 10px;
-      padding-bottom: 10px;
-      width: 100px;
-      float: left;
-    }
-  
-    .olive {
-      padding-left: 10px;
-      width: 50px;
-      float: right
-    }
-  
-</style>
-
 ## Introduction
 
 Why Genesis? The pat answer is that it is beginning of everything that God has done. Everything we read from Exodus on, including and especially in the Gospels, can be traced right back to the first instance in Genesis.
@@ -47,7 +30,7 @@ Crossway. 2016.
 
 Incredible resource. I have purchased this resource multiple times over for myself and friends. If you want one and can't afford one, hit me up.
 
-<img class="olive" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
+<img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
 <p style="clear:both;">
 
