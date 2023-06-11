@@ -39,6 +39,23 @@ Now, if you got a glance at today's study in Genesis 11, you might be asking, "W
 
 I am so glad you asked that question.
 
+<style>
+
+    img {
+      padding-right: 10px;
+      padding-bottom: 10px;
+      width: 100px;
+      float: left;
+    }
+  
+    .olive {
+      padding-left: 10px;
+      width: 50px;
+      float: right
+    }
+  
+</style>
+
 ## The Text
 
 >Genesis 11 (CSB)  

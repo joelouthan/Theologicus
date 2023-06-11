@@ -2,6 +2,23 @@
 
 ## The Introduction
 
+<style>
+
+    img {
+      padding-right: 10px;
+      padding-bottom: 10px;
+      width: 100px;
+      float: left;
+    }
+  
+    .olive {
+      padding-left: 10px;
+      width: 50px;
+      float: right
+    }
+  
+</style>
+
 ## The Text
 
 ><sup> 1 </sup> In those days King Amraphel of Shinar, King Arioch of Ellasar, King Chedorlaomer of Elam, and King Tidal of Goiim 

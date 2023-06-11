@@ -14,6 +14,23 @@ Is there even a cure for this? As Paul cries out at the end of Romans 7, "Who wi
 
 Let us search for the answer.
 
+<style>
+
+    img {
+      padding-right: 10px;
+      padding-bottom: 10px;
+      width: 100px;
+      float: left;
+    }
+  
+    .olive {
+      padding-left: 10px;
+      width: 50px;
+      float: right
+    }
+  
+</style>
+
 ## The Text
 
 >Genesis 6:8-9 (CSB) Noah, however, found favor with the LORD.

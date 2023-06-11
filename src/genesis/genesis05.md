@@ -1,5 +1,22 @@
 # Genesis 5 The Gospel Plan
 
+<style>
+
+    img {
+      padding-right: 10px;
+      padding-bottom: 10px;
+      width: 100px;
+      float: left;
+    }
+  
+    .olive {
+      padding-left: 10px;
+      width: 50px;
+      float: right
+    }
+  
+</style>
+
 ## The Text
 
 >Genesis 5 (CSB) This is the document containing the family records of Adam. On the day that God created man, he made him in the likeness of God; 2 he created them male and female. When they were created, he blessed them and called them mankind.

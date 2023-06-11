@@ -16,6 +16,23 @@ Genesis 12:1-6 is the Election, Predestination and Calling of God on those whom 
 
 Now that we have leveled it all out. Here is the mundane everyday life in the gospel. The ordinary. The grind. The toil.
 
+<style>
+
+    img {
+      padding-right: 10px;
+      padding-bottom: 10px;
+      width: 100px;
+      float: left;
+    }
+  
+    .olive {
+      padding-left: 10px;
+      width: 50px;
+      float: right
+    }
+  
+</style>
+
 ## The Text
 
 >Genesis 13 (CSB)  

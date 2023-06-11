@@ -1,5 +1,22 @@
 # Genesis 1:6-13 Our Forever Home
 
+<style>
+
+    img {
+      padding-right: 10px;
+      padding-bottom: 10px;
+      width: 100px;
+      float: left;
+    }
+  
+    .olive {
+      padding-left: 10px;
+      width: 50px;
+      float: right
+    }
+  
+</style>
+
 ## The Text
 
 >Genesis 1:6-13 (CSB) Then God said, “Let there be an expanse between the waters, separating water from water.” So God made the expanse and separated the water under the expanse from the water above the expanse. And it was so. God called the expanse “sky.” Evening came and then morning: the second day.

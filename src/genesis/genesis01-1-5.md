@@ -1,5 +1,22 @@
 # Genesis 1:1-5 Our Forever Wisdom
 
+<style>
+
+    img {
+      padding-right: 10px;
+      padding-bottom: 10px;
+      width: 100px;
+      float: left;
+    }
+  
+    .olive {
+      padding-left: 10px;
+      width: 50px;
+      float: right
+    }
+  
+</style>
+
 ## The Text
 
 >Genesis 1:1-5 (CSB) In the beginning God created the heavens and the earth.

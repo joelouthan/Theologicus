@@ -20,6 +20,23 @@ For those who have run to the arms of the Savior and given over their sins, thei
 
 Let us get into the text.
 
+<style>
+
+    img {
+      padding-right: 10px;
+      padding-bottom: 10px;
+      width: 100px;
+      float: left;
+    }
+  
+    .olive {
+      padding-left: 10px;
+      width: 50px;
+      float: right
+    }
+  
+</style>
+
 ## The Text
 
 >Genesis 8:1–14 (CSB)  

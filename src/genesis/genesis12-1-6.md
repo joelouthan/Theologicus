@@ -14,6 +14,23 @@ Ever person listed, whether saved by God or not, matters to him because He loves
 
 I want you to keep in mind when we read and study Genesis 12, God is putting together his people through one man. We just read his family of origin. Let us see how and perhaps why God chose Abraham.
 
+<style>
+
+    img {
+      padding-right: 10px;
+      padding-bottom: 10px;
+      width: 100px;
+      float: left;
+    }
+  
+    .olive {
+      padding-left: 10px;
+      width: 50px;
+      float: right
+    }
+  
+</style>
+
 ## The Text
 
 >Genesis 12:1-6 (CSB)  

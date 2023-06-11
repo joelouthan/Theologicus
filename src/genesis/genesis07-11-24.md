@@ -30,6 +30,23 @@ And throughout the annuals of history, you have seen the will of man--under the 
 
 One thing to note: in literature, you will almost never see the hero show their hand so quickly in the book. We are but seven chapters into the first book and already the Lord God Almighty will show the fullest extend of his will--to those who would breath his air without thanks and to those who would praise his name with every breath they draw in and all peoples in-between.
 
+<style>
+
+    img {
+      padding-right: 10px;
+      padding-bottom: 10px;
+      width: 100px;
+      float: left;
+    }
+  
+    .olive {
+      padding-left: 10px;
+      width: 50px;
+      float: right
+    }
+  
+</style>
+
 ## The Text
 
 >Genesis 7:11–24 (CSB)  

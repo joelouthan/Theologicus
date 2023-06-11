@@ -19,6 +19,23 @@ I think it is the cry of most people and most Christians, "I want an easier life
 
 God in his almightiness most certainly make our circumstances perfect. What do you think the response of mankind to these perfect circumstances?
 
+<style>
+
+    img {
+      padding-right: 10px;
+      padding-bottom: 10px;
+      width: 100px;
+      float: left;
+    }
+  
+    .olive {
+      padding-left: 10px;
+      width: 50px;
+      float: right
+    }
+  
+</style>
+
 ## The Text
 
 >Genesis 9:18–29 (CSB)  

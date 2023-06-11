@@ -1,5 +1,22 @@
 # Genesis 2:4-25 Our Forever Righteousness
 
+<style>
+
+    img {
+      padding-right: 10px;
+      padding-bottom: 10px;
+      width: 100px;
+      float: left;
+    }
+  
+    .olive {
+      padding-left: 10px;
+      width: 50px;
+      float: right
+    }
+  
+</style>
+
 ## The Text
 
 >Genesis 2:4-25 (CSB) These are the records of the heavens and the earth, concerning their creation. At the time that the LORD God made the earth and the heavens, no shrub of the field had yet grown on the land, and no plant of the field had yet sprouted, for the LORD God had not made it rain on the land, and there was no man to work the ground. But mist would come up from the earth and water all the ground. Then the LORD God formed the man out of the dust from the ground and breathed the breath of life into his nostrils, and the man became a living being.
