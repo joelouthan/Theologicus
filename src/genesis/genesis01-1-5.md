@@ -14,7 +14,7 @@
       width: 50px;
       float: right
     }
-  
+
 </style>
 
 ## The Text

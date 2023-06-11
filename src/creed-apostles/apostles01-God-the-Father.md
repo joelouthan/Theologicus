@@ -2,7 +2,7 @@
 
 <style>
 
-bgy { 
+  bgy { 
   background-color: yellow;
   color: black;
   }
@@ -14,6 +14,7 @@ bgy {
     width: 100px;
     float: left;
   }
+  
 
   .olive {
     margin-left: 10px;
