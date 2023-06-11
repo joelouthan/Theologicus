@@ -11,8 +11,6 @@ All notable changes to this project will be documented in this file.
 
 <hr style="clear:both;">
 
----
-
 ## 2.4.0 (2023-04-13)
 
 - [The Epistle to the Romans](romans/romans00.md)
