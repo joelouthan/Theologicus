@@ -20,8 +20,6 @@ Let us search for the answer.
 
 ><sup> 9 </sup>These are the family records of Noah. Noah was a righteous man, blameless among his contemporaries; Noah walked with God.
 
-<div style="page-break-after: always;"></div>
-
 **Where do you see God in the text? What does the text say about God?**
 
 ## God

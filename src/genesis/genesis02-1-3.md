@@ -18,8 +18,6 @@ One thing has always been consistent: we are to obey our Creator and we are to r
 
 But why?
 
-<div style="page-break-after: always;"></div>
-
 **Where do you see God in the text? What does the text say about God?**
 
 ## God

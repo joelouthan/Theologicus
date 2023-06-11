@@ -116,5 +116,3 @@ My Christ
 
 Amen.
 
-<div style="page-break-after: always;"></div>
-

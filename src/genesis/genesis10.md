@@ -8,8 +8,6 @@ It might help to know where we came from, who are our ancestors, or what's in ou
 
 Let us examine the passage and get into it.
 
-<div style="page-break-after: always;"></div>
-
 ## The Text
 
 >Genesis 10 (CSB)  
@@ -79,8 +77,6 @@ Let us examine the passage and get into it.
 
 ## The Support
 
-<div style="page-break-after: always;"></div>
-
 >Where do you see God in the text? What does the text say about God?
 
 ## Our God
@@ -106,8 +102,6 @@ Out of the flood, fallen children of Adam once again populated the earth. Holine
 Not so with God, who rules and reigns over all of creation.
 
 Let us examine the difference between the kingdom of the world vs. kingdom of God:
-
-<div style="page-break-after: always;"></div>
 
 ## Kingdom of Babylon vs. Kingdom of God
 
@@ -347,8 +341,6 @@ Not upon the strength of our faith but based on the strength of the Almighty God
 >Ephesians 2:8-9 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift— not from works, so that no one can boast.
 
 What is God's gift? Salvation, grace, faith? The answer is yes--all three.
-
-<div style="page-break-after: always;"></div>
 
 ## Our Response
 

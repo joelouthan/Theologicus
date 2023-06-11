@@ -46,8 +46,6 @@ God in his almightiness most certainly make our circumstances perfect. What do y
 >
 ><sup> 29 </sup> So Noah’s life lasted 950 years; then he died.
 
-<div style="page-break-after: always;"></div>
-
 **Where do you see God in the text? What does the text say about God?**
 
 ## God

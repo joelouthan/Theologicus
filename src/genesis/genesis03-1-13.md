@@ -24,8 +24,6 @@
 
 >Romans 5:12 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.
 
-<div style="page-break-after: always;"></div>
-
 ## God
 
 In this particular study, I was tempted in breaking my usual template and wanted to step away from examining God first. But the more I read the passage,  the more we can see what the passage does proclaim God *in the light of the lies and the schemes of devil.*

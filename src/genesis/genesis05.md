@@ -33,8 +33,6 @@
 >38 son of Enos, son of Seth,  
 >son of Adam, son of God.
 
-<div style="page-break-after: always;"></div>
-
 **Where do you see God in the text? What does the text say about God?**
 
 ## God

@@ -16,8 +16,6 @@ Genesis 12:1-6 is the Election, Predestination and Calling of God on those whom 
 
 Now that we have leveled it all out. Here is the mundane everyday life in the gospel. The ordinary. The grind. The toil.
 
-<div style="page-break-after: always;"></div>
-
 ## The Text
 
 >Genesis 13 (CSB)  
@@ -107,8 +105,6 @@ Why bother?
 
 Because we will not live unless God saves us. And that life doesn't start when we get to heaven but it starts when the Triune God makes his home in you the moment you first believe.
 
-<div style="page-break-after: always;"></div>
-
 Here is the gospel life.
 
 ## The Gospel
@@ -156,8 +152,6 @@ We are always tempted to go back to the world. Oh, I wish I could give a testimo
 ### This Life: You get to be with God forever
 
 Choose the way of wickedness and the world and you will not dwell with God. Choose God and you get to dwell with God because God dwells in you. Once God has made his home in you, you are in Him forever. His steadfast love never ceases. His love never comes to end.
-
-<div style="page-break-after: always;"></div>
 
 ## Our Response
 

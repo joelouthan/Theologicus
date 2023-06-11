@@ -39,8 +39,6 @@ So many of the laws of God deals with how we are to treat other humans. Do not s
 >
 >As the cloud moved away from the tent, Miriam’s skin suddenly became diseased, resembling snow. When Aaron turned toward her, he saw that she was diseased and said to Moses, “My lord, please don’t hold against us this sin we have so foolishly committed. Please don’t let her be like a dead baby whose flesh is half eaten away when he comes out of his mother’s womb.”
 
-<div style="page-break-after: always;"></div>
-
 **Where do you see God in the text? What does the text say about God?**
 
 ## God

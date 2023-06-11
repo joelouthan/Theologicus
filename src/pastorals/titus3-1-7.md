@@ -17,8 +17,6 @@
 >
 ><sup> 7 </sup> so that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
-<div style="page-break-after: always;"></div>
-
 ## The Meditation
 
 ><sup> 1 </sup> Remind them to submit to rulers and authorities, to obey, to be ready for every good work, 

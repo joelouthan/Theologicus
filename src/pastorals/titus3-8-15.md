@@ -19,8 +19,6 @@
 >
 ><sup> 15  </sup>All those who are with me send you greetings. Greet those who love us in the faith. Grace be with all of you.
 
-<div style="page-break-after: always;"></div>
-
 ## The Meditation
 
 ><sup> 8  </sup>This saying is trustworthy. I want you to insist on these things, so that those who have believed God might be careful to devote themselves to good works. These are good and profitable for everyone.

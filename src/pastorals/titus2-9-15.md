@@ -17,8 +17,6 @@
 >
 ><sup> 15 </sup> Proclaim these things; encourage and rebuke with all authority. Let no one disregard you.
 
-<div style="page-break-after: always;"></div>
-
 ## The Meditation
 
 ><sup> 9 </sup> Slaves are to submit to their masters in everything, and to be well-pleasing, not talking back <sup> 10 </sup> or stealing, but demonstrating utter faithfulness, so that they may adorn the teaching of God our Savior in everything. 

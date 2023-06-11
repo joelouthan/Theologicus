@@ -61,8 +61,6 @@ One thing to note: in literature, you will almost never see the hero show their 
 >
 ><sup> 24 </sup> And the water surged on the earth 150 days.
 
-<div style="page-break-after: always;"></div>
-
 **Where do you see God in the text? What does the text say about God?**
 
 ## God

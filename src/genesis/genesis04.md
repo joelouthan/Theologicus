@@ -36,8 +36,6 @@
 >
 >16 Don’t be deceived, my dear brothers and sisters. 17 Every good and perfect gift is from above, coming down from the Father of lights, who does not change like shifting shadows. 18 By his own choice, he gave us birth by the word of truth so that we would be a kind of firstfruits of his creatures.
 
-<div style="page-break-after: always;"></div>
-
 **Where do you see God in the text? What does the text say about God?**
 
 ## God

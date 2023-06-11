@@ -20,8 +20,6 @@ But all that God did was by his wisdom. God's wisdom was meant for all of creati
 
 Let us see how the wisdom of God was there in beginning. And despite our fallen world, we can see where the wisdom of God permeated unscathed throughout all of time.
 
-<div style="page-break-after: always;"></div>
-
 **Where do you see God in the text? What does the text say about God?**
 
 ## God

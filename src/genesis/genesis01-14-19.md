@@ -8,8 +8,6 @@
 
 >John 8:12 (CSB) Jesus spoke to them again: “I am the light of the world. Anyone who follows me will never walk in the darkness but will have the light of life.”
 
-<div style="page-break-after: always;"></div>
-
 **Where do you see God in the text? What does the text say about God?**
 
 ## God

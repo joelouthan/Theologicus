@@ -13,8 +13,6 @@
 >
 ><sup> 9 </sup>holding to the faithful message as taught, so that he will be able both to encourage with sound teaching and to refute those who contradict it.
 
-<div style="page-break-after: always;"></div>
-
 ## The Meditation
 
 ><sup> 5 </sup>The reason I left you in Crete was to set right what was left undone and, as I directed you, to appoint elders in every town. 
@@ -181,6 +179,4 @@ Beckoning of our Souls
 >Call us to love and minister to one another.
 
 Amen.
-
-<div style="page-break-after: always;"></div>
 

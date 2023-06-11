@@ -12,8 +12,6 @@ Before the heavens and the earth were formed, before the mountains took shape an
 
 What was God doing before he created the heavens and the earth? In other words, what was God doing before Genesis 1:1?
 
-<div style="page-break-after: always;"></div>
-
 **Where do you see God in the text? What does the text say about God?**
 
 ## God

@@ -33,8 +33,6 @@ We are 12 chapters into the Bible where when God makes a promise to mankind, man
 
 Do you think it will be different this time around?
 
-<div style="page-break-after: always;"></div>
-
 ## The Text
 
 >Genesis 12:7-20 (CSB)
@@ -189,8 +187,6 @@ God alone is our provision. And I know we make mistakes or we don't make a mista
 
 As foolish and sinful as Abram was in response to getting a promise from God, Abram did not tried to make his way right. Whatever is really wrong with this world, God will make all things right with himself. He starts with us. And he started and finished because he sent his only begotten Son, the Lord Jesus Christ.
 
-<div style="page-break-after: always;"></div>
-
 ## The Gospel
 
 ### Preserved by God: Here is where God lives
@@ -266,8 +262,6 @@ One last thing he did: he paved way so that you can come all the way home to him
 >2 Corinthians 5:20-21 (CSB) Therefore, we are ambassadors for Christ, since God is making his appeal through us. We plead on Christ’s behalf, “Be reconciled to God.” He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
 He has paved the road of righteousness. Christ has made all things new--starting with Christ in you and the Spirit bringing you all the way home to him.
-
-<div style="page-break-after: always;"></div>
 
 ## Our Response
 

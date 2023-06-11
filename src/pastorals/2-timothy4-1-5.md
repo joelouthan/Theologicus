@@ -13,8 +13,6 @@
 >
 ><sup> 5 </sup> But as for you, exercise self-control in everything, endure hardship, do the work of an evangelist, fulfill your ministry. 
 
-<div style="page-break-after: always;"></div>
-
 ## The Meditation
 
 This is our commission.
@@ -155,6 +153,4 @@ Sanctify my words.
 I want to worship you. You are my king.
 
 Amen.
-
-<div style="page-break-after: always;"></div>
 

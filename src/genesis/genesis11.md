@@ -39,8 +39,6 @@ Now, if you got a glance at today's study in Genesis 11, you might be asking, "W
 
 I am so glad you asked that question.
 
-<div style="page-break-after: always;"></div>
-
 ## The Text
 
 >Genesis 11 (CSB)  
@@ -108,8 +106,6 @@ I am so glad you asked that question.
 >
 ><sup> 32 </sup> Terah lived 205 years and died in Haran.
 
-<div style="page-break-after: always;"></div>
-
 ## Our God
 
 Let me sum up philosophy in the light of orthodox, right, proper theology: Philosophy is excellent in explaining the depravity of man and when used correctly, can predict the direction of the society in about 50 years. Philosophy, however, is the worst at fixing the depravity and problems of mankind.
@@ -166,8 +162,6 @@ The world already rejects this notion. It's supernatural, divine, and robs us of
 ![KKK Rally - Jesus Saves](/images/kkk-jesus-saves.jpeg "KKK Rally but Jesus Saves")
 
 They would argue that Christianity and the gospel doesn't work because it doesn't do enough to protect people from the evils of the world.
-
-<div style="page-break-after: always;"></div>
 
 ## The Gospel
 

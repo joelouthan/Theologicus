@@ -13,8 +13,6 @@
 >
 ><sup> 17 </sup> so that the man of God may be complete, equipped for every good work.
 
-<div style="page-break-after: always;"></div>
-
 ## The Meditation
 
 If you know me or if you been on this channel for a while, you know I grew up Charismatic (Assemblies of God)--yes I think the gifts of the Spirit are still here today mostly because if for nothing else, the word of God did not declare them to cease. I could go off church history and perhaps other people's experience and point to that as proof positive that the gifts of the Spirit have been stopped. But I also know that Christ said that the power of the Spirit, comes and goes as He pleases and you will see the effects of this power and not a moment before. So if God was silent for 400 years between the Old and New Testament, then I see where the Holy Spirit throughout the NT church has either pulled away or moved mightily through the people of God whom God has set his gracious affections upon since before Genesis 1:1.
@@ -118,6 +116,4 @@ My Love Supreme
 >Show me and change my heart so that I can love you and love others like you love them.
 
 Amen.
-
-<div style="page-break-after: always;"></div>
 

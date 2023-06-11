@@ -44,8 +44,6 @@
 >
 >8 Then the LORD said to Moses, “Make a snake image and mount it on a pole. When anyone who is bitten looks at it, he will recover.” 9 So Moses made a bronze snake and mounted it on a pole. Whenever someone was bitten, and he looked at the bronze snake, he recovered.
 
-<div style="page-break-after: always;"></div>
-
 **Where do you see God in the text? What does the text say about God?**
 
 ## God

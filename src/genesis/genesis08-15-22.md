@@ -44,8 +44,6 @@ Through judgment and wrath and righteousness and the holiness of God and his rig
 
 >2 Corinthians 1:20 (CSB) For every one of God’s promises is “Yes” in him. Therefore, through him we also say “Amen” to the glory of God.
 
-<div style="page-break-after: always;"></div>
-
 **Where do you see God in the text? What does the text say about God?**
 
 ## God

@@ -149,5 +149,3 @@ Our Great God
 
 Amen.
 
-<div style="page-break-after: always;"></div>
-

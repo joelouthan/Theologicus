@@ -14,8 +14,6 @@ Ever person listed, whether saved by God or not, matters to him because He loves
 
 I want you to keep in mind when we read and study Genesis 12, God is putting together his people through one man. We just read his family of origin. Let us see how and perhaps why God chose Abraham.
 
-<div style="page-break-after: always;"></div>
-
 ## The Text
 
 >Genesis 12:1-6 (CSB)  
@@ -75,8 +73,6 @@ Since you and me are alive to Christ, you and I get to minister and love and ser
 
 ><sup> 5 </sup> He took his wife, Sarai, his nephew Lot, all the possessions they had accumulated, and the people they had acquired in Haran, and they set out for the land of Canaan. When they came to the land of Canaan, 
 
-<div style="page-break-after: always;"></div>
-
 ## The Gospel
 
 ### Predestined by God: Abraham was made righteous by God
@@ -116,8 +112,6 @@ Here's the plot twist:
 Paul: Oh James, I completely agree! For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast. 10 For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do. (Ephesians 2:8–10 (CSB))
 
 Paul would double down with rest of the Bible: we are not saved by good works but *to* good works. We are not saved by others to one another. We are only saved by thing along and it is not a thing but a person and that is Jesus Christ our Lord and Savior. Praise be to to God.
-
-<div style="page-break-after: always;"></div>
 
 ><sup> 6 </sup> Abram passed through the land to the site of Shechem, at the oak of Moreh. (At that time the Canaanites were in the land.) 
 

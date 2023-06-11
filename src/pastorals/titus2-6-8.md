@@ -9,8 +9,6 @@
 >
 ><sup> 8 </sup> Your message is to be sound beyond reproach, so that any opponent will be ashamed, because he doesn’t have anything bad to say about us.
 
-<div style="page-break-after: always;"></div>
-
 ## The Meditation
 
 ><sup> 6 </sup> In the same way, encourage the young men to be self-controlled <sup> 7a </sup> in everything.

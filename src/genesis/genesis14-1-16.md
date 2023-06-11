@@ -2,8 +2,6 @@
 
 ## The Introduction
 
-<div style="page-break-after: always;"></div>
-
 ## The Text
 
 ><sup> 1 </sup> In those days King Amraphel of Shinar, King Arioch of Ellasar, King Chedorlaomer of Elam, and King Tidal of Goiim 
@@ -40,17 +38,11 @@
 
 ## The Support
 
-<div style="page-break-after: always;"></div>
-
 >Where do you see God in the text? What does the text say about God?
 
 ## Our God
 
-<div style="page-break-after: always;"></div>
-
 ## The Gospel
-
-<div style="page-break-after: always;"></div>
 
 ## Our Response
 

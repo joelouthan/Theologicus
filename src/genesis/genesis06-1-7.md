@@ -62,8 +62,6 @@ This is not Holy Spirit but rather, the breath of life of God by God. Don't forg
 
 >Romans 5:12-14 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned. 13 In fact, sin was in the world before the law, but sin is not charged to a person’s account when there is no law. 14 Nevertheless, death reigned from Adam to Moses, even over those who did not sin in the likeness of Adam’s transgression. He is a type of the Coming One.
 
-<div style="page-break-after: always;"></div>
-
 **Where do you see God in the text? What does the text say about God?**
 
 ## God

@@ -13,8 +13,6 @@
 >
 ><sup> 5 </sup> to be self-controlled, pure, workers at home, kind, and in submission to their husbands, so that God’s word will not be slandered.
 
-<div style="page-break-after: always;"></div>
-
 ## The Meditation
 
 When I dwell on this passage in Titus, I wonder of the parallel to the first epistle by John:

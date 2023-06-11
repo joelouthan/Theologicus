@@ -45,8 +45,6 @@ Let us get into the text and see how this goes.
 >
 ><sup> 10 </sup> Seven days later the floodwaters came on the earth.
 
-<div style="page-break-after: always;"></div>
-
 **Where do you see God in the text? What does the text say about God?**
 
 ## God

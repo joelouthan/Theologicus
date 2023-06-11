@@ -11,8 +11,6 @@
 >
 ><sup> 4  </sup>To Titus, my true son in our common faith. Grace and peace from God the Father and Christ Jesus our Savior.
 
-<div style="page-break-after: always;"></div>
-
 ## The Meditation
 
 ><sup> 1  </sup>Paul, a servant of God and an apostle of Jesus Christ, for the faith of God’s elect and their knowledge of the truth that leads to godliness
@@ -118,6 +116,4 @@ Salvation By No Other Name
 >Save us today. Save us in this moment. Right now.
 
 Amen.
-
-<div style="page-break-after: always;"></div>
 
