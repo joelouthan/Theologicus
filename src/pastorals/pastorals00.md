@@ -26,6 +26,13 @@ Incredible resource. I have purchased this resource multiple times over for myse
 
 ## Commentaries & Books
 
+<img src="/images/commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
+by John Calvin.  
+Baker. 2009.  
+[Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
+
+<hr style="clear:both;">
+
 <img src="/images/commentary-ephesians-philemon-esv.jpg">ESV Expository Commentary: Ephesians–Philemon (Volume 11)  
 Iain M. Duguid, James M. Hamilton Jr., & Jay Sklar (Editors)  
 Crossway. 2018.  
