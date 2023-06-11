@@ -68,6 +68,12 @@ h6:target::before {
     width: 30px;
 }
 
+.olive {
+  margin-left: 10px;
+  width: 50px;
+  float: right
+}
+
 /* This is broken on Safari as of version 14, but is fixed
    in Safari Technology Preview 117 which I think will be Safari 14.2.
    https://bugs.webkit.org/show_bug.cgi?id=218076
@@ -102,7 +108,13 @@ h6:target::before {
 .content ul { line-height: 1.45em; }
 .content a { text-decoration: none; }
 .content a:hover { text-decoration: underline; }
-.content img, .content video { max-width: 100%; }
+.content img, .content video { 
+    margin-top: 10px;
+    margin-right: 10px;
+    margin-bottom: 10px;
+    width: 100px;
+    float: left;
+}
 .content .header:link,
 .content .header:visited {
     color: var(--fg);
