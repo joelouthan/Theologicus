@@ -20,7 +20,7 @@ Slow down, pray, read, chew and meditate.
 
 Note: I use the [Christian Standard Bible](https://csbible.com) version on this blog default. Other translations, such as the [ESV](https://www.crossway.org/bibles/) or the [NIV1984](https://bibleportal.com/version/NIV1984), will be noted as such.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ---
 
@@ -32,7 +32,7 @@ Incredible resource. I have purchased this resource multiple times over for myse
 
 <img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ## Commentaries & Books
 
@@ -45,7 +45,7 @@ Baker. 2009.
 
 <img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png" src="/images/icon-bible-olive-tree.png">I mention this because in my go-to mobile Bible Study App, [Olive Tree](https://www.olivetree.com), Calvin's Commentaries are my go-to Commentary text of choice when I need clarification on the go. You can get the entire digital set for your phone (and computer) for about $40 from Olive Tree! (Or catch it on sale for $20 like I did.)
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-matthew-sproul.jpg">Matthew: An Expositional Commentary  
 R.C. Sproul.  
@@ -54,7 +54,7 @@ Ligonier Ministries. October 29, 2019.
 
 If Sproul wrote it, 9.9/10 I am going to read it, use it, quote it, and recommend it. This volume is no exception.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-matthew-nac-blomberg.jpg">Matthew: An Exegetical and Theological Exposition of Holy Scripture (Volume 22) (The New American Commentary)  
 Craig L. Blomberg.  
@@ -63,7 +63,7 @@ Holman Reference. May 1992.
 
 I am familiar with Blomberg. And I do like this series. This will also be referenced.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-matthew-luke-esv.jpg">ESV Expository Commentary: Matthew–Luke (Volume 8)  
 Dan Doriani (Author)  
@@ -75,7 +75,7 @@ So, I got the first three volumes released back a few years ago. Now they are up
 
 The authors are top notch. This will be referenced for sure.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-matthew-ebtc-quarles.jpg
 ">Matthew (EBTC).  

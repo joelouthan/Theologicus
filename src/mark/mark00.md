@@ -38,7 +38,7 @@ Slow down, pray, read, chew and meditate.
 
 Note: I use the [Christian Standard Bible](https://csbible.com) version on this blog by default. Other translations, such as the [ESV](https://www.crossway.org/bibles/) or the [NIV1984](https://bibleportal.com/version/NIV1984), will be noted as such.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ___
 
@@ -50,7 +50,7 @@ Incredible resource. I have purchased this resource multiple times over for myse
 
 <img src="/images/icon-bible-olive-tree.png" align="right" width="100" style="padding-left: 10px" />If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ___
 
@@ -63,7 +63,7 @@ Baker. 2009.
 
 <img src="/images/icon-bible-olive-tree.png" align="right" width="100" style="padding-left: 10px" />I mention this because in my go-to mobile Bible Study App, [Olive Tree](https://www.olivetree.com), Calvin's Commentaries are my go-to Commentary text of choice when I need clarification on the go. You can get the entire digital set for your phone (and computer) for about $40 from Olive Tree.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ___
 
@@ -78,7 +78,7 @@ Easily read cover-to-cover.
 
 **Note**: I noticed that the latest editions from Sproul's set since the Luke release are no longer part of the St. Andrew's Expositional Set that started with Mark, John, Romans, Matthew, 1 & 2 Peter, and Acts. I don't know why they drop the set name but since the passing of Dr. Sproul, it kind of makes sense. These commentaries are really a collection of Sproul's sermons put into book form, which is way easier said than done. Sermons are meant to be primarily preached audibly. To get them to be read in a book form takes an editor worth their chops along with the preacher to make sure everything is super clear in written form. _-Ed._
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-mark-hendriksen.jpg">New Testament Commentary: Exposition of the Gospel According to Mark  
 by William Hendriksen.  
@@ -98,7 +98,7 @@ That said, that one little blurb in Wikipedia and knowing there was one (1) past
 [^1]: Hendriksen, William (2007). Israel in prophecy. London: Wakeman, (Originally published by Baker Book House in 1968). p. 16.
 [^2]: Horner, Barry (15 January 2015). "The Reformed Eschatology of William Hendriksen" (PDF). Future Israel website. Archived from the original (PDF) on 8 March 2015. Retrieved 8 March 2015
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-mark-lane.jpg">The Gospel according to Mark: The English Text With Introduction, Exposition, and Notes (The New International Commentary on the New Testament)  
 by William L. Lane.  
@@ -107,7 +107,7 @@ Eerdman's. 1974.
 
 Incredible thorough and wonderfully written, Dr. Lane walks the reader masterfully through not only the Gospel but the perspective of the writer, John-Mark.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-mark-oden.jpg">Mark (Ancient Christian Commentary on Scripture, NT Volume 2)  
 Edited by Thomas C. Odin & Christopher A. Hall  
@@ -116,11 +116,11 @@ IVP Academic. 2005.
 
 I think this entire series is an excellent resource to have on hand if you can pony up the scratch.  It's all fine and good to read guys from within the last few centuries. But how about reading commentary from within the first few centuries after the ascension of Christ. You ain't going to read anything shockingly new.  But what you are going realize there is absolutely new under the sun and Jesus Christ the same yesterday, today, and tomorrow.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-mark-gombis.jpg">Mark (The Story of God Bible Commentary Series)  
 by Timothy G. Gombis.   
 Zondervan Academic. March 9th 2021.  
 [Goodreads](https://www.goodreads.com/book/show/54287613-mark)
 
-<p style="clear:both;">
+<hr style="clear:both;">

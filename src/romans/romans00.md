@@ -14,7 +14,7 @@ Slow down, pray, read, chew and meditate.
 
 Note: I use the [Christian Standard Bible](https://csbible.com) version on this blog default. Other translations, such as the [ESV](https://www.crossway.org/bibles/) or the [NIV1984](https://bibleportal.com/version/NIV1984), will be noted as such.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ---
 
@@ -26,7 +26,7 @@ Incredible resource. I have purchased this resource multiple times over for myse
 
 <img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ## Commentaries & Books
 
@@ -37,7 +37,7 @@ Baker. 2009.
 
 <img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png" src="/images/icon-bible-olive-tree.png">I mention this because in my go-to mobile Bible Study App, [Olive Tree](https://www.olivetree.com), Calvin's Commentaries are my go-to Commentary text of choice when I need clarification on the go. You can get the entire digital set for your phone (and computer) for about $40 from Olive Tree! (Or catch it on sale for $20 like I did.)
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/book-no-condemnation-winslow.jpg">No Condemnation in Christ Jesus: As Unfolded in the Eighth Chapter of the Epistle to the Romans  
 Octavius Winslow.  
@@ -50,7 +50,7 @@ If I had one book to gift outside the Bible, it would be this. If I had one word
 
 For more of a complete review, read mine here at [Goodreads.com](https://www.goodreads.com/review/show/134527292).
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-romans-sproul.jpg">Romans: An Expositional Commentary  
 R.C. Sproul.  
@@ -63,7 +63,7 @@ A better suggestion: stop reading my drivel and buy this book.
 
 **Seriously. Go and get this book. NOW!**
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-romans-moo.jpg">The Letter to the Romans (New International Commentary on the New Testament (NICNT))  
 Douglas Moo.    
@@ -72,7 +72,7 @@ Eerdmans. 1996.
 
 I only mentioned the first edition because the second edition came out in 2018 and I haven't gotten my hands on it. This is a standard, el-defacto technical commentary recommendation for Romans. It's so highly recommended across all denominations and Protestant theological convictions, it's almost a generalization. But refer to it just once and you know that it is a generalization because it is true.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-romans-hendricksen.webp">New Testament Commentary: Romans: Chapters 1-16  
 William Hendriksen.  
@@ -83,7 +83,7 @@ Said it before and I will say it again: Billy H. is my boy for no other reason h
 
 Craziest thing, tho. I have several others in his NT set but for some reason, I didn't have his Romans. Had to scoop this off e-Bay.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-romans-plumer.jpeg">Romans  
 William S. Plumer.  
@@ -92,7 +92,7 @@ Kregel. 1993.
   
 This dude is pre-Liberalism Princeton Theological Seminary. I have not read through this but those credentials are enough to warrant a place in my library.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-romans-mounce.jpg">Romans: An Exegetical and Theological Exposition of Holy Scripture (The New American Commentary)  
 Robert Mounce.  
@@ -101,7 +101,7 @@ Holmon Reference. 1995.
 
 Going by what other commentaries I have by Mounce, this stays in my library as well.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-romans-bray.webp">Romans (Ancient Christian Commentary on Scripture, NT Volume 6)  
 Edited Gerald L. Bray.  
@@ -110,7 +110,7 @@ IVP Academic. 2005.
 
 I think this entire series is an excellent resource to have on hand if you can pony up the scratch.  It's all fine and good to read guys from within the last few centuries. But how about reading commentary from within the first few centuries after the ascension of Christ. You ain't going to read anything shockingly new.  But what you are going realize there is absolutely nothing new under the sun and Jesus Christ the same yesterday, today, and tomorrow.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-romans-luther.webp">Commentary on Romans  
 Martin Luther.  
@@ -119,7 +119,7 @@ Kregel. 2003.
 
 I would be remiss if I didn't mention Luther's commentary. It was his desperate mediation on one little famous Habakkukan quote that literally and figuratively hammers the change within the Church and help begun the Protestant Reformation: **THE JUST SHALL LIVE BY FAITH!**
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-romans-peterson.jpg">Romans (EBTC).  
 David G. Peterson.  

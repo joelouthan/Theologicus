@@ -12,7 +12,7 @@ Slow down, pray, read, chew and meditate.
 
 Note: I use the [Christian Standard Bible](https://csbible.com) version on this blog default. Other translations, such as the [ESV](https://www.crossway.org/bibles/) or the [NIV1984](https://bibleportal.com/version/NIV1984), will be noted as such.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ---
 
@@ -24,7 +24,7 @@ Incredible resource. I have purchased this resource multiple times over for myse
 
 <img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ## Commentaries & Books
 
@@ -37,7 +37,7 @@ This is fresh off the presses. I have read [Romans, John, Mark, Acts, 1 & 2 Pete
 
 If it ain't broke, don't fix it. Keep on truckin'.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-luke-geldenhuys.jpg" />The Gospel of Luke (NICNT).  
 Norval Geldenhuys.  
@@ -48,7 +48,7 @@ Do I know anything about this guy? Nope. A few Amazon reviewers thought he was s
 
 When I started up this series, I was hard up for good Luke resources. God's pure grace and timing, this fell into my lap.  So I am going out with the horse I rode in on and keeping this as part of the stack.  
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="https://images-na.ssl-images-amazon.com/images/I/514L+mWU6kL._SX331_BO1,204,203,200_.jpg" />Luke (NIVAC).  
 Darrell L. Bock.  
@@ -56,14 +56,14 @@ Zondervan. 1996.
 
 I swear to beans I have more books from this guy. But a quick look-see on Amazon shows that he is a one-lane kind-of-guy. He knows his Luke-Acts. (Now that I think about it, I am getting him mixed up with *Daniel I. Block* who wrote [Ezekiel (NICOT)](https://amzn.to/3azIXiq).)
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-luke-nolland.jpg" />Luke (WBC).  
 John Nolland.  
 Thomas Nelson. 1989-93.  
 [Goodreads](https://www.goodreads.com/book/show/151083514-word-biblical-commentary-vol-35a-luke-1?from_search=true&from_srp=true&qid=jlCakWA5r8&rank=1)
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-matthew-luke-esv.jpg">ESV Expository Commentary: Matthew–Luke (Volume, 8).  
 Dan Doriani (Author).  

@@ -20,7 +20,7 @@ Slow down, pray, read, chew and meditate.
 
 Note: I use the [Christian Standard Bible](https://csbible.com) version on this blog default. Other translations, such as the [ESV](https://www.crossway.org/bibles/) or the [NIV1984](https://bibleportal.com/version/NIV1984), will be noted as such.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ---
 
@@ -32,7 +32,7 @@ Incredible resource. I have purchased this resource multiple times over for myse
 
 <img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ## Commentaries & Books
 
@@ -43,32 +43,32 @@ John Calvin.
 Baker. 2009.  
 [Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-genesis-boice.jpg">Genesis    
 James Montgomery Boice.  
 Baker Books. May 1, 2006.  
 [Goodreads](https://www.goodreads.com/book/show/1327853.Genesis_Volumes_1_3?ac=1&from_search=true&qid=gvP0fM9zwn&rank=2)
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-genesis-hughes.jpg">Genesis: Beginning and Blessing (Preaching the Word)  
 R. Kent Hughes.  
 Crossway. November 30, 2012.  
 [Goodreads](https://www.goodreads.com/book/show/17131104-genesis)
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-genesis-wenham.jpg">Genesis (Word Biblical Commentary)  
 Gordon J. Wenham.  
 Thomas Nelson Inc. October 9, 1987.  
 [Goodreads](https://www.goodreads.com/book/show/1813608.Genesis_1_15?ac=1&from_search=true&qid=rTitY4qg9L&rank=1)
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/book-gospel-in-genesis-lloyd-jones.jpg">The Gospel in Genesis  
 Martyn Lloyd-Jones.  
 Crossway. 2009.  
 [Goodreads](https://www.goodreads.com/book/show/6267556-the-gospel-in-genesis?ac=1&from_search=true&qid=XlCQWKUG5b&rank=1)
 
-<p style="clear:both;">
+<hr style="clear:both;">

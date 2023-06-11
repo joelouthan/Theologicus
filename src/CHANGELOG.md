@@ -9,7 +9,7 @@ All notable changes to this project will be documented in this file.
 - Migrated from Hugo to mdBook
 - Wordcount: 699793 [^wordcount]
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ---
 

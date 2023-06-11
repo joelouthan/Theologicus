@@ -14,7 +14,7 @@ Slow down, pray, read, chew and meditate.
 
 Note: I use the [Christian Standard Bible](https://csbible.com) version on this blog default. Other translations, such as the [ESV](https://www.crossway.org/bibles/) or the [NIV1984](https://bibleportal.com/version/NIV1984), will be noted as such.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ---
 
@@ -26,7 +26,7 @@ Incredible resource. I have purchased this resource multiple times over for myse
 
 <img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ## Commentaries & Books
 
@@ -35,14 +35,14 @@ by John Calvin.
 Baker. 2009.  
 [Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-psalms-treasury-of-david-spurgeon.jpg">The Treasury of David (Volumes 1-3)  
 Charles Spurgeon.  
 MacDonald Publishing.  
 [Goodreads](https://www.goodreads.com/book/show/929973.The_Treasury_Of_David_Volumes_1_3)
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-psalms-hamilton.jpg">Psalms (EBTC) (Volumes 1 & 2)  
 James M. Hamilton Jr.  

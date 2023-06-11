@@ -91,7 +91,7 @@
 
 </div>
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ## Technical Project Manager
 

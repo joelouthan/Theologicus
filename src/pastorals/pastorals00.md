@@ -12,7 +12,7 @@ Slow down, pray, read, chew and meditate.
 
 Note: I use the [Christian Standard Bible](https://csbible.com) version on this blog default. Other translations, such as the [ESV](https://www.crossway.org/bibles/) or the [NIV1984](https://bibleportal.com/version/NIV1984), will be noted as such.
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ---
 
@@ -24,7 +24,7 @@ Incredible resource. I have purchased this resource multiple times over for myse
 
 <img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ## Commentaries & Books
 
@@ -33,18 +33,18 @@ Iain M. Duguid, James M. Hamilton Jr., & Jay Sklar (Editors)
 Crossway. 2018.  
 [Goodreads](https://www.goodreads.com/book/show/38530820-esv-expository-commentary?ac=1&from_search=true&qid=vr9YaTR979&rank=2)
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-thessalonians-pastorals.jpg">Thessalonians, Timothy, and Titus (NTC).  
 William Hendriksen.  
 Baker Book House. 1979.  
 [Goodreads](https://www.goodreads.com/book/show/738489.New_Testament_Commentary)
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 <img src="/images/commentary-pastorals-kostenberger.jpg">1-2 Timothy and Titus (EBTC).  
 Andreas J. Köstenberger.  
 Lexham Press. 2021.  
 [Goodreads](https://www.goodreads.com/book/show/57585155-1-2-timothy-and-titus?ac=1&from_search=true&qid=t1XEFOJTqe&rank=2)
 
-<p style="clear:both;">
+<hr style="clear:both;">

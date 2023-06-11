@@ -78,7 +78,7 @@ Trying to waste my time with God. Preacher of the Gospel. Writing at Theologicus
 
 </div>
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 ### MINISTRY VISION
 

@@ -62,7 +62,7 @@
 
 </div>
 
-<p style="clear:both;">
+<hr style="clear:both;">
 
 Trying to spend all of days with God. Belong to my Beloved and my Beloved is mine forevermore. Also, Sarah's husband and papa to a few. Residing in Versailles, KY. Member at [Reforming Truth Church](https://reformingtruth.church). Joyfully ex-Evangelical turned Reformed Baptist--[1689 Confessional](confession-1689/1689-0-0.md).
 
