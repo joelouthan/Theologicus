@@ -1,18 +1,5 @@
-# Romans 8:30c Loved & Justified by God"
-author: Joseph Louthan
-publishDate: 2022-10-24
-categories:
-  - Commentaries
-  - Study
-tags:
-  - "Romans"
-series:
-  - "Romans"
-cover:
-  image: '/images/banners/romans.png'
-tocopen: true
-css: "prayers"
-draft: false
+# Romans 8:30c Loved & Justified by God
+
 ## The Introduction
 
 >Romans 8:30 (CSB)  And those he predestined, he also called; **and those he called, he also justified;** and those he justified, he also glorified.
