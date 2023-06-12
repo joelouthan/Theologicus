@@ -36,6 +36,7 @@ In a way, if the Bible is a love letter from God to me, then Theologicus is my l
 <img hidden src="favicon-32x32.png">
 <img hidden src="favicon.png">
 <img hidden src="favicon.svg">
+<img hidden src="favicon.ico">
 <img hidden src="mstile-310x310.png">
 <img hidden src="mstile-144x144.png">
 <img hidden src="mstile-150x150.png">
