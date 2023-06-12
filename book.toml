@@ -19,7 +19,7 @@ create-missing = false
 
 [output.html]
 preferred-dark-theme = "ayu"
-git-repository-url = "https://github.com/joelouthan/book-theologicus"
+git-repository-url = "https://github.com/joelouthan/theologicus"
 git-repository-icon = "fa-github"
 no-section-label = true
 edit-url-template = "https://github.com/joelouthan/book-theologicus/edit/master/guide/{path}"
