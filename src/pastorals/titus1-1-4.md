@@ -107,13 +107,3 @@ Christ says, "Come, give me your soul crushing sin, your back-breaking self-righ
 
 >3. If God has saved you, tell me when you were radically changed from your old self to your new self?
 
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-Salvation By No Other Name
-</div>
-
->Save us today. Save us in this moment. Right now.
-
-Amen.
-

@@ -130,25 +130,3 @@ You and I have been commissioned to go and preach to everyone about this amazing
 
 ### He is the blessed and only Sovereign, the King of kings, and the Lord of lords, who alone is immortal and who lives in unapproachable light, whom no one has seen or can see, to him be honor and eternal power--Amen
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-Our All-in-all
-</div>
-&nbsp;
-
->You have said it in your word
-  that you have shown us the path of life
-  in your presence is the fullness of joy
-  and at your right hand are pleasures forevermore
-  and that when we see you face to face
-  we will be perfectly satisfied.
-
-It is in this hope we are saved.
-
-Keep our face towards your shining face
-  and preserve us to the end.
-
-
-Amen.
-

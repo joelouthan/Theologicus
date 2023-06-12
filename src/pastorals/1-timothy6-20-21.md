@@ -116,14 +116,3 @@ Listen to him. Pray and seek him. Listen to his word more so than anything else 
 
 >Grace be with you all.
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-Father of lights,
-</div>
-&nbsp;
-
->Where we have believed something that did not come from you, would you give us the gift to repent and turn our hearts towards you.
-
-Amen.
-

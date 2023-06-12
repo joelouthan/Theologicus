@@ -193,19 +193,3 @@ Amen.
 
 >4. Why can't you start now?
 
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-My All-in-all
-</div>
-
->For all of our days, we will praise your holy name.
-
-For all of our life, we will worship you.
-
-For all that we have, we will love you.
-
-Be exalted, Lord.
-
-Amen.
-

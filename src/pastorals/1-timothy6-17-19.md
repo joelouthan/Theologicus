@@ -44,16 +44,3 @@ Giving and generosity does not make you good. God makes us good. And the only wa
 
 We cannot do enough good works to make God like us. We cannot do enough Bible Studies to know God. We cannot give enough money to good causes to buy our way into heaven. You will have to lay your life down, pick up your cross, change your life, and follow Christ.
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-My Provider
-</div>
-&nbsp;
-
->You loved me so much that you gave me Christ.
-
-You have given me everything.
-
-Blessed be your name.
-

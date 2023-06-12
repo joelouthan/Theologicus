@@ -117,20 +117,3 @@ This is absolute truth for all mankind for all of history because the One God wh
 
 Believe on this. Call upon the name of the Lord Jesus Christ and you will be saved.
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-My Mediator
-</div>
-&nbsp;
-
->Be with me.
-
-Draw near to me.
-
-Saved those who do not know you.
-
-Thank you for everything.
-
-Amen
-

@@ -52,39 +52,3 @@ What will it be?
 
 >Joshua 24:15 (CSB) But if it doesn’t please you to worship the LORD, choose for yourselves today: Which will you worship—the gods your ancestors worshiped beyond the Euphrates River or the gods of the Amorites in whose land you are living? As for me and my family, we will worship the LORD.”
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-My Lord
-</div>
-&nbsp;
-
->How many times
-  did you rescue me
-  from my sins
-  from death
-  from disease
-  from my own wickedness
-  from own despair.
-
-I see your body
-  broken for me
-  I see your blood
-  covering me in my own iniquities
-  I see your life
-  given up so I might live.
-
-Then, I call to you
-  to be my Lord and my God.
-  I call to you
-  and I know
-  that you will answer
-  because you are my Savior
-  and my King
-  and Redeemer
-  and my Christ.
-
-I will love you with all that I have.
-
-Amen.
-

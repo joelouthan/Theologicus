@@ -140,17 +140,3 @@ Repent of sin. Love God. Love others. Preach the gospel to every creature to the
 
 >4. Name some of the ways to be better in rightly handling the word of God?
 
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-My Savior God
-</div>
-
->Unmute my tongue.
-
-Sanctify my words.
-
-I want to worship you. You are my king.
-
-Amen.
-

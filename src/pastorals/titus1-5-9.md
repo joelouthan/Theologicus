@@ -170,13 +170,3 @@ Believe on this and you shall be saved.
 
 >4. How many Christians do you know who want to serve as an elder in their local church?
 
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-Beckoning of our Souls
-</div>
-
->Call us to love and minister to one another.
-
-Amen.
-

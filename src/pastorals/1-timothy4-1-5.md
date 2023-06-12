@@ -123,26 +123,3 @@ That is the good news. The world adamantly disagrees.
 
 What news are you going to believe today?
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-My Righteousness
-</div>
-&nbsp;
-
->Call us close.
-
-Keep us near.
-
-Give us repentance.
-
-Help us to be quick to confess our sins to you.
-
-Your word has promised: if we confess our sin, you are quick to forgive our sin and cleanse us from all unrighteousness.
-
-On this day, give us you.
-
-We need you.
-
-Amen.
-

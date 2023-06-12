@@ -105,14 +105,3 @@ Believe in Christ. Give over your sins to Christ. Be washed cleaned in Christ. H
 
 Come dwell with God all because of what Christ has done for us.
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-My Christ
-</div>
-&nbsp;
-
->Save us to yourself.
-
-Amen.
-

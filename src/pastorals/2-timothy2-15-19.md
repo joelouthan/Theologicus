@@ -79,17 +79,3 @@ We live in such a time when even self-proclaimed Christians live their lives wit
 
 I preach one thing, "Repent for the kingdom of God is now."
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-Savior of the world
-</div>
-&nbsp;
-
->If we do not believe, help us believe.
-
-If we do not love you, give us your love to love you.
-
-If we are dead, bring us to life!
-
-Amen.

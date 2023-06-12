@@ -155,14 +155,3 @@ Here's some shocking news: hearing the gospel once a week is not enough. Tell yo
 
 Let me pray us out.
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-My Saving God
-</div>
-&nbsp;
-
->I believe and trust in you. Make me alive in you today.
-
-Amen.
-

@@ -145,14 +145,3 @@ The ESV rightly calls this atoning sacrifice, "the propitiation for our sins." I
 
 >4. What is greatest example of everything that God command us to do?
 
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-My Love
-</div>
-
->Help us to love one another.
-
-Amen.
-
-

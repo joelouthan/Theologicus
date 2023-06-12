@@ -107,13 +107,3 @@ We must pick up the Scriptures and *believe*. We must trust the Lord. We must ob
 
 >4. How can we believe God?
 
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-My Love Supreme
-</div>
-
->Show me and change my heart so that I can love you and love others like you love them.
-
-Amen.
-

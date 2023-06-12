@@ -88,16 +88,3 @@ Or to put it more intimately, as the lover from the Song of Songs would rightly 
 
 Praise be to God.
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-Our Christ
-</div>
-&nbsp;
-
->There is a day when you will come back and complete the work you have started.
-
-Come quickly, Lord.
-
-Amen.
-

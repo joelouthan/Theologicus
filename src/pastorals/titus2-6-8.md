@@ -85,14 +85,3 @@ Do the works that God has set out for you to do. You have no opponent that can a
 
 >3. If we are all ministers but commit sin, what can we do? What does Christ command us to do?
 
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-God of Grace
-</div>
-
->Give us strength to do your will today.
-
-Amen.
-
-

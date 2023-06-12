@@ -10,6 +10,8 @@
 
 There is only one God. And he is the maker of heaven and earth. Grace, mercy, and peace come only the God the Father and the Lord Jesus Christ.  I stand on the foundation of Christ whom has used the Apostles and the early church to build His kingdom.
 
+## The Gospel
+
 ### As I urged you when I went to Macedonia, remain in Ephesus so that you may instruct certain people not to teach false doctrine or to pay attention to myths and endless genealogies. These promote empty speculations rather than God’s plan, which operates by faith.
 
 Once upon a time, in my own lifetime, I feel like either we didn't face such misinformation or I was too young or naïve to pay attention. But as we descend into the Age of Information, we are certainly not becoming wiser, smarter, or more moral. The Age of Information has proven one thing to be true: most of us have already decided what is good, true, and right and we will only seek sources of information that confirms and coddles what is right in our own minds. Some of us would dare to use God's name in vain to try to convince ourselves that we know is right and good is actually right and good.
@@ -47,77 +49,3 @@ This hurts my heart. I have known way too many people who have turned away from 
 >Romans 6:1-11 (CSB) What should we say then? Should we continue in sin so that grace may multiply? Absolutely not! How can we who died to sin still live in it? Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life. For if we have been united with him in the likeness of his death, we will certainly also be in the likeness of his resurrection. For we know that our old self was crucified with him so that the body ruled by sin might be rendered powerless so that we may no longer be enslaved to sin, since a person who has died is freed from sin. Now if we died with Christ, we believe that we will also live with him, because we know that Christ, having been raised from the dead, will not die again. Death no longer rules over him. For the death he died, he died to sin once for all time; but the life he lives, he lives to God. So, you too consider yourselves dead to sin and alive to God in Christ Jesus.
 
 But repentance is a gift of God alone. I can only pray and proclaim the gospel to them.  Will God grant them repentance?
-
-## The Gospel
-
-## The Prayer
-
-<div style="font-variant: small-caps;">
-The Savior of the World
-</div>
-&nbsp;
-
->You are the way  
-  the truth  
-  the light  
-  and no one comes  
-  to the Father my God  
-  but by you.
-
-You are the only one who gives us  
-  grace upon grace  
-  mercies new every morning  
-  and peace beyond all understanding.
-
-These things are only from you  
-  and you are the source of all things good  
-  and you give freely to all who would receive it.
-
-My Lord  
-  there have been so many  
-  who have lived in your goodness and mercy  
-  and have stepped away  
-  for one reason or another  
-  hurts  
-  wounds  
-  scars  
-  pain  
-  sometimes  
-  sin  
-  and holding on  
-  to the only thing they have known  
-  more than you.
-
-But my Father,  
-  I saw you  
-  be there for your children  
-  when you rescued them  
-  and they went back to their vomit  
-  they urged to go back to slavery to sin  
-  instead enjoying the freedom of the glory   
-  of being your precious children.
-
-Satan is ruthless  
-  and relentless  
-  and he preys on us  
-  because he is a wolf  
-  sending out his wolves  
-  into the sheep's den.
-
-Jesus  
-  be my Good Shepherd  
-  protect us  
-  love us  
-  and keep us.
-
-Beat back the wolves  
-  with your iron rod  
-  and your staff  
-  it comforts me  
-  all the days of my life.
-
-Be our pastor  
-  and send help.
-
-Amen.
-

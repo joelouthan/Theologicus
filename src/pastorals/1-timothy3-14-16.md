@@ -62,16 +62,3 @@ In other words, what is the good news in all of this and how do we live by it?
 
 >Mark 16:15-16 (CSB) Then he said to them, “Go into all the world and preach the gospel to all creation. Whoever believes and is baptized will be saved, but whoever does not believe will be condemned.
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-My Christ
-</div>
-&nbsp;
-
->I belong to you.
-
-Show me how to live with you in my heart forever.
-
-Amen.
-

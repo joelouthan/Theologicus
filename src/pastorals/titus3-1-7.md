@@ -156,12 +156,3 @@ My sweet child, you cannot see the finish line because you are limited. But Chri
 
 God is going to bring you home--whether you have great or little faith. God is going to bring you all the way home. And you will look like his son--perfect, splendor, radiant, glorious... glorified. And one day, we will get to hold his loving face, kiss him with a thousand kisses because he saved us. Right then, our faith is satisfied, our hope is fulfilled because we are now our Beloved and he is with us forever.
 
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-My Wonderful
-</div>
-
->Bring us all the way home.
-
-Amen

@@ -128,12 +128,3 @@ Because God's word is true and declares and defines our identity in Christ, go a
 
 No weightless talk. No empty speeches. No social media posts that makes us sound godly and smart. But real love. Loving God and loving our neighbor as ourselves. How does that look like? It starts by proclaiming these words to your kids, your family, your parents, your neighbors and figuring out how to love them well by giving over your time, effort, energy, money and resources. Do this until Christ comes back. We do this because we have Christ and we have everything.
 
-## The Prayer
-
-<div style='font-variant: small-caps;'>
-Our Blessed Grace
-</div>
-
->Open our eyes and open our mouths to preach your great news to those who everyone all the time. But open our hearts to love them just as you love them.
-
-Amen.

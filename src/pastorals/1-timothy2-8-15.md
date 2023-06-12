@@ -118,14 +118,3 @@ This is the mark of the every believer. There is one thing to struggle with fait
 
 ## The Gospel
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-Our God
-</div>
-&nbsp;
-
->Keep our eyes focused on you
-
-Amen
-

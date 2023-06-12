@@ -150,14 +150,3 @@ Your character matters. You are holy because God is holy. You are set apart beca
 
 Our hope is not in how well we do church: that is, beat and scatter the wolves nor how we feed  God's lambs (you and me)--our hope is in Christ alone, who is the Good Shepherd. Obey his call to love and minister to one another.
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-Our God
-</div>
-&nbsp;
-
->Whatever you have called us to do, give us grace to do your will.
-
-Amen.
-

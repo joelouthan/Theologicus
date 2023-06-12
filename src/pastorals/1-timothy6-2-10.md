@@ -122,21 +122,3 @@ If you have it all on earth and you are satisfied, it will not be enough.
 
 If you have God and anything that you might have here on earth will be more than enough.
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-Our Infinite God
-</div>
-&nbsp;
-
->Come into our hearts
-  and occupy the entire space
-  so we would be less in love with world
-  and love you more
-  so we might love each other more.
-
-For in your Son's beautiful and holy name
-  I pray.
-
-Amen.
-

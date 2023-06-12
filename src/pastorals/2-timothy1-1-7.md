@@ -117,14 +117,3 @@ they trusted, and you rescued them.
 5 They cried to you and were set free;
 they trusted in you and were not disgraced.
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-My Deliverer
-</div>
-&nbsp;
-
->Do not lose your children! Save us forever!
-
-Amen!
-

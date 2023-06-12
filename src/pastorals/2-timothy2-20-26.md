@@ -138,14 +138,3 @@ God was kind and gentle and patient with you and me to believe and trust his Son
 
 God will be so kind to others so that maybe God will give the same gift of repentance so that they can believe and trust His Son.
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-Our Great God
-</div>
-&nbsp;
-
->If we are holding on to sins, would you give us the gift to repent so we can let go of our sins, give them over to your Son who bled and died for me, so that we would live to you forever and ever.
-
-Amen.
-

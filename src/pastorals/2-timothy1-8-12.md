@@ -101,17 +101,3 @@ Now, for those who hear the gospel in the past and believe, you heard this gospe
 
 Paul tells Timothy, you and me: It takes all of the Triune God to save his people from their sins. From the sovereign grace of the Father through the blood drained and broken body of his precious Son by the Almighty power of his Spirit, it wasn't easy, fast nor cheap. But to rescue you and me from death, it was all worth.
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-Savior and Lord and God
-</div>
-&nbsp;
-
->We give you thanks
-for you are our righteousness.
-
-Praise your holy name forever.
-
-Amen.
-

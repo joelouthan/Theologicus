@@ -127,12 +127,3 @@ Let me send you out with some good news.
 - we are all the more dependent on Christ as our Good Shepherd
 - We bank on his promises--Psalm 23, Jeremiah 23, John 10--
 
-## The Prayer
-
-<div style="font-variant: small-caps;">
-Our Great Father
-</div>
-&nbsp;
-
->
-
