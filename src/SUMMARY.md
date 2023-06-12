@@ -229,7 +229,7 @@
   - [Ruth 2:7-13 God's Prepared Good Works for His People](ruth/ruth2-7-13.md)
   - [Ruth 3:1-9 God's Redeeming Work for His People](ruth/ruth3-1-9.md)
   - [Ruth 3:10-18 God's Justifying Work for His People](ruth/ruth3-10-18.md)
-  - [Ruth 4 God Brings Us All The Way Home]() //(ruth/ruth4.md)
+  - [Ruth 4 God Brings Us All The Way Home](ruth/ruth4.md)
 - [1 Samuel]()
 - [2 Samuel]()
 - [1 Kings]()
