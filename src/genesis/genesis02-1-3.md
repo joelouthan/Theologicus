@@ -107,39 +107,3 @@ What does Christ say?
 >
 >Then the one seated on the throne said, “Look, I am making everything new.” He also said, “Write, because these words are faithful and true.” Then he said to me, “It is done! I am the Alpha and the Omega, the beginning and the end. I will freely give to the thirsty from the spring of the water of life. The one who conquers will inherit these things, and I will be his God, and he will be my son. But the cowards, faithless, detestable, murderers, sexually immoral, sorcerers, idolaters, and all liars—their share will be in the lake that burns with fire and sulfur, which is the second death.”
 
-## The Resources
-
-<img src="/images/commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
-by John Calvin.  
-Baker. 2009.  
-[Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
-
-<hr style="clear:both;">
-
-<img src="/images/commentary-genesis-boice.jpg">Genesis    
-by James Montgomery Boice.  
-Baker Books. May 1, 2006.  
-[Goodreads](https://www.goodreads.com/book/show/1327853.Genesis_Volumes_1_3?ac=1&from_search=true&qid=gvP0fM9zwn&rank=2)
-
-<hr style="clear:both;">
-
-<img src="/images/commentary-genesis-hughes.jpg">Genesis: Beginning and Blessing (Preaching the Word)  
-by R. Kent Hughes.  
-Crossway. November 30, 2012.  
-[Goodreads]()
-
-<hr style="clear:both;">
-
-<img src="/images/commentary-genesis-wenham.jpg">Genesis (Word Biblical Commentary)  
-by Gordon J. Wenham.  
-Thomas Nelson Inc. October 9, 1987.  
-[Goodreads](https://www.goodreads.com/book/show/1813608.Genesis_1_15?ac=1&from_search=true&qid=rTitY4qg9L&rank=1)
-
-<hr style="clear:both;">
-
-<img src="/images/book-gospel-in-genesis-lloyd-jones.jpg">The Gospel in Genesis  
-by Martyn Lloyd-Jones.  
-Crossway. 2009.  
-[Goodreads](https://www.goodreads.com/book/show/6267556-the-gospel-in-genesis?ac=1&from_search=true&qid=XlCQWKUG5b&rank=1)
-
-<hr style="clear:both;">
