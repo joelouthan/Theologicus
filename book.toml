@@ -26,7 +26,7 @@ preferred-dark-theme = "ayu"
 git-repository-url = "https://github.com/joelouthan/theologicus"
 git-repository-icon = "fa-github"
 no-section-label = true
-edit-url-template = "https://github.com/joelouthan/book-theologicus/edit/master/guide/{path}"
+edit-url-template = "https://github.com/joelouthan/theologicus/edit/main/guide/{path}"
 
 [output.html.search]
 enable = true            # enables the search feature
