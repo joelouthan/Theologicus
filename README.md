@@ -2,9 +2,9 @@
 
 ## writing
 
-[Ruth](https://theologic.us/ruth/ruth00.html)
-[1689 Second London Baptist Confession](https://theologic.us/confession-1689/1689-0.html)
-[Apostles' Creed](https://theologic.us/creed-apostles/apostles.html)
+[Ruth](https://theologic.us/ruth/ruth00.html)  
+[1689 Second London Baptist Confession](https://theologic.us/confession-1689/1689-0.html)  
+[Apostles' Creed](https://theologic.us/creed-apostles/apostles.html)  
 
 ## finished
 
