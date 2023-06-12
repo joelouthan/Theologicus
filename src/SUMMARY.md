@@ -17,7 +17,7 @@
   - [The Holy Spirit--Fully God](creed-apostles/apostles07-the-Holy-Spirit-Triune.md)
   - [The Holy Spirit as Taught by Christ](creed-apostles/apostles08-the-Holy-Spirit-Christ-said.md)
   - [The Holy Catholic Church](creed-apostles/apostles09-the-holy-catholic-church.md)
-  - [The Communion of Saints]()
+  - [The Communion of Saints](creed-apostles/apostles10-communion-of-saints.md)
   - [The Forgiveness of Sins]()
   - [The Resurrection of the Body]()
   - [Life Everlasting]()
