@@ -4,7 +4,8 @@ language = "en"
 multilingual = false
 src = "src"
 title = "Theologicus"
-description = "No pen, no words, no image can express to you the loveliness of my only, only Lord Jesus. - Samuel Rutherford"
+description = "Still no pen, no words, no image can express to you the loveliness of my only, only Lord Jesus. (Samuel Rutherford)"
+extra-watch-dirs = [ "theme" ]
 
 [rust]
 edition = "2021"
@@ -17,10 +18,11 @@ create-missing = false
 
 [preprocessor.links]
 
-[output.wordcount]
-optional = true
+#[output.wordcount]
+#optional = true
 
 [output.html]
+default-theme = "ayu"
 preferred-dark-theme = "ayu"
 git-repository-url = "https://github.com/joelouthan/theologicus"
 git-repository-icon = "fa-github"
@@ -28,7 +30,16 @@ no-section-label = true
 edit-url-template = "https://github.com/joelouthan/book-theologicus/edit/master/guide/{path}"
 
 [output.html.search]
-limit-results = 25
+enable = true            # enables the search feature
+limit-results = 30       # maximum number of search results
+teaser-word-count = 30   # number of words used for a search result teaser
+use-boolean-and = true   # multiple search terms must all match
+boost-title = 2          # ranking boost factor for matches in headers
+boost-hierarchy = 1      # ranking boost factor for matches in page names
+boost-paragraph = 1      # ranking boost factor for matches in text
+expand = true            # partial words will match longer terms
+heading-split-level = 3  # link results to heading levels
+copy-js = true           # include Javascript code for search
 
 [output.html.print]
 enable = true    # include support for printable output
