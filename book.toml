@@ -5,7 +5,6 @@ multilingual = false
 src = "src"
 title = "Theologicus"
 description = "Still no pen, no words, no image can express to you the loveliness of my only, only Lord Jesus. (Samuel Rutherford)"
-extra-watch-dirs = [ "theme" ]
 
 [rust]
 edition = "2021"
