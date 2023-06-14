@@ -76,8 +76,8 @@
 
 ><sup>5-6</sup> Then Boaz said, “On the day you buy the field from Naomi, you will acquire Ruth the Moabitess, the wife of the deceased man, to perpetuate the man’s name on his property.” The redeemer replied, “I can’t redeem it myself, or I will ruin my own inheritance. Take my right of redemption, because I can’t redeem it.”
 
-- the son of new wife will inherit his dead brother's property
-- this was so that the name of the dead would not be forgotten nor blotted out
+- redeemer marries widow
+- yet their son will inherit his deceased dad's property
 
 <hr style="clear:both;">
 
@@ -110,6 +110,7 @@ Barabbas is us and Christ is Christ!
 
 ><sup>10</sup> I have also acquired Ruth the Moabitess, Mahlon’s widow, as my wife, to perpetuate the deceased man’s name on his property, so that his name will not disappear among his relatives or from the gate of his hometown. You are witnesses today.”
 
+- this was so that the name of the dead would not be forgotten nor blotted out
 - The grace of God in his law
 - The law of God is good and holy and righteous
 - The law of God does not save us
