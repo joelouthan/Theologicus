@@ -2,12 +2,17 @@
 
 All notable changes to this project will be documented in this file.
 
+## 3.1 (2023-06-14)
+
+- [The Story of Ruth](ruth/ruth00.md)
+- Wordcount: 659293[^wordcount]
+
 ## 3.0 (2023-06-09)
 
 ### Added
 
 - Migrated from Hugo to mdBook
-- Wordcount: 699793 [^wordcount]
+- Wordcount: 699793
 
 <hr style="clear:both;">
 
@@ -17,19 +22,13 @@ All notable changes to this project will be documented in this file.
 
 ## 2.3 (2023-02-08)
 
-### Finished
-
 - [The Gospel of Mark](mark/mark00.md)
 
 ## 2.2 (2022-09-08)
 
-### Finished
-
 - [The Pastoral Epistles](pastorals/0-pastorals.md)
 
 ## 2.1 (2021-04-29)
-
-### Finished
 
 - [The Gospel of Luke](luke/luke00.md)
 
@@ -41,20 +40,14 @@ All notable changes to this project will be documented in this file.
 
 ## 1.3 (2019-11-28)
 
-### Finished
-
 - Doctrine: The Lord's Prayer
   - *merged with [Matthew](matthew/matthew00.md)*
 
 ## 1.2 (2018-07-05)
 
-### Finished
-
 - Doctrine: Ordo Salutis (defunct) [^1]
 
 ## 1.1 (2012-11-28)
-
-### Finished
 
 - Thanksgiving (defunct)
 
