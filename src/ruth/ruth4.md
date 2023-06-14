@@ -121,7 +121,7 @@ Barabbas is us and Christ is Christ!
 - Boaz: obeyed the law of God so that Mahlon's name would not be blotted out from existence
 - The gospel of God so that our names are in the book of life
 
->Revelation 21:22-27 (CSB) I did not see a temple in it, because the Lord God the Almighty and the Lamb are its temple. The city does not need the sun or the moon to shine on it, because the glory of God illuminates it, and its lamp is the Lamb. The nations will walk by its light, and the kings of the earth will bring their glory into it. Its gates will never close by day because it will never be night there. They will bring the glory and honor of the nations into it. Nothing unclean will ever enter it, nor anyone who does what is detestable or false, but only those written in the Lamb’s book of life.
+>Luke 10:20 (CSB) However, don’t rejoice that the spirits submit to you, but rejoice that your names are written in heaven.”
 
 ### God Does: God is in every part of your life
 
