@@ -1,14 +1,5 @@
 # The Apostles' Creed: Jesus Christ, Fully Man
 
-<style>
-
-  bgy { 
-  background-color: yellow;
-  color: black;
-  }
-
-</style>
-
 ## The Creed
 
 >I believe in God, the Father Almighty,  

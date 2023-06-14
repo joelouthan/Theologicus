@@ -1,14 +1,5 @@
 # The Apostles' Creed: I Believe in God the Father Almighty
 
-<style>
-
-  bgy { 
-  background-color: yellow;
-  color: black;
-  }
-
-</style>
-
 ## The Creed
 
 ><bgy> **I believe in God, the Father Almighty,** </bgy>  

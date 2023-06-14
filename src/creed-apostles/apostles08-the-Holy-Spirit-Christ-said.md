@@ -1,14 +1,5 @@
 # The Apostles' Creed: The Holy Spirit as Christ Revealed
 
-<style>
-
-  bgy { 
-  background-color: yellow;
-  color: black;
-  }
-
-</style>
-
 ## The Creed
 
 >I believe in God, the Father Almighty,  

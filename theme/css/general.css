@@ -118,6 +118,11 @@ h6:target::before {
     text-decoration: none;
 }
 
+bgy {
+  background-color: yellow;
+  color: black;
+}
+
 table {
     margin: 0 auto;
     border-collapse: collapse;
