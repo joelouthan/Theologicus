@@ -79,6 +79,8 @@
 - redeemer marries widow
 - yet their son will inherit his deceased dad's property
 
+>Deuteronomy 25:5-6 (CSB) When brothers live on the same property and one of them dies without a son, the wife of the dead man may not marry a stranger outside the family. Her brother-in-law is to take her as his wife, have sexual relations with her, and perform the duty of a brother-in-law for her. The first son she bears will carry on the name of the dead brother, so his name will not be blotted out from Israel.
+
 <hr style="clear:both;">
 
 ## The Second Redeemer: Boaz
