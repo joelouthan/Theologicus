@@ -1,17 +1,19 @@
 <kbd>[![](src/images/github-banner-theologicus3.png)](https://theologic.us)</kbd>
 
-## writing
+## upcoming
 
-[Ruth](https://theologic.us/ruth/ruth00.html)  
-[1689 Second London Baptist Confession](https://theologic.us/confession-1689/1689-0.html)  
-[Apostles' Creed](https://theologic.us/creed-apostles/apostles.html)  
+- [Apostles' Creed](creed-apostles/apostles00.md)  
+- [1689 Second London Baptist Confession](confession-1689/1689-00.md)  
 
-## finished
+## releases
 
-[The Gospel of Mark](https://theologic.us/mark/mark00.html)  
-[The Gospel of Luke](https://theologic.us/luke/luke00.html)
-[The Pastoral Epistles](https://theologic.us/pastorals/pastorals00.html)  
-[The Epistle to the Church in Rome](https://theologic.us/romans/romans00.html)
+- v3.1 (2023-06-14) [Ruth](ruth/ruth00.md)
+- v3.0 (2023-06-09) [Hugo to mdBook](https://theologic.us)
+- v2.4 (2023-04-13) [The Epistle to the Romans](romans/romans00.md)
+- v2.3 (2023-02-08) [The Gospel of Mark](mark/mark00.md)
+- v2.2 (2022-09-08) [The Pastoral Epistles](pastorals/pastorals00.md)
+- v2.1 (2021-04-29) [The Gospel of Luke](luke/luke00.md)
+- v2.0 (2020-04-20) [Migrated from Wordpress to Hugo](https://github.com/joelouthan/theologic.us)
 
 ## using
 
