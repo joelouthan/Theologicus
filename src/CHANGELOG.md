@@ -70,16 +70,16 @@ All notable changes to this project will be documented in this file.
 
 Semantic Versioning will be as following:
 
-### MAJOR 1.x.x
+### MAJOR 1.x
 
 New technology. In other words, as long as I using [mdBook](https://github.com/rust-lang/mdBook), Theologicus will remain in version 3.x.x.
 
-### MINOR 1.1.x
+### MINOR 1.1
 
 New **finished** exposition series. When the series is complete, this will bump up version from 3 to 3.1, for example.
 
-~### PATCH 1.1.1
+~### PATCH 1.1.1~
 
-New sermons or new articles. This will go from 3 to 3.1 to 3.2 and so on.~
+~New sermons or new articles. This will go from 3 to 3.1 to 3.2 and so on.~
 
 [^wordcount]: Per [mdbook-wordcount](https://github.com/nomorepanic/mdbook-wordcount)
