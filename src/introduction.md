@@ -29,15 +29,3 @@ I know that is absolutely true. I know I don't have enough time left on this ear
 
 In a way, if the Bible is a love letter from God to me, then Theologicus is my love letter right back at God. This is my little way of telling my Christ, "When I see you, I will hold your face and kiss your face with a thousand kisses because you are so beautiful to me and you have loved me the best."
 
-<img hidden src="apple-touch-icon.png">
-<img hidden src="android-chrome-192x192.png">
-<img hidden src="android-chrome-384x384.png">
-<img hidden src="favicon-16x16.png">
-<img hidden src="favicon-32x32.png">
-<img hidden src="favicon.png">
-<img hidden src="favicon.svg">
-<img hidden src="favicon.ico">
-<img hidden src="mstile-310x310.png">
-<img hidden src="mstile-144x144.png">
-<img hidden src="mstile-150x150.png">
-<img hidden src="safari-pinned-tab.svg">
