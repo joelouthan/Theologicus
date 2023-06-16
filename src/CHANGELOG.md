@@ -55,8 +55,6 @@ All notable changes to this project will be documented in this file.
 
 - Initial release on Wordpress
 
-[^1]: Thanksgiving and Ordo Salutis will be combined into a new series called "God Saves Sinners".
-
 ---
 
 ## Versioning
@@ -75,4 +73,5 @@ New **finished** exposition series. When the series is complete, this will bump 
 
 ~New sermons or new articles. This will go from 3 to 3.1 to 3.2 and so on.~
 
+[^1]: Thanksgiving and Ordo Salutis will be combined into a new series called "God Saves Sinners".
 [^wordcount]: Per [mdbook-wordcount](https://github.com/nomorepanic/mdbook-wordcount)
