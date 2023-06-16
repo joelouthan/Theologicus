@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->Those whom God hath predestinated unto life, he is pleased in his appointed, and accepted time, effectually to call, by his Word and Spirit, out of that state of sin and death in which they are by nature, to grace and salvation by Jesus Christ; enlightening their minds spiritually and savingly to understand the things of God; taking away their heart of stone, and giving unto them a heart of flesh; renewing their wills, and by his almighty power determining them to that which is good, and effectually drawing them to Jesus Christ; yet so as they come most freely, being made willing by his grace.
+### Those whom God hath predestinated unto life, he is pleased in his appointed, and accepted time, effectually to call, by his Word and Spirit, out of that state of sin and death in which they are by nature, to grace and salvation by Jesus Christ; enlightening their minds spiritually and savingly to understand the things of God; taking away their heart of stone, and giving unto them a heart of flesh; renewing their wills, and by his almighty power determining them to that which is good, and effectually drawing them to Jesus Christ; yet so as they come most freely, being made willing by his grace.
 
 ## The Confession
 

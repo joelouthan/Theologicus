@@ -8,7 +8,7 @@
 
 ## The Chapter
 
->As the providence of God doth in general reach to all creatures, so after a more special manner it taketh care of his church, and disposeth of all things to the good thereof.
+### As the providence of God doth in general reach to all creatures, so after a more special manner it taketh care of his church, and disposeth of all things to the good thereof.
 
 ## The Confession
 

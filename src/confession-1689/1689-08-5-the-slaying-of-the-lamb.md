@@ -14,7 +14,7 @@
 
 ## The Chapter
 
->The Lord Jesus, by his perfect obedience and sacrifice of himself, which he through the eternal Spirit once offered up unto God, hath fully satisfied the justice of God, procured reconciliation, and purchased an everlasting inheritance in the kingdom of heaven, for all those whom the Father hath given unto Him.
+### The Lord Jesus, by his perfect obedience and sacrifice of himself, which he through the eternal Spirit once offered up unto God, hath fully satisfied the justice of God, procured reconciliation, and purchased an everlasting inheritance in the kingdom of heaven, for all those whom the Father hath given unto Him.
 
 ## The Confession
 

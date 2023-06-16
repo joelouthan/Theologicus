@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->Elect infants dying in infancy are regenerated and saved by Christ through the Spirit; who worketh when, and where, and how he pleases; so also are all elect persons, who are incapable of being outwardly called by the ministry of the Word.
+### Elect infants dying in infancy are regenerated and saved by Christ through the Spirit; who worketh when, and where, and how he pleases; so also are all elect persons, who are incapable of being outwardly called by the ministry of the Word.
 
 ## The Confession
 

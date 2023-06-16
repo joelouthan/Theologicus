@@ -6,7 +6,7 @@
 
 ## The Chapter
 
->Although God created man upright and perfect, and gave him a righteous law, which had been unto life had he kept it, and threatened death upon the breach thereof, yet he did not long abide in this honor; Satan using the subtlety of the serpent to subdue Eve, then by her seducing Adam, who, without any compulsion, did willfully transgress the law of their creation, and the command given to them, in eating the forbidden fruit, which God was pleased, according to His wise and holy counsel to permit, having purposed to order it to His own glory.
+### Although God created man upright and perfect, and gave him a righteous law, which had been unto life had he kept it, and threatened death upon the breach thereof, yet he did not long abide in this honor; Satan using the subtlety of the serpent to subdue Eve, then by her seducing Adam, who, without any compulsion, did willfully transgress the law of their creation, and the command given to them, in eating the forbidden fruit, which God was pleased, according to His wise and holy counsel to permit, having purposed to order it to His own glory.
 
 ## The Confession
 
