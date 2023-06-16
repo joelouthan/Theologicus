@@ -41,4 +41,3 @@ If you know the answer to that question, then this Romans passage should be a ba
 You will struggle. You are going to fail. You will sin. You might even doubt. Your salvation was never dependent on you. Your salvation was always dependent on the ALmighty God.
 
 Rest in that. If just for today. If just for this moment. Rest in him. He has you for all of eternity.
-

@@ -30,5 +30,3 @@ Come make your home in me,
 
 Make your home within me,
   so that I might not sin against thee.
-
-

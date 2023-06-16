@@ -85,4 +85,3 @@ His perspective on all things is above all things and from all angles and all ti
 We see a description of the fantastic things that God has done: signs, wonders, and miracles. They do not happen often--they are done "at his pleasure." But our faith is not in the signs, wonders, and miracles. Our faith is in the God of the signs, wonders, and miracles.
 
 There is going to be a time where you and I face certain death. And at God's good pleasure, he might spare our life or let us die. If he does either from means or does not, he is still entirely good. Even if we don't understand all the way or at all, he is still kind and loving towards us. 
-

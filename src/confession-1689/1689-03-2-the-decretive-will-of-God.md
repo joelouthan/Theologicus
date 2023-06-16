@@ -53,4 +53,3 @@ To put it another way: if God had not elected us and had not predestined us then
 Since our salvation was decreed by God before the foundations of the world, then it came to past because he decreed it so and not because the conditions were just right or our wicked, stone cold hearts were just soft enough or we were brought to the end of our rope. God does all that of that because he decreed it to be so. But he saves us because he decreed it to be so.
 
 Praise be to his glorious name!
-

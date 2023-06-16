@@ -45,4 +45,3 @@ We were born in sin. We were born apart from God. And unless God gets involved, 
 But Christ:
 
 >John 6:44 (CSB) No one can come to me unless the Father who sent me draws him, and I will raise him up on the last day.
-

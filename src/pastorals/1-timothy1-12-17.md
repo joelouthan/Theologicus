@@ -17,5 +17,3 @@
 >Luke 18:9-14 (CSB) He also told this parable to some who trusted in themselves that they were righteous and looked down on everyone else: “Two men went up to the temple to pray, one a Pharisee and the other a tax collector. The Pharisee was standing and praying like this about himself: ‘God, I thank you that I’m not like other people—greedy, unrighteous, adulterers, or even like this tax collector. I fast twice a week; I give a tenth of everything I get.’
 >
 >“But the tax collector, standing far off, would not even raise his eyes to heaven but kept striking his chest and saying, ‘God, have mercy on me, a sinner!’ I tell you, this one went down to his house justified rather than the other, because everyone who exalts himself will be humbled, but the one who humbles himself will be exalted.”
-
-

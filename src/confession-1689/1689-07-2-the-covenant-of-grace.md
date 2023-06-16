@@ -75,4 +75,3 @@ There is no planning. No overthinking. No "I am need time to think about this."
 >2 Corinthians 6:2 (CSB) For he says: At an acceptable time I listened to you, and in the day of salvation I helped you. See, now is the acceptable time; now is the day of salvation!
 
 Now is the acceptable time! Today is the day of your salvation! Believe in the Lord Jesus Christ and you will be saved!
-

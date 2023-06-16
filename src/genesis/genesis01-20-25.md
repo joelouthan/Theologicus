@@ -170,4 +170,3 @@ Just like God provides the necessary sacrifice to save Isaac, God sends his Son 
 ><sup>34</sup> Therefore don’t worry about tomorrow, because tomorrow will worry about itself. Each day has enough trouble of its own.
 
 For the Christian, our days are in his hands. Our lives are forever with him. No one can snatch us out of his hands. Not even death can separate us from the love of God that is in Jesus Christ our Lord.
-

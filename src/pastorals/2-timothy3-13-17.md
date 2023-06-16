@@ -106,4 +106,3 @@ We must pick up the Scriptures and *believe*. We must trust the Lord. We must ob
 >3. In other words, is it possible to believe something and not live by that belief?
 
 >4. How can we believe God?
-

@@ -139,4 +139,3 @@ Repent of sin. Love God. Love others. Preach the gospel to every creature to the
 >3. What about this: what would it be like to encourage each other with word or weep with those who are grieving in loss and death? What would that look like in our lives?
 
 >4. Name some of the ways to be better in rightly handling the word of God?
-

@@ -27,4 +27,3 @@ TODO:
 >Psalm 110:3 (CSB) Your people will volunteer on your day of battle. In holy splendor, from the womb of the dawn, the dew of your youth belongs to you.
 
 >Luke 1:74–75 (CSB) since we have been rescued from the hand of our enemies, to serve him without fear in holiness and righteousness in his presence all our days.
-

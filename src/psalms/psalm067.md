@@ -71,4 +71,3 @@ You found me
   You are my heart and my love and joy forever.
 
 Amen.
-

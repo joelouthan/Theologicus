@@ -61,4 +61,3 @@ I am my Beloved
 and he is mine forever.
 
 Amen.
-

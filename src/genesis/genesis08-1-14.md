@@ -225,4 +225,3 @@ Pray and depend on the Holy Spirit and not on your own strength to keep you clos
 You didn't earn your salvation by doing the right thing? Why on earth do you think you will keep it with God doing all the work.
 
 Pray to God. Trust in Christ. Be led by the Spirit. Obey his commands.
-

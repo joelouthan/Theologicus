@@ -48,4 +48,3 @@ You have always been kind
 
 I praise you
   you are my God.
-

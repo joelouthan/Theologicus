@@ -104,4 +104,3 @@ Recall the cry of the tax collector who cried out to God, “Have mercy on me, a
 Lady, if both of your kids know and love God, if both of your kids walk with Him in their days and keep his commandments not because they are super trying hard but by the power and grace of His Almighty Spirit through the broken and blood drained body of the Son of God, then my friends, I can almost assure you that both of your kids are saved to God.
 
 God’s maxed out love is so tremendous and wonderful that sin, death, hell, Satan, nor his demons would be able to stop Him from rescuing his people. That is the very best love.
-

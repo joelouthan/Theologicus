@@ -37,4 +37,3 @@ Because you have sent your Son
   can give me nothing.
 
 Amen.
-

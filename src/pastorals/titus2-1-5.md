@@ -144,4 +144,3 @@ The ESV rightly calls this atoning sacrifice, "the propitiation for our sins." I
 >3. Where does love come from?
 
 >4. What is greatest example of everything that God command us to do?
-

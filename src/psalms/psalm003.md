@@ -43,4 +43,3 @@ Be with me, Lord. I have no one else to turn to. You alone have the words to ete
 By Your Son's beautiful name,
 
 Amen
-

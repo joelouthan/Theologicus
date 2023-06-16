@@ -42,4 +42,3 @@ I am holy,
   and continuous under your grace and mercy.
 
 Because of your anointing on my life.
-

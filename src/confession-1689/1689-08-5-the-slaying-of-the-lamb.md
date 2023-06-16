@@ -89,4 +89,3 @@ Yet:
 >1 John 4:9-10 (ESV) In this the love of God was made manifest among us, that God sent his only Son into the world, so that we might live through him. **In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.**
 
 Latimer, Ridley and nearly 300 other Christian men, women, and children died during the reign of Bloody Mary because they believe that Christ came to save sinners, once and for all, and there is nothing we can do to add to his perfect and final work.
-

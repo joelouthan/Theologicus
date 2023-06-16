@@ -191,4 +191,3 @@ all his fullness dwell in him,
 >through his blood, shed on the cross.
 >
 >21 Once you were alienated and hostile in your minds as expressed in your evil actions. 22 But now he has reconciled you by his physical body through his death, to present you holy, faultless, and blameless before him—
-

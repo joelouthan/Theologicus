@@ -50,4 +50,3 @@ I praise you
   have loved me.
 
 Amen
-

@@ -84,4 +84,3 @@ Do the works that God has set out for you to do. You have no opponent that can a
 >2. Who is in ministry?
 
 >3. If we are all ministers but commit sin, what can we do? What does Christ command us to do?
-

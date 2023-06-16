@@ -133,4 +133,3 @@ God is your friend. Father is your Father. The Spirit is your witness that you a
 Do what you must to know him more and to love him more. Don't walk away. Don't go your own way. This is the best route. This is the only way to get to life everlasting, fullness of joy, pleasures evermore and complete satisfaction.
 
 Put your trust in him. He will be with you forever.
-

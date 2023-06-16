@@ -29,4 +29,3 @@ matthew06-11-13-the-lords-prayer-deliver-us-from-evil.md
 matthew06-11-the-lords-prayer-our-daily-bread.md
 matthew06-12-15-the-lords-prayer-forgive-us.md
 matthew06-13b-the-lords-prayer-yours-is-the-kingdom.md
-

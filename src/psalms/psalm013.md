@@ -41,4 +41,3 @@ Thank you for You.
 
 In Your Son’s incredible and mighty name, I pray.
 Amen.
-

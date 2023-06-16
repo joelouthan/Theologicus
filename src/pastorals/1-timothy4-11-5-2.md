@@ -149,4 +149,3 @@ We are all being conformed and sanctified so that one day, we will truly look li
 Your character matters. You are holy because God is holy. You are set apart because God is set apart. You cannot look like the world. And despite our wounds and hurts from people in the church, we are still in this together. We are not going to do this apart from each other. That isn't the plan of God. That is not the will of God.
 
 Our hope is not in how well we do church: that is, beat and scatter the wolves nor how we feed  God's lambs (you and me)--our hope is in Christ alone, who is the Good Shepherd. Obey his call to love and minister to one another.
-

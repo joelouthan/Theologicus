@@ -126,4 +126,3 @@ Don't let the good news of God fall on your deaf ears. Listen and believe and re
 >Romans 5:11 And not only that, but we also boast in God through our Lord Jesus Christ, through whom we have now received this reconciliation.
 
 Go and praise God that you are saved today. Give thanks for all that he has done.
-

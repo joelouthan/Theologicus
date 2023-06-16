@@ -31,4 +31,3 @@ There is nothing in nature, circumstance, fixed, destiny, mechanical, or physica
 We outright reject fatalism--that our predetermined actions are inevitable and there is nothing you can do. 
 
 Make no mistake: there is a choice to be made. Follow God or descend into death.
-

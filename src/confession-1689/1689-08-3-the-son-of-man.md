@@ -245,7 +245,6 @@ It was only because of what Christ did so that we could be made holy, harmless, 
 
 >2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
-
 ### He might be throughly furnished to execute the office of mediator and surety
 
 >Hebrews 7:22 (CSB) Because of this oath, Jesus has also become the guarantee of a better covenant.
@@ -297,4 +296,3 @@ And:
 >Revelation 5:12 (CSB) They said with a loud voice, Worthy is the Lamb who was slaughtered to receive power and riches and wisdom and strength and honor and glory and blessing!
 
 Amen!
-

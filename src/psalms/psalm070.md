@@ -39,4 +39,3 @@ Doesn't compare
   to your unending love for me.
 
 Amen.
-

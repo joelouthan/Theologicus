@@ -47,4 +47,3 @@ What is really going to blow your mind is that it is the God of the Universe who
 >So completely was Jesus bent upon saving sinners by the sacrifice of himself, he created the tree upon which he was to die, and nurtured from infancy the men who were to nail him to the accursed wood.
 >
 >Octavius Winslow. The Life of Christ. 1855.
-

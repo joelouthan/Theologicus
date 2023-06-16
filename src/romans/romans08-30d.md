@@ -82,4 +82,3 @@ I give thanks who has given me strength; He is Christ Jesus my Lord because He j
 I can only love the God who has done nothing but rescued me and let me be with him for all of eternity.
 
 He is the Lord, most high above all the earth. I will exalt him far above all other gods. I can only worship the King of the ages, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
-

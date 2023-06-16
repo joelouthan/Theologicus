@@ -97,4 +97,3 @@ But let me encourage each one of us: for us to understand the Scriptures--a docu
 Sola Scriptura, like the other four Doctrines of Grace, reveals that we are as utterly dependent on God for God. Fortunately, if we ask for wisdom, God gives. We ask for salvation, God gives. We ask for Christ, God gives. We turn to God, run to God, ask God for God, we will get God. All the time with no delay.
 
 Praise be to God.
-

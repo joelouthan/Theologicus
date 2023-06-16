@@ -9,7 +9,3 @@
 <div style="font-variant: small-caps;">
 Lord
 </div>
-
-
-
-

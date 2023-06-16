@@ -282,4 +282,3 @@ What is the answer? Jesus Christ is his name!
 And because Jesus is the Christ and he has done it everything to save you from your sin, guess what? **There is therefore now NO CONDEMNATION for those who are in Christ Jesus.**
 
 I tell you these things so that you joy may be full.
-

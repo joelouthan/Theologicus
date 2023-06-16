@@ -79,7 +79,6 @@ What about one substance?
 
 >Exodus 3:14 (CSB) God replied to Moses, “I AM WHO I AM. This is what you are to say to the Israelites: I AM has sent me to you.”
 
-
 >John 8:57-58 (CSB) The Jews replied, “You aren’t fifty years old yet, and you’ve seen Abraham? ”Jesus said to them, “Truly I tell you, before Abraham was, I am.
 
 I think the best way of describing this is loosely quoting Augustine:
@@ -213,4 +212,3 @@ And upon that glory, we can rest assure that our salvation permanently and etern
 To the great and mighty God, his promises are yes and amen. Our promises are easily broken. We are faithless, he remains faithful. Great is his faithfulness!
 
 >Romans 8:14–17 (CSB) For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
-

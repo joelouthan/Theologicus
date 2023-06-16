@@ -84,4 +84,3 @@ Name my sins
   will glorify His name
   because salvation belongs to the Lord
   You are the only one mighty to save me.
-

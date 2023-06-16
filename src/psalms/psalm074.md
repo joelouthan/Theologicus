@@ -54,4 +54,3 @@ Do with me as you will
   And I live to serve you alone.
 
 Amen.
-

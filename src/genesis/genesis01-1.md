@@ -136,4 +136,3 @@ Figure out who is the elect and not the elect? Nope! That mystery does not belon
 Break our theology and the English language trying to make two concepts of sovereignty and the freedom of the will of dead people and make them compatible? Nope. God makes it clear for what we are to know. We don't get to fully know God--our finite minds cannot possible comprehend him on that level. But because of the perfect life and perfect death of Christ our Lord, we get to *truly* know him.
 
 What we get do: repent of our sins and put our trust in the Mighty One who saves.
-

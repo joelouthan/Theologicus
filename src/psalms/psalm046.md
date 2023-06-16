@@ -62,4 +62,3 @@ Nothing else
   My Lord and my Rock.
 
 Amen.
-

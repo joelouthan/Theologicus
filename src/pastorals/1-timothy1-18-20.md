@@ -53,4 +53,3 @@ Some people think that they are not shipwrecking their faith. They walk away fro
 Don't shipwreck your faith. Keep your eyes upon God. Confess your sins quickly because he is faithful and just to forgive you and me of our sins and cleanse us from all unrighteousness. Repent for the kingdom of God is here right now.
 
 ## The Gospel
-

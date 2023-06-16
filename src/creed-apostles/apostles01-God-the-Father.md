@@ -208,4 +208,3 @@ And
 We are weak. We cannot cover up ourselves enough to be holy unto God. Yet, God is almighty. He alone was strong enough to come down from glory to take us on in order to save us from our sins.
 
 That is the Almighty God.
-

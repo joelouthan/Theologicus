@@ -162,4 +162,3 @@ Is God good enough? God alone is good. The world is offering us shiny things and
 What God has is the only treasure. Because that treasure is Christ.
 
 Choose on this day. Rest in him. You belong to him.
-

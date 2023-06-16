@@ -63,4 +63,3 @@ You are my most precious Savior and Messiah.
 You are my Lord and my God. Forever.
 
 Amen.
-

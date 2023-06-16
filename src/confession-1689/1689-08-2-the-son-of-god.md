@@ -95,4 +95,3 @@ And we know he has never discard his flesh, for:
 >Revelation 12:11 (CSB) They conquered him by the blood of the Lamb and by the word of their testimony; for they did not love their lives to the point of death.
 
 Jesus Christ is our Savior forever. Amen.
-

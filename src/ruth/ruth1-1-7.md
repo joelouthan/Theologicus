@@ -204,4 +204,3 @@ But we sit here, as the people of God, righteous in his eyes because of Christ a
 And God saw all of that. And God knew that. That is why he sent his Son to live and die so that we are a new creation saved unto him forever and ever.
 
 We don't have to have an excuse. We don't have to blameshift. We don't have to hold on to our own bitterness. We get to rest in the presence of God where there is only fullness of joy and pleasures forevermore. (Psalm 16:11)
-

@@ -40,4 +40,3 @@ I fear no evil
   from despair.
 
 Amen.
-

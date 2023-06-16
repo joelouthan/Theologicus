@@ -176,4 +176,3 @@ From the decree and the sovereign grace of the Father by the power of the Almigh
 >to the glory of God the Father.
 
 Amen
-

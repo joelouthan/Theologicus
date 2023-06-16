@@ -151,4 +151,3 @@ You have the same Spirit of Christ who raised Christ from the dead dwelling in y
 ><sup> 15  </sup>All those who are with me send you greetings. Greet those who love us in the faith. Grace be with all of you.
 
 Greet each other in the name of the Lord. Grace be with you all. Amen.
-

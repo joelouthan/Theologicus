@@ -42,4 +42,3 @@ Open our eyes to see
 Blessed be your glorious name forever.
 
 Amen.
-

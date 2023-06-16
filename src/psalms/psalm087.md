@@ -69,5 +69,3 @@ I will exalt you
   forever.
 
 Amen.
-
-

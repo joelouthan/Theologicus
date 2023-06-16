@@ -131,4 +131,3 @@ You must do what God has commanded every single son of Adam to do if they wanted
 From Genesis to Revelation. Day 6 of creation to the last day. It doesn't matter. You want God's daily mercies, his oceans of grace, and his unending love for you even if you have done unspeakable evil and live in shame and fear. 
 
 Call upon his name and you will be saved. Full stop.
-

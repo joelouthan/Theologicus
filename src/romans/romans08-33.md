@@ -98,4 +98,3 @@ I am elect and justified and saved all because what Christ has done for me:
 I have sinned against God alone but it is God alone who justifies.
 
 Who is like our God and who compares to Him? He alone is love.
-

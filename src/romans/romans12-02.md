@@ -156,4 +156,3 @@ Trust in the Lord and in his work in you. And his work in you to change your min
 Now, we a mind by God, you can discern what is good, pleasing and the perfect will of God. And then you get to go do those things.
 
 Praise be to God. He has it all figured out. Just be in him and worship him today.
-

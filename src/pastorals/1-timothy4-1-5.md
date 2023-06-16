@@ -122,4 +122,3 @@ Beyond that: salvation, adoption, redemption, satisfaction, and joy also come fr
 That is the good news. The world adamantly disagrees.
 
 What news are you going to believe today?
-

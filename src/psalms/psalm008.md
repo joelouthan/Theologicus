@@ -48,4 +48,3 @@ God, I love you. For all of my life and all of eternity, I will forever proclaim
 
 In your name, I pray.
 Amen.
-

@@ -51,4 +51,3 @@ He alone can save you. He alone can set you free.
 What will it be?
 
 >Joshua 24:15 (CSB) But if it doesn’t please you to worship the LORD, choose for yourselves today: Which will you worship—the gods your ancestors worshiped beyond the Euphrates River or the gods of the Amorites in whose land you are living? As for me and my family, we will worship the LORD.”
-

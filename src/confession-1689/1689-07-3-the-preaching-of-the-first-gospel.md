@@ -34,7 +34,6 @@ God speaks:
 
 >Matthew 4:4 (CSB) He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
 
-
 And gives us the Old Testament:
 
 >Luke 24:27 (CSB) Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
@@ -86,4 +85,3 @@ But our God was not phased by this. Not shook. Not scared. Not angry. Not fright
 Then his Son did come. Not with legions of angels and a sword but rather, as the tiniest baby--helpless, dependent, and feeble. And this Son grew in wisdom and stature and love unto God--perfectly obeying his Father's law and his given parents. And the Son of God, also stood face to face with Sin that hovered over the grave of his friend. He stared Death right between the eyes, and proclaimed defiantly, "**Lazarus, come forth**!"
 
 I tell you these things so that your joy may be full.
-

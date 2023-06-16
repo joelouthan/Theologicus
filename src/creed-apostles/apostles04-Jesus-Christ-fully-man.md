@@ -82,4 +82,3 @@ Yet, in their history books, state this one fact: Jesus Christ, King of the Jews
 There will be some hivemind atheists and agnostics who will try to deny the historical Jesus. But to do that would make you look foolish to not only the world but to other sensible atheist.
 
 Attack the Christ from every angle just reinforces Romans 1:18-25. To attack Christ from an historical angle makes you look dumb and stupid.
-

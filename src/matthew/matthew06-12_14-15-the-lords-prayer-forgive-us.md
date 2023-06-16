@@ -75,4 +75,3 @@ My Love and My Life
 Help us to forgive others.
 
 Amen.
-

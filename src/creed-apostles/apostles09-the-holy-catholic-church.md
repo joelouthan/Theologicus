@@ -60,4 +60,3 @@
 >Revelation 21:9-11 (CSB) Then one of the seven angels, who had held the seven bowls filled with the seven last plagues, came and spoke with me: “Come, I will show you the bride, the wife of the Lamb.” He then carried me away in the Spirit to a great, high mountain and showed me the holy city, Jerusalem, coming down out of heaven from God, arrayed with God’s glory. Her radiance was like a precious jewel, like a jasper stone, clear as crystal.
 
 >Revelation 22:16-17 (CSB) “I, Jesus, have sent my angel to attest these things to you for the churches. I am the Root and descendant of David, the bright morning star.” Both the Spirit and the bride say, “Come! ” Let anyone who hears, say, “Come! ” Let the one who is thirsty come. Let the one who desires take the water of life freely.
-

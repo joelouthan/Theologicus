@@ -36,5 +36,3 @@ Even when I am in the wilderness,
 
 You are my God. I will adore
 and worship you forever.
-  
-

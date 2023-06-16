@@ -34,4 +34,3 @@ My soul is no longer dried in sin
 God, please keep me close 
   so that I stay refreshed 
   and satisfied in all of life.
-

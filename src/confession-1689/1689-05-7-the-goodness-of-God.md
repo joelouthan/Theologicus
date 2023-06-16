@@ -105,4 +105,3 @@ All I will do is say no more but praise his glorious name forever.
 ><sup>8</sup> in order to seat them with nobles— with the nobles of his people. 
 >
 ><sup>9</sup> He gives the childless woman a household, making her the joyful mother of children. Hallelujah!
-

@@ -104,4 +104,3 @@ God makes zero promises that your temporal life on earth will be easy or good. B
 Believe in Christ. Give over your sins to Christ. Be washed cleaned in Christ. Have the dwelling of the Triune God because of Christ. 
 
 Come dwell with God all because of what Christ has done for us.
-

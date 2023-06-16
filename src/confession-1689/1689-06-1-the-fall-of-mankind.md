@@ -67,4 +67,3 @@ In other words, because we hold the entirety of Scriptures in the palm of our ha
 >Romans 5:17 (CSB) If by the one man’s trespass, death reigned through that one man, how much more will those who receive the overflow of grace and the gift of righteousness reign in life through the one man, Jesus Christ.
 
 God allowed Adam and Eve to sin so that he could show his grace and mercy to all of mankind. And he did. We know he did because he gave his only begotten Son, Jesus Christ, Son of God, who is God, to take on the sins of Adam and Eve and every single person who believed on him for eternal life.
-

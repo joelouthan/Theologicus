@@ -23,4 +23,3 @@ But Christ came. He worked so we could rest in him. And one day, we will get to 
 Our final Sabbath is coming, brothers and sisters. Rest in his amazing grace.
 
 Amen.
-

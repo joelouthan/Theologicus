@@ -37,4 +37,3 @@ Now, because we are finite beings with tiny perspectives, it would seem that God
 But that is just it, we are not like God in that we know the end from the beginning. We can't see it. But we do see the work of the Holy Spirit after he has wielded his incredible, almighty power:
 
 >John 3:8 (CSB) The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.”
-

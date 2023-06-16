@@ -90,4 +90,3 @@ Praise God for his perfection and glory.
 Praise God for his ability, willingness, and actually completed his salvation of His people.
 
 Praise God for his absolutely amazing love!
-

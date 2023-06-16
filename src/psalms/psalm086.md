@@ -75,4 +75,3 @@ In my life and love and heart and strength,
 Thank you, my God and Protector.
 
 Amen.
-

@@ -223,4 +223,3 @@ But God's plan? The Father, Son, and Spirit, perfect in their selves and with ea
 ><sup>10</sup> Many pains come to the wicked, but the one who trusts in the LORD will have faithful love surrounding him. 
 >
 ><sup>11</sup> Be glad in the LORD and rejoice, you righteous ones; shout for joy, all you upright in heart.
-

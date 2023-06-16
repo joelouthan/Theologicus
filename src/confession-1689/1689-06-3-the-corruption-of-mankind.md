@@ -109,4 +109,3 @@ There are not multiple ways out this life. There is no two gospels. There is not
 >Romans 1:16 (CSB) For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek.
 
 There is just one good news and that is God saves sinners through Jesus Christ our Lord and Savior. Believe on him and trust in him and you will be saved.
-

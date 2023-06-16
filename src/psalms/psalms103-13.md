@@ -27,4 +27,3 @@ This
   my God.
 
 Amen.
-

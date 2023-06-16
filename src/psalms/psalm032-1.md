@@ -73,4 +73,3 @@ Now, I am your son,
 I will forever praise your holy name.
 
 Amen.
-

@@ -150,4 +150,3 @@ The covenants of God, the promises of God, in the working of God to save his peo
 Love God. Obey God. And go and tell others of this amazingly good news.
 
 Peace and grace be with us all.
-

@@ -42,5 +42,3 @@ You have spoken my name
   and perfect.
 
 Be glorified today.
-
-

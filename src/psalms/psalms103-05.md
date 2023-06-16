@@ -39,4 +39,3 @@ In you, my Christ
   no more.
 
 Amen.
-

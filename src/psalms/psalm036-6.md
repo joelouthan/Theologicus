@@ -90,4 +90,3 @@ Keep me in your heart
   speak into my soul
   write your words in my heart
   that I may never sin against you.
-

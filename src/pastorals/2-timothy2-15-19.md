@@ -78,4 +78,3 @@ You are facing tribulations. You are being weakening. It is not the people of th
 We live in such a time when even self-proclaimed Christians live their lives with no fear of God whatsoever.
 
 I preach one thing, "Repent for the kingdom of God is now."
-

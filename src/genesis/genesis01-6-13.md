@@ -115,4 +115,3 @@ Once God opens our eyes, renews our minds, and exchanges our hearts, we worship 
 >than a thousand anywhere else.  
 >I would rather stand at the threshold of the house of my God  
 >than live in the tents of wicked people.
-

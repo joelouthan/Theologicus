@@ -56,5 +56,3 @@ Christ saved me in
 Blessed be your name forever.
 
 Amen.
-
-

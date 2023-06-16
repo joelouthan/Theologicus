@@ -233,4 +233,3 @@ His name is
 the Lord Jesus Christ.  
 
 Amen.
-

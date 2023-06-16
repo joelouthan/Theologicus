@@ -121,4 +121,3 @@ For our imprisoned wills to choose God, believe God, trust God, and worship God,
 Unless your have been set free by God, you are not a child of God and have not been set from the bondage of sin and death. You cannot enjoy the glorious freedom of God because you are not his child.
 
 >John 1:12-13 (CSB) But to all who did receive him, he gave them the right to be children of God, to those who believe in his name, who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
-

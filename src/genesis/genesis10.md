@@ -367,4 +367,3 @@ And God saved me. I have lost my family but he has restored my soul for his name
 Our lineage, ancestry, bloodline ain't worth jack unless God comes into our bloodlines and redeems us. And it starts with us. Not our parents, not our pastor, not our church--you and I must decide today to repent of our sins and trust in Christ alone.
 
 Choose on this day on whom you will serve.
-

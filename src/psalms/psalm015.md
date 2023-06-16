@@ -41,4 +41,3 @@ I love you, God.
 
 In name of Your mighty Son, I pray.
 Amen.
-

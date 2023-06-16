@@ -119,4 +119,3 @@ Will you follow Christ even if you lost everything?
 Will you follow Christ even if you lose your loved ones?
 
 Will you lay your old life down, right now, and follow Christ?
-

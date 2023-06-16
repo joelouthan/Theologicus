@@ -161,4 +161,3 @@ Wanna mess with greed? How about the loss of your soul.
 I can keep going all day.
 
 But if you are listen to me, and the Spirit of God is nudging you and speaking to you to give your sin over to Him, don't ignore it. Don't leave this channel to think about it some more. Tomorrow is not guarantee. Walk through that narrow gate. Give up your life for Jesus so Christ can give you the newness of life. You will just have to give up all your sin.
-

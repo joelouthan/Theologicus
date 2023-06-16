@@ -35,4 +35,3 @@ And you alone, my Lord,
   just to give me life.
 
 Blessed be your wonderful name.
-

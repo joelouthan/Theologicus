@@ -40,4 +40,3 @@ I make no claim to myself
 Be glorified today.
 
 Amen.
-

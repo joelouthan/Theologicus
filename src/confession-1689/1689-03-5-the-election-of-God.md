@@ -153,4 +153,3 @@ Son: Let’s do this!
 >Genesis 1:1 (CSB) In the beginning God created the heavens and the earth.
 
 Beloved, you were always loved by God and he will never stop loving you. Praise be to his glorious grace forever.
-

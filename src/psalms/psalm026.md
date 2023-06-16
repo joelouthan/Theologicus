@@ -60,4 +60,3 @@ You are the one who set His affections upon me
 
 Be thou my righteousness forever.
   It is only you that I trust.
-

@@ -51,4 +51,3 @@ You alone are awe-inspiring
 Yet, I am yours
   and you are mine
   forever
-

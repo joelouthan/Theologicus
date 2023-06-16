@@ -48,4 +48,3 @@ I love you Lord
   now and always
 
 Amen.
-

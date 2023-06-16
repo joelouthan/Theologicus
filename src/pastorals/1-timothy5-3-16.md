@@ -87,4 +87,3 @@ Often it is said that "we will be his people and He will be God."
 Or to put it more intimately, as the lover from the Song of Songs would rightly proclaim: "My beloved is mine, and I am his forevermore."
 
 Praise be to God.
-

@@ -36,5 +36,3 @@ Be exalted, O Lord.
 Be lifted up higher and higher.
 
 Amen.
-
-

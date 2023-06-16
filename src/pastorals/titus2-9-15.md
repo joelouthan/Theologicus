@@ -127,4 +127,3 @@ Because God's word is true and declares and defines our identity in Christ, go a
 >1 John 3:18 (CSB) Little children, let us not love in word or speech, but in action and in truth.
 
 No weightless talk. No empty speeches. No social media posts that makes us sound godly and smart. But real love. Loving God and loving our neighbor as ourselves. How does that look like? It starts by proclaiming these words to your kids, your family, your parents, your neighbors and figuring out how to love them well by giving over your time, effort, energy, money and resources. Do this until Christ comes back. We do this because we have Christ and we have everything.
-

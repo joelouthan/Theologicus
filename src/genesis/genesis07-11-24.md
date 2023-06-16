@@ -210,4 +210,3 @@ If you have never trusted Jesus Christ before, you can do so now. If you have be
 You don't have to get out of your seat. Sit still. Call upon the name of the Lord to save you. Call upon God and pray to God to ask God for God. If you do these things, you will get God.
 
 That is the only guarantee I have for you and it doesn't come from me, it comes from God.
-

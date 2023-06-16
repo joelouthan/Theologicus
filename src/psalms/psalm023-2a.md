@@ -62,4 +62,3 @@ I thank you
 
 I thank you 
   for giving me strength for you are Christ Jesus my Lord forever.
-

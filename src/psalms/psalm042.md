@@ -76,4 +76,3 @@ You are my Lord and my God
   there is none like you
 
 Amen and amen
-

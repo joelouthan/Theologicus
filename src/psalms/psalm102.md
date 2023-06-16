@@ -100,4 +100,3 @@ And you do it everyday
   forevermore.
 
 Amen.
-

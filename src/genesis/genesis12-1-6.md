@@ -152,4 +152,3 @@ If you are saying to yourself, "I did not hear the audible voice of God. Am I sa
 God does not have to make audibly know by all but God, the perfect communicator, spoke to our dead hearts and cause them to come alive. You and I are born again. We are alive because of Christ. 
 
 Go and live!
-

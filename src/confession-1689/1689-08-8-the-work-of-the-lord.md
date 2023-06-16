@@ -223,4 +223,3 @@ We cannot earn the grace of God. We cannot earn the favor of God. We cannot earn
 God gives grace.
 
 In other words, God saves sinners.
-

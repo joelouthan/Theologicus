@@ -102,4 +102,3 @@ Page 1, Book 1, Chapter 1, Verse 1:
 ><sup>20</sup> Therefore, we are ambassadors for Christ, since God is making his appeal through us. We plead on Christ’s behalf, “Be reconciled to God.” 
 >
 ><sup>21</sup> He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
-

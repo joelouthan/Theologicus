@@ -49,4 +49,3 @@ I love you, Lord. Thank you for saving me to You.
 In your Son’s precious and beautiful name, I pray.
 
 Amen.
-

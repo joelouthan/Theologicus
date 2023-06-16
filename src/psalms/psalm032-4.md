@@ -71,5 +71,3 @@ But you sent your Son
 You are my God forever.
 
 Forever I will love you.
-
-

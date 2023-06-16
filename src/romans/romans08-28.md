@@ -76,4 +76,3 @@ we are counted as sheep to be slaughtered.
 No, in all these things we are more than conquerors through him who loved us.
 
 All the bad. All the good. Everything in between that has happened in your life--God will absolutely use to draw closer to Him.
-

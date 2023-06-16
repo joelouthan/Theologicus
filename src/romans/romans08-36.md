@@ -118,4 +118,3 @@ His persecution and death and burial rescued us! His work saved his people from 
 Can we do it perfectly? No. We can't. We are not perfect. We are still in need of sanctification because we are still being conformed to the image of the Son. But we are saved. We are completely saved. We are saved by God to worship and love him and to love others.
 
 Rest in that, beloved. Rest and dwell in that. Suffering is certain. Persecution is near. But the Triune God has made his home in you. Rest in him today.
-

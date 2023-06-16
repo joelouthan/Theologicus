@@ -116,4 +116,3 @@ Here are big facts: this not my truth. This is not the truth that is true to me 
 This is absolute truth for all mankind for all of history because the One God who created heaven and hell and earth and you and me proclaimed it to be so and it is done.
 
 Believe on this. Call upon the name of the Lord Jesus Christ and you will be saved.
-

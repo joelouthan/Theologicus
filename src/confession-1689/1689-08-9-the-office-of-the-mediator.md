@@ -31,4 +31,3 @@ That false teaching from false teacher in complete contradiction to the word of 
 And if you try to use the argument for needing a mediator between Christ and mankind, I got some news for you. Christ is not only the Son of God who is God but also the Son of Man because he is fully man. We do not need another mediator between us and God because no man, born in flesh, was ever qualified to be the mediator between us and God other than Jesus Christ, who was always fully God and took on flesh in order to bridge the infinite gap between God and mankind.
 
 There is no other name by which we are saved.
-

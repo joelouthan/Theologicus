@@ -137,4 +137,3 @@ But why minster? Why proclaim? Why disciple?
 God was kind and gentle and patient with you and me to believe and trust his Son.
 
 God will be so kind to others so that maybe God will give the same gift of repentance so that they can believe and trust His Son.
-

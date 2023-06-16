@@ -64,4 +64,3 @@ We do not have to beg God for what we need. He is God. He alone knows the depths
 ## Pray
 
 In this series, I want you to write down and pray prayers based on what you have learned to today.
-

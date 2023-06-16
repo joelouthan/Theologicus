@@ -116,4 +116,3 @@ enthroned on the praises of Israel.
 they trusted, and you rescued them.
 5 They cried to you and were set free;
 they trusted in you and were not disgraced.
-

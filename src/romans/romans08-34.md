@@ -100,4 +100,3 @@ Do you think your King and your God and your Lord who is Almighty and powerful a
 He does because He is God.
 
 And He never stops thinking about you because He loves you.
-

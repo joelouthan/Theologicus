@@ -101,4 +101,3 @@ I stare into the face of the loveliest face that I have ever seen in my existenc
 He looks into my eyes, and with the sweetest smile, he says to me, "Enter in the joy of your master."
 
 It is only by the sovereign grace of our Father, through the power and might of the Holy Spirit, by the glorious life, death, and resurrection of Christ Jesus that we are justified to God forever.
-

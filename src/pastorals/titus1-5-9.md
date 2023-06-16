@@ -169,4 +169,3 @@ Believe on this and you shall be saved.
 >3. On the same thought, can we know when someone is not saved?
 
 >4. How many Christians do you know who want to serve as an elder in their local church?
-

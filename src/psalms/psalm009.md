@@ -70,4 +70,3 @@ Thank you.
 
 In your Son’s incredible name I pray.
 Amen.
-

@@ -155,4 +155,3 @@ You might think, "I feel so far from him. How can this be?"
 My sweet child, you cannot see the finish line because you are limited. But Christ sees the end because he is already there. Right now, already there. Next week, he is there with you. Fifty years from now, there. He is Jehovah-Shammah "The God Who is There" (Ezekiel 48:35)
 
 God is going to bring you home--whether you have great or little faith. God is going to bring you all the way home. And you will look like his son--perfect, splendor, radiant, glorious... glorified. And one day, we will get to hold his loving face, kiss him with a thousand kisses because he saved us. Right then, our faith is satisfied, our hope is fulfilled because we are now our Beloved and he is with us forever.
-

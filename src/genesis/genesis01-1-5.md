@@ -211,4 +211,3 @@ Now, how do I know that Christ *joyfully* obeyed God evening unto death on the c
 >You reveal the path of life to me;  
 >in your presence is abundant joy;  
 >at your right hand are eternal pleasures.
-

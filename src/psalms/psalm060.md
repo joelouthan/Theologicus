@@ -36,4 +36,3 @@ Make me like your Son
 And turn my heart towards you.
 
 Amen.
-

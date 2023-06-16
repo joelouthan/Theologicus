@@ -115,4 +115,3 @@ Life everlasting, joy, satisfaction, peace, and pleasures forever can only be fo
 Listen to him. Pray and seek him. Listen to his word more so than anything else the world is trying to tell you.
 
 >Grace be with you all.
-

@@ -39,4 +39,3 @@ My little heart and feeble mind wants to give up and turn my face back towards d
 Then I would leave Life. I would step out of the fullness of joy. I would then settle for lesser pleasures. I would not have You.
 
 God, I am still weak like a little child. Give me your strength and love. Turn my heart towards you. Run towards me and pick me up once more.
-

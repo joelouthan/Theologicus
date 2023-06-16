@@ -34,4 +34,3 @@ Write your precious Scripture
   forever.
 
 Amen.
-

@@ -46,5 +46,3 @@ And give me your Son
    forever.
  
 Amen.
-
-

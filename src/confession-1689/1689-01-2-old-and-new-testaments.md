@@ -45,4 +45,3 @@ And if you don't know your Bible well, you might be tempted to dismiss this alto
 But there is one who returned from the dead, who breathed out the words of God by the power of the Holy Spirit from the sovereign grace and mercy of God our Father--that is, Jesus Christ our Lord.
 
 Christ has returned from the dead. Will you repent of your sins? Will you trust and believe and live by the words of God? Will you obey the Son of God who is God for your life!
-

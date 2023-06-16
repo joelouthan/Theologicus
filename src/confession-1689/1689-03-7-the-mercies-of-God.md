@@ -118,4 +118,3 @@ Or in the words of the Apostle Paul be our ever declaration:
 >Luke 10:20 (CSB) However, don’t rejoice that the spirits submit to you, but rejoice that your names are written in heaven.”
 
 This is why we will praise his name forever. Amen.
-

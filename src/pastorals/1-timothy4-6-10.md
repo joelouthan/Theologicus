@@ -97,4 +97,3 @@ In other words, you are either in Christ under his protection or you are in his 
 What is the good news?
 
 We do all of this not in vain. We do this because all of the Christian's hope is found in Christ alone. He is the only one who will reveal His glory to us. He is the one who will continue to save each and every one of his people. And one day, we will be finally set free from the bondage to decay into the glorious freedom of God's children and into perfect satisfaction (Psalm 17:15), eternal life, fullness of joy, and pleasure evermore because we will forever in his wonderful presence. (Psalm 16:11)
-

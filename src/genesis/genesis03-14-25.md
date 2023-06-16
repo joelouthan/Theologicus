@@ -133,4 +133,3 @@ And yet, Christ subjected himself to that same suffering--even to the point of d
 >2 How joyful is a person whom
 >the LORD does not charge with iniquity
 >and in whose spirit is no deceit!
-

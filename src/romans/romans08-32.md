@@ -88,4 +88,3 @@ and pray this for always:
 I hope and pray that we would be content with having everything because we have Christ. And because we have Him, we shall not want.
 
 God has provided all because He is a perfect Father who loves his children.
-

@@ -121,4 +121,3 @@ Our born eyes and hearts and mind can't see it. Only Christ can open our eyes. O
 If you have it all on earth and you are satisfied, it will not be enough.
 
 If you have God and anything that you might have here on earth will be more than enough.
-

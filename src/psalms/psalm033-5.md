@@ -51,5 +51,3 @@ Lord,
   all the days of my life
 
 Amen
-
-

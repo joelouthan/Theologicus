@@ -60,4 +60,3 @@ I praise you for your mercy
   for all of my days
 
 Amen
-

@@ -67,4 +67,3 @@ You have set me apart not because of my own goodness but because of the goodness
 Be glorious in my life. Give me courage to proclaim your sweet name. Move me to be more of your of sweet aroma to those being saved and to those perishing.
 
 Amen.
-

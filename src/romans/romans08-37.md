@@ -77,4 +77,3 @@ It is not because we are strong that makes us more than conquerors.
 It is only because of God sovereignly and graciously calls us by the power of the Holy Spirit through the bloodshed body of Jesus Christ our Lord that we behold the title, “Far more and exceeding conquerors through Christ who loved us!”
 
 Amen!
-

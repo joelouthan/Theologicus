@@ -30,4 +30,3 @@ Keep me in your love
   and you are the judge and keeper of my life.
 
 Amen.
-

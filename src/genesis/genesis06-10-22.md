@@ -193,4 +193,3 @@ If you don't know him, don't waste another second not knowing him. This is no ti
 Pray this.
 
 ### The Holiness of God demands our obedience
-

@@ -68,4 +68,3 @@ You are forever
 My Lord and King.
 
 Amen.
-

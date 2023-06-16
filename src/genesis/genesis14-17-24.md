@@ -30,4 +30,3 @@
 ## The Gospel
 
 ## Our Response
-

@@ -216,4 +216,3 @@ As the hymn goes:
 > Helen Howarth Lemmel
 
 Those in the flesh will die in the flesh. Those in the Spirit will have everlasting life. 
-

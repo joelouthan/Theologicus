@@ -190,4 +190,3 @@ Not defined by our sin:
 5. If you sinned and you didn't want to repent, what could you do to help you repent?
 
 6. What happens if we do not repent? What happens if we kept on sinning against God?
-

@@ -79,4 +79,3 @@ Because he saw our desperate state and rescued us from hell.
 And he decided before the moment we could have sinned.
 
 He alone is God.
-

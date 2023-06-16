@@ -61,4 +61,3 @@ Knowing ancient language is a gift, blessing and privilege by God. 1% of the pop
 >they may worship him in an acceptable manner, and through patience and comfort of the Scriptures may have hope
 
 God sought it to gospel of his Son that his word would be preserved through out all time--even prior to the invention of the printing press or the Internet--to bring it to every person in the world today and unto the future until Christ returns. That is such an extraordinary feat that it must be of God. Look at church history--mankind will always disagree. But God preserves. Blessed be his name.
-

@@ -47,4 +47,3 @@ Save me from hell and death
   till the end of time.
 
 Amen.
-

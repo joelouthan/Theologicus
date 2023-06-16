@@ -92,4 +92,3 @@ Before Genesis 1:1, before time and space began, before the formations of the su
 “He is mine! He is in my family! And by the power of My Spirit, I will bring in him into my family because my Son will do everything in order to save him to me!”
 
 What kind of love this? The heart can barely contain the amount. Praise God for his love.
-

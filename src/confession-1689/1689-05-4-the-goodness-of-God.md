@@ -145,4 +145,3 @@ It pleased God to ordain the sins of Judas Iscariot to betray his perfect and on
 God does not wink at sin. God does not turn away from our sinful thoughts and actions. God does not play both sides of the board. Yet, God ordains the sin of angels and men. God presents the objects of temptation to expose the sin that is still within our hearts. 
 
 Evil is still evil. Good is good. Our sin is still sin against God. God is the only source of good. And in his ordination, we are here. We are here, born and broken in sin, but rescued and redeemed by the Lord Jesus Christ. Blessed be his glorious name forever.
-

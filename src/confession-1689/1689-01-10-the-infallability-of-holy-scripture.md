@@ -20,8 +20,6 @@ In the Reformed doctrine of *sola Scriptura*, one key teaching remains primary: 
 
 This reminds me of Luther and Calvin's hard counter to the Nicolaus Copernicus' theory of heliocentric (that is our system revolves around the sun). Luther and Calvin's view held to a widely accepted common belief that our system revolved around the earth.[^1] Calvin and Luther held staunchly to this and defended it because of the account in Joshua 10:
 
-[^1]: A much better explanation of this whole ordeal can be found at [Luther, Calvin, and Copernicus — A Reformed Approach to Science and Scripture](https://www.ligonier.org/learn/articles/luther-calvin-and-copernicus-reformed-approach-science-and-scripture) by Keith Mathison. Jun 1, 2012
-
 >Joshua 10:13 (CSB) And the sun stood still and the moon stopped until the nation took vengeance on its enemies. Isn’t this written in the Book of Jashar? So the sun stopped in the middle of the sky and delayed its setting almost a full day.
 
 The Bible said. "The sun and the moon stood still. Obviously, that means they rotate around the earth." Which we now know, thanks to the works of Galileo Galilei, among many others, that indeed, our system revolves around the sun.
@@ -42,3 +40,4 @@ We should be mindful, with all the advancements that mankind has been able to ac
 
 Christians know, without a shadow of a doubt, *theologically* that God created the heavens and the earth in six days. Someone has come along and said, "wait that is impossible--it must have taken billions of years." Interested theory. Let us depend on God to figure out how did God create the universe *scientifically*. It seems lofty to think that we will know that information on this side of heaven. But just in my lifetime, I am stand in amazement and awe over the advancements in science and technology. Because, as Paul said, everything that God provided is ours because we belong to Christ and Christ belongs to God.
 
+[^1]: A much better explanation of this whole ordeal can be found at [Luther, Calvin, and Copernicus — A Reformed Approach to Science and Scripture](https://www.ligonier.org/learn/articles/luther-calvin-and-copernicus-reformed-approach-science-and-scripture) by Keith Mathison. Jun 1, 2012

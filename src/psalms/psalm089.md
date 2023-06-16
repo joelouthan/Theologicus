@@ -162,4 +162,3 @@ Keep me everlasting to everlasting
   from reach of your hand
   to the depths of your heart
   keep me always in your love.
-

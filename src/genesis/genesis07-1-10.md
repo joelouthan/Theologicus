@@ -217,4 +217,3 @@ Come through the narrow gate.
 Come into the rest and ease of God.
 
 Enter in the joy of your master.
-

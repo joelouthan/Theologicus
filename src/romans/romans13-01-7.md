@@ -99,4 +99,3 @@ The early church, because they lived in the Roman Empire were heavily taxed. The
 >Acts 2:43-47 (CSB) Everyone was filled with awe, and many wonders and signs were being performed through the apostles. Now all the believers were together and held all things in common. They sold their possessions and property and distributed the proceeds to all, as any had need. Every day they devoted themselves to meeting together in the temple, and broke bread from house to house. They ate their food with joyful and sincere hearts, praising God and enjoying the favor of all the people. Every day the Lord added to their number those who were being saved.
 
 Pay your taxes. Yet, love one another.
-

@@ -42,4 +42,3 @@ Adopted
 Glory
 
 You.
-

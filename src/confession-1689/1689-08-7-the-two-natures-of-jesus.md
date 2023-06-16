@@ -97,4 +97,3 @@ When we see the will of Christ, you must distinguished, "Is this the divine or h
 >Romans 8:1-2 (CSB) Therefore, there is now no condemnation for those in Christ Jesus, because the law of the Spirit of life in Christ Jesus has set you free from the law of sin and death.
 
 Praise be to God!
-

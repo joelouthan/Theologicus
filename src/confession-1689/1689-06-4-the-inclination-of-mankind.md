@@ -45,4 +45,3 @@ From this corruption, all we do is sin. Now, you might push back and say, "Unbel
 >Isaiah 64:6 (CSB) All of us have become like something unclean, and all our righteous acts are like a polluted garment; all of us wither like a leaf, and our iniquities carry us away like the wind.
 
 All of our good and righteous acts are filthy rags before a holy God. Why is that? Because whatever good we attempt to do is born out of corruption. It is never done from a pure source of good. Remember, God alone is the pure source of goodness. He alone does good.
-

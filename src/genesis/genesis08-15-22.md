@@ -113,5 +113,3 @@ Jesus Christ is his name!
 ><sup> 21 </sup> When the LORD smelled the pleasing aroma, he said to himself, “I will never again curse the ground because of human beings, even though the inclination of the human heart is evil from youth onward. And I will never again strike down every living thing as I have done. <sup> 22 </sup> As long as the earth endures, seedtime and harvest, cold and heat, summer and winter, and day and night will not cease.”
 
 ### Promise of God: hold fast of all the promises of God
-
-

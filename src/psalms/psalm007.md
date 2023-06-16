@@ -69,4 +69,3 @@ I have nothing but you, God. Keep me.
 
 In your Son’s name, I pray.
 Amen.
-

@@ -92,5 +92,3 @@ You have not abandoned me in Hell, you will not let me see corruption--keep me i
 Death is a conquered foe--I am forever alive in you because you dwell in me.
 
 Amen.
-
-

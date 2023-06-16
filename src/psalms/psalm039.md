@@ -104,4 +104,3 @@ We need you
 Come Lord Jesus.
   Come quickly
   Amen and amen
-

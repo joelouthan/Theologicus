@@ -126,4 +126,3 @@ Here's the point of emphasizing God's free gift. Sometimes Christians upon being
 >John 8:10-11 (CSB) When Jesus stood up, he said to her, “Woman, where are they? Has no one condemned you?” 11 “No one, Lord,” she answered. “Neither do I condemn you,” said Jesus. “Go, and from now on do not sin anymore.”
 
 You have been redeemed. You have been brought with a price of the only begotten Son of God. Now, go and live freely.
-

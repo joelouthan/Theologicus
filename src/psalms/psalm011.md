@@ -61,4 +61,3 @@ May I continue to herald your great works and your great name for the rest of my
 In your name, I pray.
 
 Amen.
-

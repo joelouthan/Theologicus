@@ -106,4 +106,3 @@ Christ says, "Come, give me your soul crushing sin, your back-breaking self-righ
 >2. Have you been brought to your end yet?
 
 >3. If God has saved you, tell me when you were radically changed from your old self to your new self?
-

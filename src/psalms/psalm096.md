@@ -51,4 +51,3 @@ I will exhaust my breath
   to the everlasting
   you are my God
   forever
-

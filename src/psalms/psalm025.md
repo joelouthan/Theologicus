@@ -84,4 +84,3 @@ And I have seen your glory,
 Do not stop rescuing me.
   Keep me in your presence.
   And draw my heart towards you.
-

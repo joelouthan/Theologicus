@@ -49,4 +49,3 @@ What the Christian must realize and embrace is why is God so involved in the det
 God sees you and knows you. If the God who knows the number of hairs of on your head, would it stand to reason that he might just see your heart and your thoughts and your will. He knows that with every waking moment of your life, your thought, and your heart, you do not love God has much as you should and you don't love your neighbor as you out.
 
 God sees the details of your heart and knows every single detail. He knows. How do I know? Because he sent his Son to live because you and I could not live perfectly and to die the death we should have died so that we would gain the righteousness of Christ and be made right with God and be with God forever.
-

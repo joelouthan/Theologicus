@@ -46,4 +46,3 @@ There is none like you
   who saves.
 
 Amen.
-

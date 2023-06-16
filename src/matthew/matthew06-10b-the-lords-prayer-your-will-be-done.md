@@ -69,4 +69,3 @@ For me to do anything you want
   of everything your Son has commanded.
 
 Amen.
-

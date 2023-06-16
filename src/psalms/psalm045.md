@@ -68,4 +68,3 @@ Be exalted, O God
   there is none like you.
 
 Amen.
-

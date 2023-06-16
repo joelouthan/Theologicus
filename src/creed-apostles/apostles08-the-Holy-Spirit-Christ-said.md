@@ -92,4 +92,3 @@ When Christ said, "You must be born again," make no mistake: you must be born ag
 ##### Intercesssion
 
 >Romans 8:26-27 (CSB) In the same way the Spirit also helps us in our weakness, because we do not know what to pray for as we should, but the Spirit himself intercedes for us with inexpressible groanings. And he who searches our hearts knows the mind of the Spirit, because he intercedes for the saints according to the will of God.
-

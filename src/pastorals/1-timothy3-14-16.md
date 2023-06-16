@@ -61,4 +61,3 @@ In other words, what is the good news in all of this and how do we live by it?
 ### Because you believe and trust in Him, and you belong to God, you are called to proclaim this good news to every one
 
 >Mark 16:15-16 (CSB) Then he said to them, “Go into all the world and preach the gospel to all creation. Whoever believes and is baptized will be saved, but whoever does not believe will be condemned.
-

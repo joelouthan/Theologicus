@@ -30,4 +30,3 @@ Lord, keep me in your care,
   but stay the course because
   you are their strength and resolve.
 I praise your holy name ever.
-

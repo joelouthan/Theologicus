@@ -75,5 +75,3 @@ Be exalted, O Lord
   and I will forever praise your holy name.
 
 Amen
-
-

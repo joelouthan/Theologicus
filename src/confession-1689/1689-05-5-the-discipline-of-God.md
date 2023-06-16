@@ -63,4 +63,3 @@ Christ asked. But what Christ wanted and what the Father wanted and what the Spi
 >Hebrews 9:22 (CSB) According to the law almost everything is purified with blood, and without the shedding of blood there is no forgiveness.
 
 The law was broken by all. The order and good of all things was in chaos and disarray. Everything must be restored and made right. And the only way we are going to be made right was through the washing of the blood of Jesus Christ who quick to forgive sins and mighty to save.
-

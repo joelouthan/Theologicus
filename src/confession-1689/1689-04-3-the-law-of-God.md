@@ -29,4 +29,3 @@ Adam did not succeed. He failed in upholding his end of the covenant. And thus, 
 Where is our hope? Only found in the one we call the Second Adam, Jesus Christ our Lord and Savior.
 
 >Romans 5:14 (CSB) Nevertheless, death reigned from Adam to Moses, even over those who did not sin in the likeness of Adam’s transgression. He is a type of the Coming One.
-

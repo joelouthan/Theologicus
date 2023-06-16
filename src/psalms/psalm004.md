@@ -49,4 +49,3 @@ Right now, I will lay in peace.
 Because you are with me.
 
 Selah.
-

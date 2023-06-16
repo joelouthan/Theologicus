@@ -142,4 +142,3 @@ As a dad, I delight in my children but I cannot do so perfectly nor continuously
 God can and does because He is unlimited, infinite and compassionate. Forever and ever.
 
 Amen.
-

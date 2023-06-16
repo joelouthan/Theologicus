@@ -75,4 +75,3 @@ I will give you praise
   are worthy of my praise.
 
 King Jesus
-

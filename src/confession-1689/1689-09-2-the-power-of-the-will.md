@@ -23,4 +23,3 @@ Again, because we were made in the image of God, Adam and Eve had, not only the 
 Within that freedom comes boundaries and boundaries come in the form of the law of God. In our original free will, we could choose to go to the left or the right or straight ahead. We do not know how long Adam and Eve lived in perfection--chosen to go ahead straight--but they always had the ability to go left or right of center.
 
 In Genesis 3, they chose to go not straight ahead but to fall.
-

@@ -62,4 +62,3 @@ In my life
   today.
 
 Amen.
-

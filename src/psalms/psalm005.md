@@ -54,4 +54,3 @@ Cover me. Protect me. Keep me in your hands.
 
 In your Son’s mighty name I pray,
 Amen.
-

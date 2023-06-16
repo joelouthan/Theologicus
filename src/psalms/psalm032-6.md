@@ -53,4 +53,3 @@ You rescued me
 
 Be exalted, O Lord.
 Be exalted higher and higher.
-

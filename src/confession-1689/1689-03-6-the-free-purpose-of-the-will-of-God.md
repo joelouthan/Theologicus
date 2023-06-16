@@ -205,4 +205,3 @@ Do you want God? Do you want to believe? Do you trust and believe that God has d
 Today, you can believe, Today, you can trust in Christ. Today marks your day of salvation. I don't care what your life was like before. Believe and trust in the one who has done it all for you.
 
 Ask God for God and you will have God. Why? Because you have God.
-

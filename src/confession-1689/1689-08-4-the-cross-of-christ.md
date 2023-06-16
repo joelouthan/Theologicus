@@ -219,4 +219,3 @@ We give over our sin to him, the bearer of all of our sin and the author and fin
 This is the office Christ most willingly undertook. And never forget, he undertook in saving you not in despair, or fear, or regret, or anger, or frustration, or annoyance, or impatience, or sadness. He undertook all of it with joy.
 
 >**For the joy that lay before him, he endured the cross, despising the shame, and sat down at the right hand of the throne of God.**
-

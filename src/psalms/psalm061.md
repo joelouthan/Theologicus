@@ -49,4 +49,3 @@ You will never tire
   and my Lord forever.
 
 Amen.
-

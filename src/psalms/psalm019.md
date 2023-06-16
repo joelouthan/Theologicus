@@ -53,4 +53,3 @@ My words still fall short. My heart is still so weak. But what little life I hav
 I love you, Lord. With all that I am, I will forever bless your holy name.
 
 Amen.
-

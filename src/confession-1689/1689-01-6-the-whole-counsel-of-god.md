@@ -175,4 +175,3 @@ And even overseeing the church. How do we even start there?
 How do we do these things? By what God has revealed in Scriptures, by His revealed order (think nature) and with Christian wisdom.
 
 He has not left us alone to figure out how we should worship to him. We are not like the prophet Aaron that was bullied and peer-pressured into making idols that we can form with our hands. God has shown us the way because he knows we are from dust and he knows the inclination of hearts. He knows that we will go play in our own vomit like dogs if left alone. God has shown us how to live and how to worship. He is a good Father like that.
-

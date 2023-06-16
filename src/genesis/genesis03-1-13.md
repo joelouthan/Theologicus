@@ -264,4 +264,3 @@ He is going to ask for your life--all of your thoughts, your heart, your sin, yo
 Paul says it like this:
 
 >Galatians 2:20 (CSB) I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
-

@@ -23,4 +23,3 @@ There is none like you
 
 I love you Lord
   and I will forever praise your holy name.
-

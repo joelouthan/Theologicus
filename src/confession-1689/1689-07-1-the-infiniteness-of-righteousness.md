@@ -32,7 +32,6 @@ And utterly useless to God for:
 
 >Acts 17:25 (CSB) Neither is he served by human hands, as though he needed anything, since he himself gives everyone life and breath and all things.
 
-
 ### yet they could never have attained the reward of life but by some voluntary condescension on God's part, which he hath been pleased to express by way of covenant
 
 And if our filthy rags of self-righteousness are worthless and offensive to God, why would we even think that we could somehow do enough good in order to force God to do something for us? The God of the Universe has not, have not, and will never owe anybody anything anywhere of all time ever. For:
@@ -48,4 +47,3 @@ Furthermore:
 >Job 35:7–8 (CSB) If you are righteous, what do you give him, or what does he receive from your hand? Your wickedness affects a person like yourself, and your righteousness, a son of man.
 
 In short, there is no other way to explain this. Righteousness is perfection and we have all fallen infinitely short of the glory of God.
-

@@ -92,4 +92,3 @@ Jesus Christ will one day return. Until then, He sits on the throne at the right
 But we are saved just to stand in this world cold and alone. God is so good and so loving to save us to one another. Sometimes, the church is not perfect. Sometimes, it incredibly messy and painful. I have seen terrible pain and abuse in the church. But only by God’s grace, I cannot quit His Bride. For me to leave Her would be like me giving up on her. And I cannot. She is the bride of Christ, who, and as crazy as this might seem, will be adorned in splendor, beauty, and perfection for Her Bridegroom.
 
 We are saved to Him and to each other. That is all-incredible love.
-

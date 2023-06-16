@@ -114,4 +114,3 @@ We cannot just be about talk. We must walk the talk:
 We are saved to obedience. In other words, by God's specific, saving grace of His Son, Jesus Christ by the power of the Holy Spirit, we get to be obedient to God. Out of our salvation, comes good works. For it says in Ephesians:
 
 >Ephesians 2:8-10 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift— not from works, so that no one can boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
-

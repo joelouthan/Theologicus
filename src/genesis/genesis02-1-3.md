@@ -106,4 +106,3 @@ What does Christ say?
 >Then I heard a loud voice from the throne: Look, God’s dwelling is with humanity, and he will live with them. They will be his peoples, and God himself will be with them and will be their God. He will wipe away every tear from their eyes. Death will be no more; grief, crying, and pain will be no more, because the previous things have passed away.
 >
 >Then the one seated on the throne said, “Look, I am making everything new.” He also said, “Write, because these words are faithful and true.” Then he said to me, “It is done! I am the Alpha and the Omega, the beginning and the end. I will freely give to the thirsty from the spring of the water of life. The one who conquers will inherit these things, and I will be his God, and he will be my son. But the cowards, faithless, detestable, murderers, sexually immoral, sorcerers, idolaters, and all liars—their share will be in the lake that burns with fire and sulfur, which is the second death.”
-

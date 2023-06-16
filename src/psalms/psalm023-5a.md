@@ -48,4 +48,3 @@ Give me your almighty strength,
   you set the captives free.
 
 In your Son’s name I pray. Amen.
-

@@ -64,4 +64,3 @@ Protect me from the enemy of my soul.
 My life is yours, O God. I love you with all of my heart.
 
 Amen.
-

@@ -69,4 +69,3 @@ Now I get to sing
   now I get to proclaim
   you are my Lord
   and you are my great God!
-

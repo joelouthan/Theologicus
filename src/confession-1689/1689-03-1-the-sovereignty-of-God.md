@@ -167,4 +167,3 @@ Paul's use of the past tense, "glorified", was not a grammatical mistake. Becaus
 My beloved, we were saved on Good Friday.
 
 Therefore, we will be glorified because of all that Christ has done.
-

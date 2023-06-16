@@ -68,4 +68,3 @@ You are the God
   who instantly saves.
 
 Be glorified in my life today.
-

@@ -209,5 +209,3 @@ My Christ,
   for as long as I live.
 
 Amen
-
-

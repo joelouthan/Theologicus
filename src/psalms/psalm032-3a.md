@@ -60,4 +60,3 @@ I might suffer for a little
 Great is your faithfulness, O Lord.
 
 Great is your faithfulness.
-

@@ -35,4 +35,3 @@ All of this was made possible from your sovereign grace by the power of Your Spi
 My God, I love you. My Spirit, I love you. My Lord, I love you.
 
 Amen.
-

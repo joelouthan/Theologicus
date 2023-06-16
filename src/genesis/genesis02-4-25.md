@@ -256,4 +256,3 @@ Believe in, trust, and obey the one who is True and Right and has, is, and will 
 >Amen! Come, Lord Jesus!
 >
 >The grace of the Lord Jesus be with everyone. Amen.
-

@@ -192,4 +192,3 @@ Amen.
 >3. What is stopping you from starting?
 
 >4. Why can't you start now?
-

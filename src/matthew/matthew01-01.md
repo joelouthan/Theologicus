@@ -120,4 +120,3 @@ Crossway. September 7, 2021.
 Charles L. Quarles.  
 Lexham Academic. 2023.  
 [Goodreads](https://www.goodreads.com/book/show/62157376-matthew?from_search=true&from_srp=true&qid=dbeLIqrV0q&rank=4)
-

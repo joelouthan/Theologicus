@@ -154,4 +154,3 @@ Compare the two. There is only way to live--in Christ alone.
 Here's some shocking news: hearing the gospel once a week is not enough. Tell your wife, husband, friends, kids, neighbors, co-workers about Christ and his forgiveness in sins. Tell each other all day every day. Don't waste your words saying useless words that lead to ruin--this goes doubly so on social media where your words will last forever. Think about that.
 
 Let me pray us out.
-

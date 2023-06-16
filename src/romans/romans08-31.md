@@ -174,4 +174,3 @@ The absolute answer is that no one can ever stand against us because of everythi
 Give thanks, saint, for here is love. God has saved you!
 
 Thanks be to God!
-

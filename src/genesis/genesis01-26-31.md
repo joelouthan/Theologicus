@@ -155,4 +155,3 @@ So many of the laws of God deals with how we are to treat other humans. Do not s
 >Romans 12:10 (CSB) Love one another deeply as brothers and sisters. Take the lead in honoring one another.
 
 >1 John 4:7-11 (CSB) Dear friends, let us love one another, because love is from God, and everyone who loves has been born of God and knows God. The one who does not love does not know God, because God is love. God’s love was revealed among us in this way: God sent his one and only Son into the world so that we might live through him. Love consists in this: not that we loved God, but that he loved us and sent his Son to be the atoning sacrifice for our sins. Dear friends, if God loved us in this way, we also must love one another.
-

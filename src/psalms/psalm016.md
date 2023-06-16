@@ -59,4 +59,3 @@ I love you, Lord and all that is in me I will bless your holy name forever.
 
 In your Son’s perfect name I pray,
 Amen.
-

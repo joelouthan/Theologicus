@@ -671,4 +671,3 @@ But for his people--just his people--he will take them under his protective almi
 >Matthew 23:37-39 (CSB) “Jerusalem, Jerusalem, who kills the prophets and stones those who are sent to her. How often I wanted to gather your children together, as a hen gathers her chicks under her wings, but you were not willing! See, your house is left to you desolate. For I tell you, you will not see me again until you say, ‘Blessed is he who comes in the name of the Lord’! ”
 
 Choose on this day whom you will serve.
-

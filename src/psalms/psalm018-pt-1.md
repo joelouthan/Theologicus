@@ -65,4 +65,3 @@ You rescued me because You loved me. I have done nothing to deserve your love or
 
 I love you, Lord and it is in Your Name, I pray.
 Amen.
-

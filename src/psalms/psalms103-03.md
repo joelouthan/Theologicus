@@ -56,4 +56,3 @@ And the infection
   and made me a completely new person.
 
 Be glorfied in my life today.
-

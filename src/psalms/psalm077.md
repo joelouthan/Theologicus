@@ -36,4 +36,3 @@ Let me praise your holy name
   let me bless your wonderful name.
 
 Amen.
-

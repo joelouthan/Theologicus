@@ -124,4 +124,3 @@ Keep my feet planted
   until I see you face to face.
 
 Amen
-

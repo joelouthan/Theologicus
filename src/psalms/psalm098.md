@@ -71,4 +71,3 @@ From what I have seen
 
 I will praise your holy name
   because you are my great God
-

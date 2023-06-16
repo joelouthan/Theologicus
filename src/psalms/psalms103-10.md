@@ -58,4 +58,3 @@ Who is like, Lord?
   You alone are worthy.
 
 Amen
-

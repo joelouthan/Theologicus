@@ -200,4 +200,3 @@ God picked a bloodline to cut through all our intellect, wisdom, notions, knowle
 He was here before time began. He will be here for all of eterntiy.
 
 Yet, Christ steps into our moment in time, cutting through our depravity and just holds out his hands, and command, "Give me your sin and your trust and your faith and your belief." Do this and be saved. 
-

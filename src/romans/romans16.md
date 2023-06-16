@@ -214,4 +214,3 @@ Take the moment right now to thank the people who have ministered with you over 
 >As it was in the beginning, is now, and ever shall be world without end. Amen.
 
 Peace to you. Amen.
-

@@ -73,4 +73,3 @@ I love you
   I will bless your holy name.
 
 Amen
-

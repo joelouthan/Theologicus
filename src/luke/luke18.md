@@ -115,4 +115,3 @@
 5. Does God promise mercy?
 
 6. Can God break his promise?
-

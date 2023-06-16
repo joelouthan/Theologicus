@@ -188,4 +188,3 @@ For those who belongs to Christ, he judges them into his glory:
 >"These things write I unto you that your joy may be full."
 >
 >Octavius Winslow. No Condemnation in Christ Jesus. 191.
-

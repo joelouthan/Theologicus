@@ -81,4 +81,3 @@ That is a love that is simply unfathomable but that is exactly the fullest of Go
 ## Our Response
 
 Believer, be in Christ today. Amen.
-

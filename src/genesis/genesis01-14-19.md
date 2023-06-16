@@ -85,4 +85,3 @@ It is all of Romans 6.
 ### Trust in Christ--he alone is life
 
 >Jesus spoke to them again: “I am the light of the world. Anyone who follows me will never walk in the darkness but will have the light of life.”
-

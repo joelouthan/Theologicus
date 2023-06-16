@@ -52,5 +52,3 @@ Because of you
 
 Be exalted, my Lord
   today
-
-

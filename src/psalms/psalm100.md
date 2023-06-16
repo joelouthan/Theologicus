@@ -66,4 +66,3 @@ He has loved me with an everlasting love
   because there is no end to his loveliness
 
 Amen
-

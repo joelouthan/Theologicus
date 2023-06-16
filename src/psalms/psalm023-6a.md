@@ -37,5 +37,3 @@ I praise you
   and we do not.
 
 Amen
-
-

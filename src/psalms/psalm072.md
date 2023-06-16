@@ -34,4 +34,3 @@ I will worship
   you are God.
 
 Amen.
-

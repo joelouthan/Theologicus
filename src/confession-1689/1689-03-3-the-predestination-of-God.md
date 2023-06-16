@@ -34,7 +34,6 @@ So too has he prepared a place for demons and the wicked:
 
 We were saved for one thing: to the praise of the God's glorious grace upon grace that he gives us all we need and want through his Son, Jesus Christ.
 
-
 >2 Peter 2:4-10 (CSB) For if God didn’t spare the angels who sinned but cast them into hell and delivered them in chains of utter darkness to be kept for judgment; and if he didn’t spare the ancient world, but protected Noah, a preacher of righteousness, and seven others, when he brought the flood on the world of the ungodly; and if he reduced the cities of Sodom and Gomorrah to ashes and condemned them to extinction, making them an example of what is coming to the ungodly; and if he rescued righteous Lot, distressed by the depraved behavior of the immoral (for as that righteous man lived among them day by day, his righteous soul was tormented by the lawless deeds he saw and heard) — then the Lord knows how to rescue the godly from trials and to keep the unrighteous under punishment for the day of judgment, especially those who follow the polluting desires of the flesh and despise authority.
 
 But the judgment and the punishment and the everlasting wrath of the Son upon the wicked and the cursed and the damn is still to the praise of the glorious grace of God.
@@ -56,4 +55,3 @@ This was accomplished by Christ because he was hung upon that tree, who bleed an
 The will of God is a powerful thing. We are made in the image of God and we have a will that is made in the image of God. Because of sin, our wills want nothing to do with God--only if God can give us what our wicked hearts desire.
 
 There are two ways in this existence: continue to follow your heart unto death and wrath by the Lord Jesus Christ or God will have to give you his own heart so that you will come into life, joy, and pleasures evermore by our only, only Lord Jesus Christ.
-

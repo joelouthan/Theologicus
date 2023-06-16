@@ -64,4 +64,3 @@ But what if you don’t know God like this? What if this is all foreign to you? 
 Let the Almighty God take you into his strong arms as he begins to constantly, consistently, thoughtfully, and lovingly pray and intercede for you according His own will because he loves you.
 
 I pray that everyone who reads these words would know that God didn’t create you and left you behind. He didn’t save you and then distance from you. God didn’t rescue you and then be disconnected from you. No! He saved you, pulled you in close, whispers blessings into your ear, rejoices and sings over you in gladness!
-

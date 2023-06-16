@@ -45,4 +45,3 @@ I love you, Lord.
   and I lift my voice
   to worship you.
   Forevermore.
-

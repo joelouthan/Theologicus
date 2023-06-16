@@ -50,5 +50,3 @@ I am in desperate need of your hand
   and violence.
 Be my blessed Rock
   forever. Amen.
-
-

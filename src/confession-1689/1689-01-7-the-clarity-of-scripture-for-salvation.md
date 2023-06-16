@@ -134,5 +134,3 @@ The criminal called upon Christ. And Christ saved him.
 The criminal had nowhere else to go. No baptism. No conference. No church service. No ministry. No tithing. No offering. No seminary. No bible study. 
 
 Saved by faith and faith alone in Christ who is the author and finisher of our faith.
-
-

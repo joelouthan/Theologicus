@@ -87,4 +87,3 @@
 >Jesus told her, “I, the one speaking to you, am he.”
 
 If you have God, what do you now?
-

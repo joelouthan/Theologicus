@@ -71,4 +71,3 @@ I love you Lord
 Save those whom I know and care for and love
 
 Amen
-

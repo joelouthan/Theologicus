@@ -44,4 +44,3 @@ Just you
   my only, only Lord Jesus.
 
 Amen.
-

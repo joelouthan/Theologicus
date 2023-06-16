@@ -138,4 +138,3 @@ My Lord and my God, You have taught me and shown me what it is like to speak to 
 Sometimes when I am so happy and joyful, I will forget to spend time with you. Sometimes when I am in sin, I am too scared to go to my God. Sometimes I am too apathetic and I do not care to go to God. Sometimes I worry, I am anxious, and I tend to trust in what I can do or what I can see before my eyes instead of believing in Him who has already done the work. Lord, please help me do what You do because at that time with my Father is so precious and so good. Lord, help me do what You do because no other god can help me. You alone are the One True God. Lord, help me do what You do because Father, Son, and Spirit are One and because all that You have done, You are now in me and with me. Because of You, You are mine, and I am Yours always.
 
 Help me not to deprive of my time with you. Help me do what You do.
-

@@ -88,5 +88,3 @@ You are my Great Conqueror
   "Repent, for the kingdom of God is here!"
 
 Amen
-
-

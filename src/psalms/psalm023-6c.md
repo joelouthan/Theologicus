@@ -49,5 +49,3 @@ If you say your Spirit has sealed me,
   then I am yours forever.
 Be exalted in my praise,
   my Lord and God.
-
-

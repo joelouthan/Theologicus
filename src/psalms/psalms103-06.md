@@ -43,4 +43,3 @@ Be exalted, O Lord
   today
 
 Amen
-

@@ -88,4 +88,3 @@ Give me your Spirit
   Write your word upon my heart
   Dwell in my heart
   And go and send me.
-

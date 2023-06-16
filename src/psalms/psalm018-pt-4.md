@@ -55,4 +55,3 @@ You have given me this power. You alone have given me life.
 I love you, Lord.
 
 Amen
-

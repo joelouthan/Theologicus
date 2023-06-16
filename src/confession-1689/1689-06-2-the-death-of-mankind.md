@@ -47,4 +47,3 @@ The reckoning. For all of mankind's glorious, it is marred and stained and defil
 And here is another layer of sin: most of humanity accepts it as normal. This is completely fine. There is no need to question anything. But then trauma and tragedy strikes. And we are awaken to the death and destruction and sin of our existence.
 
 >Romans 7:24 (CSB) What a wretched man I am! Who will rescue me from this body of death?
-

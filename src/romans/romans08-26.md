@@ -77,4 +77,3 @@ God's law is bond. Listen, we have all fallen short. James says, "when you have 
 God knows. That is why he sent his Son to live and die for us. God knows our weakness. We are so weak, we can't even pray right. God knows. So that is why the same Spirit who raised Christ Jesus from the dead, and raises us from death unto life, also intercedes--constantly, consistently, perfectly prays for saints.
 
 Even when we are at loss for words, God never is. He contends for us. He cares for us. He speaks goodness over our lives. He sings over us. He rejoices over us. He loves us. Forever.
-

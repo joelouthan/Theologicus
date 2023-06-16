@@ -136,4 +136,3 @@ Listen to what I just said: I wanted to turn away from God. It was like God gave
 If you think for one moment that it would be far more loving of God to allow me to bury myself into the depths of sin, then repent of your wrong thinking. That is not love and that is not who God is for God is love.
 
 Instead, know that God sees the heart and welcomes only those who come humbly and lowly back to him. We know this because God is love.
-

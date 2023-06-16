@@ -129,4 +129,3 @@ What is ours to do? You know the answer:
 You and I have been commissioned to go and preach to everyone about this amazingly good news:
 
 ### He is the blessed and only Sovereign, the King of kings, and the Lord of lords, who alone is immortal and who lives in unapproachable light, whom no one has seen or can see, to him be honor and eternal power--Amen
-

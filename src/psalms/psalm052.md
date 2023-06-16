@@ -49,4 +49,3 @@ I will bless your name forever
   And know you are my God.
 
 Amen.
-

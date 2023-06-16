@@ -76,4 +76,3 @@ What we can see is the material plane: the visible creation including the depths
 In this point, I am not hear to debate the finer points of creation. Does six days means six days? Is our world older or younger? That is another debate for another day. In whatever your stance might be, it is the Lord's command that we rest on the seventh day because God rested on the seventh day after creating the heavens and the earth for the first six days. The six days of work? Not set apart. The seventh day? Set apart and called holy. 
 
 Our Sabbath observance bears witness to the world that our God did create the heavens and the earth in six days and all very good.
-
