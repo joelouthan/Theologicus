@@ -11,7 +11,7 @@ edition = "2021"
 
 [build]
 build-dir = "book"
-create-missing = true
+create-missing = false
 
 [preprocessor.index]
 
