@@ -1,0 +1,3 @@
+[submodule "theme/Gutenberg"]
+	path = theme/Gutenberg
+	url = https://github.com/BafS/Gutenberg.git
