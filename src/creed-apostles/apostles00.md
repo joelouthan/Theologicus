@@ -1,4 +1,38 @@
-# The Apostles' Creed: An Introduction & Resources
+# The Apostles' Creed: An Introduction & Recommendations
+
+## The Introduction
+
+<img class="intro-icon" src="/images/logo-theologicus3.png">Why exposit the Apostles' Creed or any creed whatsoever?
+
+Simply put, the Apostles' Creed is a summary of the Christian faith. Full stop. If you believe these words to be true (as with any historical creed), you are saved.
+
+Now I know, in today's modern evangelicalism world, this is all old and passé. Don't you have anything new? Don't you have any fresh revelation?
+
+In Acts 17, when Paul preaches the good news of Christ to the Greeks upon the Areopagus (also known as Mars Hill), he quotes their own poets and philosophers. He meets them where they are at and reveals who is behind what they think is the Unknown God. That is the true and only God who created the heavens and hell. And this God sent his only begotten Son, Jesus Christ, Son of God who is God, to take on flesh, live a perfect life, die a sinner's death, and rise again on the third day. And this Jesus is the only way to the Father.
+
+>Acts 17:21 (CSB) Now all the Athenians and the foreigners residing there spent their time on nothing else but telling or hearing something new.
+
+Some were interested but that could have been because they have never heard such a thing before. Some believed and followed.
+
+But some mocked and scoffed--because to them it was old news. They have heard it all before. They dismissed it because it didn't give them what they wanted: more of themselves and more of the world. They rejected it because it didn't answer their questions because they were asking the wrong questions.
+
+>Acts 17:32 (CSB) When they heard about the resurrection of the dead, some began to ridicule him, but others said, “We’d like to hear from you again about this.”
+
+There is no new revelation. There is no new thing. There is no new prophecy. There is no new gospel. New good news is old heresy--every single time. And to declare that there is no new theology and no gospel fights against our modern mind. We have grown up thinking that we always have to be on the cutting edge of everything. We have to be the first to know. We have to be the first to see. We have to be the first to experience. We have to always be discovering everything. And in areas of science, medicine and technology, praise God for his revealed common grace.
+
+But what God has revealed about himself is as old as Genesis 1:1. And his great gospel is this:
+
+>Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+
+Of all the religions, myths, fables, philosophies, and idealisms, there is only one that is true. And that is the gospel of Jesus Christ--that he live, died, rose again, and ascended to the right hand of the Father. And apart from all the other cults, sects, and religions, we know this to be true because it is an historical fact that happened over 2,000 years ago.
+
+Disbelieve God all you want. Call yourself an atheist or agnostic. But to deny the historical fact of Jesus Christ is foolish to say the least.
+
+For us Christians, there is nothing new under the sun. And I am convinced that we, Christians, don't really know what we believe about Christ.
+
+So start with beginning of the first century church. Learn as they learned. Hear as they heard. Believe as they believed. And confess as they confessed.
+
+And with this creed, declare what they declared: that Jesus Christ is Lord.
 
 ## The Text
 
