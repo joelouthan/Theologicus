@@ -2,9 +2,7 @@
 
 ## The Creed
 
-<img class="intro-art" src="/images/art-apostles-creed.png">
-
-><bgy> **I believe in God, the Father Almighty,** </bgy>  
+><img class="intro-right" src="/images/art-apostles-creed.png"><bgy> **I believe in God, the Father Almighty,** </bgy>  
 >the Creator of heaven and earth,  
 >and in Jesus Christ, His only Son, our Lord:  
 >Who was conceived of the Holy Spirit,  
