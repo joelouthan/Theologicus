@@ -2,7 +2,7 @@
 
 ## The Introduction
 
-<img class="intro-icon" src="/images/logo-theologicus3.png">Why exposit the Apostles' Creed or any creed whatsoever?
+<img class="intro-icon" src="/images/art-apostles-creed.png">Why exposit the Apostles' Creed or any creed whatsoever?
 
 Simply put, the Apostles' Creed is a summary of the Christian faith. Full stop. If you believe these words to be true (as with any historical creed), you are saved.
 
@@ -52,6 +52,8 @@ And with this creed, declare what they declared: that Jesus Christ is Lord.
 ><sup>16</sup> From him the whole body, fitted and knit together by every supporting ligament, promotes the growth of the body for building itself up in love by the proper working of each individual part.
 
 ## The Creed
+
+<img class="intro-art" src="/images/art-apostles-creed.png">
 
 >I believe in God, the Father Almighty,
 >the Creator of heaven and earth,

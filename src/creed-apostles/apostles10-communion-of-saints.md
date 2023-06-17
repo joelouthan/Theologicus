@@ -2,6 +2,8 @@
 
 ## The Creed
 
+<img class="intro-art" src="/images/art-apostles-creed.png">
+
 >I believe in God, the Father Almighty,  
 >the Creator of heaven and earth,  
 >and in Jesus Christ, His only Son, our Lord:  
@@ -54,5 +56,3 @@ In our ministry and love in that, think of the grace of GOd and think of us belo
 
 TODO:
 
-<!-- hidden image to see if it comes up in post scraper -->
-<img style="hidden" src="images/../../images/banner-apostles.png" alt="The Apostles' Creed: The Communion of Saints" class="img-fluid mx-auto d-block" />

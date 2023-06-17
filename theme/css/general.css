@@ -125,10 +125,18 @@ bgy {
 
 .intro-icon {
   width: 100px;
-  border-radius: 20px;
+  border-radius: 10px;
   margin-right: 10px;
   margin-bottom: 10px;
   float: left;
+}
+
+.intro-art {
+  width: 200px;
+  border-radius: 10px;
+  margin-right: 10px;
+  margin-bottom: 10px;
+  float: right !important;
 }
 
 table {
