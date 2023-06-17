@@ -1,6 +1,6 @@
 # Luke 8 But Christ Calls
 
->Luke 8:1-3 (CSB) Afterward he was traveling from one town and village to another, preaching and telling the good news of the kingdom of God. The Twelve were with him,and also some women who had been healed of evil spirits and sicknesses: Mary, called Magdalene (seven demons had come out of her);Joanna the wife of Chuza, Herod’s steward; Susanna; and many others who were supporting them from their possessions.
+><img class="intro-right" src="/images/art-luke.jpg">Luke 8:1-3 (CSB) Afterward he was traveling from one town and village to another, preaching and telling the good news of the kingdom of God. The Twelve were with him,and also some women who had been healed of evil spirits and sicknesses: Mary, called Magdalene (seven demons had come out of her);Joanna the wife of Chuza, Herod’s steward; Susanna; and many others who were supporting them from their possessions.
 
 If God did nothing, could we ever know God?
 
