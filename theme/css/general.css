@@ -123,6 +123,14 @@ bgy {
   color: black;
 }
 
+.intro-icon {
+  width: 100px;
+  border-radius: 20px;
+  margin-right: 10px;
+  margin-bottom: 10px;
+  float: left;
+}
+
 table {
     margin: 0 auto;
     border-collapse: collapse;
