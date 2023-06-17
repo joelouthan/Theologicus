@@ -1,4 +1,4 @@
-# The Gospel of MarkAn Introduction & Recommendations
+# The Gospel of Mark: An Introduction & Recommendations
 
 ## The Introduction
 
