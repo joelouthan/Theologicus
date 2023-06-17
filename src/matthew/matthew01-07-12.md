@@ -3,17 +3,18 @@
 ## The Text
 
 ><img class="intro-right" src="/images/art-matthew.jpg">Matthew 1:7–12 (CSB)  
-> 7  Solomon fathered Rehoboam, Rehoboam fathered Abijah, Abijah fathered Asa, 
+><sup>7</sup> Solomon fathered Rehoboam, Rehoboam fathered Abijah, Abijah fathered Asa, 
+>
+><sup>8</sup> Asa fathered Jehoshaphat, Jehoshaphat fathered Joram, Joram fathered Uzziah, 
+>
+><sup>9</sup> Uzziah fathered Jotham, Jotham fathered Ahaz, Ahaz fathered Hezekiah, 
+>
+><sup>10</sup> Hezekiah fathered Manasseh, Manasseh fathered Amon, Amon fathered Josiah, 
+>
+><sup>11</sup> and Josiah fathered Jeconiah and his brothers at the time of the exile to Babylon. 
+>
+><sup>12</sup> After the exile to Babylon Jeconiah fathered Shealtiel, Shealtiel fathered Zerubbabel,
 
-> 8  Asa fathered Jehoshaphat, Jehoshaphat fathered Joram, Joram fathered Uzziah, 
-
-> 9  Uzziah fathered Jotham, Jotham fathered Ahaz, Ahaz fathered Hezekiah, 
-
-> 10  Hezekiah fathered Manasseh, Manasseh fathered Amon, Amon fathered Josiah, 
-
-> 11  and Josiah fathered Jeconiah and his brothers at the time of the exile to Babylon. 
-
-> 12  After the exile to Babylon Jeconiah fathered Shealtiel, Shealtiel fathered Zerubbabel,
 
 ## The Devotion
 
