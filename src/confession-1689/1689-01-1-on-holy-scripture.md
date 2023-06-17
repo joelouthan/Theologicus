@@ -3,10 +3,9 @@
 ## The Text
 
 >1 Corinthians 2:12-16 (CSB) Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God. We also speak these things, not in words taught by human wisdom, but in those taught by the Spirit, explaining spiritual things to spiritual people. But the person without the Spirit does not receive what comes from God’s Spirit, because it is foolishness to him; he is not able to understand it since it is evaluated spiritually. The spiritual person, however, can evaluate everything, and yet he himself cannot be evaluated by anyone. For  
->**who has known the Lord’s mind,**  
->**that he may instruct him?**  
+>**who has known the Lord’s mind, that he may instruct him?**  
 >
->But we have the mind of Christ.
+>**But we have the mind of Christ.**
 
 ## The Chapter
 
