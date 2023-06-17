@@ -2,7 +2,7 @@
 
 ## The Introduction
 
-<img class="intro-icon" src="/images/logo-theologicus3.png">There is no doubt in anybody's mind that Jesus Christ, the Son of God, who is God, was born Jewish and is very much Jewish. He was born to Mary and Joseph--which we can tell by the Christ genealogies in both Matthew 1 & Luke 3 that Jesus is double the son of King David. That is, one lineage through Solomon to Joseph and one lineage through Nathan to Mary.
+<img class="intro-left" src="/images/logo-theologicus3.png">There is no doubt in anybody's mind that Jesus Christ, the Son of God, who is God, was born Jewish and is very much Jewish. He was born to Mary and Joseph--which we can tell by the Christ genealogies in both Matthew 1 & Luke 3 that Jesus is double the son of King David. That is, one lineage through Solomon to Joseph and one lineage through Nathan to Mary.
 
 But then take look close at the Matthew's genealogy of Christ in Matthew 1. In the only places where it was significant that Matthew should recall the mother, twice it was out of gross and vile sin (Tamar and Bathsheba) and twice more by Gentile women, Rahab and Ruth.
 

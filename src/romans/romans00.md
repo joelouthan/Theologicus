@@ -2,7 +2,7 @@
 
 ## The Introduction
 
-<img class="intro-icon" src="/images/logo-theologicus3.png">In 2010, I came across a gem of a book called [No Condemnation in Christ Jesus](https://www.goodreads.com/book/show/4011534-no-condemnation-in-christ-jesus) by Octavius Winslow, a contemporary of Charles Spurgeon, from 19th century England.
+<img class="intro-left" src="/images/logo-theologicus3.png">In 2010, I came across a gem of a book called [No Condemnation in Christ Jesus](https://www.goodreads.com/book/show/4011534-no-condemnation-in-christ-jesus) by Octavius Winslow, a contemporary of Charles Spurgeon, from 19th century England.
 
 And I wrote a [little review](https://www.goodreads.com/review/show/134527292).
 
