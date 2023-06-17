@@ -1,4 +1,4 @@
-# Ruth: AAn Introduction & Recommendations
+# Ruth: An Introduction & Recommendations
 
 ## The Introduction
 
