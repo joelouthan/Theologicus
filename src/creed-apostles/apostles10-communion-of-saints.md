@@ -53,3 +53,6 @@ In our ministry and love in that, think of the grace of GOd and think of us belo
 ### We Belong to One Another: 
 
 TODO:
+
+<!-- hidden image to see if it comes up in post scraper -->
+<img style="hidden" src="images/../../images/banner-apostles.png" alt="The Apostles' Creed: The Communion of Saints" class="img-fluid mx-auto d-block" />
