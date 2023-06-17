@@ -52,7 +52,14 @@ If we are called to love one another, then we belong to one another. The world m
 
 In our ministry and love in that, think of the grace of GOd and think of us belonging to one another. From there, love each other.
 
-### We Belong to One Another: 
+### We Belong to One Another: Sit Under the Proclamation of the Word of God
 
-TODO:
+>Hebrews 10:24-25 (CSB) And let us consider one another in order to provoke love and good works, not neglecting to gather together, as some are in the habit of doing, but encouraging each other, and all the more as you see the day approaching.
 
+>Acts 2:42 (CSB) They devoted themselves to the apostles’ teaching, to the fellowship, to the breaking of bread, and to prayer.
+
+>Acts 20:7 (CSB) On the first day of the week, we assembled to break bread. Paul spoke to them, and since he was about to depart the next day, he kept on talking until midnight.
+
+>1 Corinthians 14:26 (CSB) What then, brothers and sisters? Whenever you come together, each one has a hymn, a teaching, a revelation, a tongue, or an interpretation. Everything is to be done for building up.
+
+>Colossians 3:16 (CSB) Let the word of Christ dwell richly among you, in all wisdom teaching and admonishing one another through psalms, hymns, and spiritual songs, singing to God with gratitude in your hearts.
