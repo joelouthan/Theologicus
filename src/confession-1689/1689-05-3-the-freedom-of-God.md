@@ -6,7 +6,7 @@
 
 ## The Chapter
 
-### God, in his ordinary providence maketh use of means, yet is free to work without, above, and against them at his pleasure.
+### <img class="intro-left" src="/images/art-1689.png">God, in his ordinary providence maketh use of means, yet is free to work without, above, and against them at his pleasure.
 
 ## The Confession
 

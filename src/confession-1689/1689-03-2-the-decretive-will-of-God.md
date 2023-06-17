@@ -6,7 +6,7 @@
 
 ## The Chapter
 
-### Although God knows whatsoever may or can come to pass, upon all supposed conditions, yet had he not decreed anything, because he foresaw it as future, or as that which would come to pass upon such conditions.
+### <img class="intro-left" src="/images/art-1689.png">Although God knows whatsoever may or can come to pass, upon all supposed conditions, yet had he not decreed anything, because he foresaw it as future, or as that which would come to pass upon such conditions.
 
 ## The Confession
 

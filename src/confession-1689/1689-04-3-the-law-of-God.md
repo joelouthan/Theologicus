@@ -6,7 +6,7 @@
 
 ## The Chapter
 
-### Besides the law written in their hearts, they received a command not to eat of the tree of knowledge of good and evil, which whilst they kept, they were happy in their communion with God, and had dominion over the creatures.
+### <img class="intro-left" src="/images/art-1689.png">Besides the law written in their hearts, they received a command not to eat of the tree of knowledge of good and evil, which whilst they kept, they were happy in their communion with God, and had dominion over the creatures.
 
 ## The Confession
 

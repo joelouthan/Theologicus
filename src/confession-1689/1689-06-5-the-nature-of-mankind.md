@@ -6,7 +6,7 @@
 
 ## The Chapter
 
-### The corruption of nature, during this life, doth remain in those that are regenerated; and although it be through Christ pardoned and mortified, yet both itself, and the first motions thereof, are truly and properly sin.
+### <img class="intro-left" src="/images/art-1689.png">The corruption of nature, during this life, doth remain in those that are regenerated; and although it be through Christ pardoned and mortified, yet both itself, and the first motions thereof, are truly and properly sin.
 
 ## The Confession
 

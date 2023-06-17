@@ -6,7 +6,7 @@
 
 ## The Chapter
 
-### This will of man is made perfectly and immutably free to good alone in the state of glory only.
+### <img class="intro-left" src="/images/art-1689.png">This will of man is made perfectly and immutably free to good alone in the state of glory only.
 
 ## The Confession
 

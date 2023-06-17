@@ -6,7 +6,7 @@
 
 ## The Chapter
 
-### From this original corruption, whereby we are utterly indisposed, disabled, and made opposite to all good, and wholly inclined to all evil, do proceed all actual transgressions.
+### <img class="intro-left" src="/images/art-1689.png">From this original corruption, whereby we are utterly indisposed, disabled, and made opposite to all good, and wholly inclined to all evil, do proceed all actual transgressions.
 
 ## The Confession
 

@@ -6,7 +6,7 @@
 
 ## The Chapter
 
-### These angels and men thus predestinated and foreordained, are particularly and unchangeably designed, and their number so certain and definite, that it cannot be either increased or diminished.
+### <img class="intro-left" src="/images/art-1689.png">These angels and men thus predestinated and foreordained, are particularly and unchangeably designed, and their number so certain and definite, that it cannot be either increased or diminished.
 
 ## The Confession
 
