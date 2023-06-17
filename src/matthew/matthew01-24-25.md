@@ -2,7 +2,7 @@
 
 ## The Text
 
-> Matthew 1:24-25 (CSB) When Joseph woke up, he did as the Lord’s angel had commanded him. He married her but did not have sexual relations with her until she gave birth to a son. And he named him Jesus.
+><img class="intro-right" src="/images/art-matthew.jpg"> Matthew 1:24-25 (CSB) When Joseph woke up, he did as the Lord’s angel had commanded him. He married her but did not have sexual relations with her until she gave birth to a son. And he named him Jesus.
 
 ## The Devotion
 

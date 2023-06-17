@@ -2,7 +2,7 @@
 
 ## The Text
 
->Matthew 1:1–6 (CSB)  
+><img class="intro-right" src="/images/art-matthew.jpg">Matthew 1:1–6 (CSB)  
 ><sup> 1 </sup> An account of the genealogy of Jesus Christ, the Son of David, the Son of Abraham: 
 >
 ><sup> 2 </sup> Abraham fathered Isaac, Isaac fathered Jacob, Jacob fathered Judah and his brothers, 

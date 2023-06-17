@@ -6,7 +6,7 @@
 
 ## Give Us This Day Our Daily Bread
 
-God knows what we need before we ask. He is our good Father in heaven. He provides for the birds in the air and the flowers in the field. How are we any less?
+<img class="intro-left" src="/images/art-matthew.jpg">God knows what we need before we ask. He is our good Father in heaven. He provides for the birds in the air and the flowers in the field. How are we any less?
 
 He knows that we need food and water and housing.
 

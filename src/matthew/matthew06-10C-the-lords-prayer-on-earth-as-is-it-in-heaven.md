@@ -6,7 +6,7 @@
 
 ## On Earth As Is It In Heaven
 
->Psalms 73:21-28 (ESV)  
+><img class="intro-right" src="/images/art-matthew.jpg">Psalms 73:21-28 (ESV)  
 >When my soul was embittered,  
 >when I was pricked in heart,  
 >I was brutish and ignorant;  

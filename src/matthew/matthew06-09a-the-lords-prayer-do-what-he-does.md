@@ -2,7 +2,7 @@
 
 ## Pray Then Like This
 
->Matthew 6:9 (CSB) Therefore, you should pray like this
+><img class="intro-right" src="/images/art-matthew.jpg">Matthew 6:9 (CSB) Therefore, you should pray like this
 
 >Luke 11:1 (CSB) He was praying in a certain place, and when he finished, one of his disciples said to him, “Lord, teach us to pray, just as John also taught his disciples.”
 
