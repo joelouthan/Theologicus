@@ -1,12 +1,12 @@
 # Genesis 11 The Gospel Tongue
 
-## The Introduction
+## The Word
 
 >Colossians 2:4-10 (CSB) I am saying this so that no one will deceive you with arguments that sound reasonable. For I may be absent in body, but I am with you in spirit, rejoicing to see how well ordered you are and the strength of your faith in Christ. So then, just as you have received Christ Jesus as Lord, continue to walk in him, being rooted and built up in him and established in the faith, just as you were taught, and overflowing with gratitude. Be careful that no one takes you captive through philosophy and empty deceit based on human tradition, based on the elements of the world, rather than Christ. For the entire fullness of God’s nature dwells bodily in Christ, and you have been filled by him, who is the head over every ruler and authority.
 
 ## The Introduction
 
-If you have been on this channel for longer than a minute, or better yet, if you have been to college or some sort of college prep high school, you should be no stranger to philosophy. Now for those of us who haven't done any of that, don't tap out on me just yet. Just stay the course. We will get through this. I promise you that you won't have any homework essays to do. Just stay with me.
+<img class="intro-left" src="/images/art-creation.png">If you have been on this channel for longer than a minute, or better yet, if you have been to college or some sort of college prep high school, you should be no stranger to philosophy. Now for those of us who haven't done any of that, don't tap out on me just yet. Just stay the course. We will get through this. I promise you that you won't have any homework essays to do. Just stay with me.
 
 We read in the Paul's letter to the church in Colossae and his warning to them is the same warning to the church in America: 
 
@@ -23,9 +23,6 @@ If you don't have the time and like to read, highest recommendation:
 [<img src="https://images-na.ssl-images-amazon.com/images/I/41sAKIAP1oL._SX331_BO1,204,203,200_.jpg">The Consequences of Ideas](https://amzn.to/3Gi6KCl).  
 by R.C. Sproul.  
 Crossway. 2018.  
-
-&nbsp;
-&nbsp;
 
 If you don't have the time and you don't like to read, then let me brutally and tragically summarize modern philosophy. Among of all the schools of thought, the greatest and loudest voices that the Western world is hearing right now from the world and not from God are really three voices:
 

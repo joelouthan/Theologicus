@@ -1,5 +1,9 @@
 # Genesis 4 The Gospel Meeting
 
+## The Word
+
+>James 1:13–18 (CSB) No one undergoing a trial should say, “I am being tempted by God,” since God is not tempted by evil, and he himself doesn’t tempt anyone. But each person is tempted when he is drawn away and enticed by his own evil desire. Then after desire has conceived, it gives birth to sin, and when sin is fully grown, it gives birth to death. Don’t be deceived, my dear brothers and sisters. Every good and perfect gift is from above, coming down from the Father of lights, who does not change like shifting shadows. By his own choice, he gave us birth by the word of truth so that we would be a kind of firstfruits of his creatures.
+
 ## The Text
 
 >Genesis 4 (CSB) The man was intimate with his wife Eve, and she conceived and gave birth to Cain. She said, “I have had a male child with the LORD’s help.” 2 She also gave birth to his brother Abel. Now Abel became a shepherd of flocks, but Cain worked the ground. 3 In the course of time Cain presented some of the land’s produce as an offering to the LORD. 4 And Abel also presented an offering—some of the firstborn of his flock and their fat portions. The LORD had regard for Abel and his offering, 5 but he did not have regard for Cain and his offering. Cain was furious, and he looked despondent.
@@ -30,15 +34,7 @@
 >
 >25 Adam was intimate with his wife again, and she gave birth to a son and named him Seth, for she said, “God has given me another offspring in place of Abel, since Cain killed him.” 26 A son was born to Seth also, and he named him Enosh. At that time people began to call on the name of the LORD.
 
-## The Support
-
->James 1:13-18 (CSB) No one undergoing a trial should say, “I am being tempted by God,” since God is not tempted by evil, and he himself doesn’t tempt anyone. 14 But each person is tempted when he is drawn away and enticed by his own evil desire. 15 Then after desire has conceived, it gives birth to sin, and when sin is fully grown, it gives birth to death.
->
->16 Don’t be deceived, my dear brothers and sisters. 17 Every good and perfect gift is from above, coming down from the Father of lights, who does not change like shifting shadows. 18 By his own choice, he gave us birth by the word of truth so that we would be a kind of firstfruits of his creatures.
-
-**Where do you see God in the text? What does the text say about God?**
-
-## God
+## <img class="intro-left" src="/images/art-creation.png">God
 
 ### God meets us when we made us
 

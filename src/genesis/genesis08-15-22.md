@@ -2,6 +2,10 @@
 
 ## The Introduction
 
+<img class="intro-left" src="/images/art-creation.png">Through judgment and wrath and righteousness and the holiness of God and his right decisions, the people of God who have put their faith, trust, believe, and obedience and yes, hope, in their Christ alone, will be saved.
+
+## The Word
+
 >Lamentations 3:19–26 (CSB)  
 ><sup> 19 </sup> Remember my affliction and my homelessness, the wormwood and the poison. 
 >
@@ -18,8 +22,6 @@
 ><sup> 25 </sup> The LORD is good to those who wait for him, to the person who seeks him. 
 >
 ><sup> 26 </sup> It is good to wait quietly for salvation from the LORD.
-
-Through judgment and wrath and righteousness and the holiness of God and his right decisions, the people of God who have put their faith, trust, believe, and obedience and yes, hope, in their Christ alone, will be saved.
 
 ## The Text
 
@@ -43,8 +45,6 @@ Through judgment and wrath and righteousness and the holiness of God and his rig
 ## The Support
 
 >2 Corinthians 1:20 (CSB) For every one of God’s promises is “Yes” in him. Therefore, through him we also say “Amen” to the glory of God.
-
-**Where do you see God in the text? What does the text say about God?**
 
 ## God
 

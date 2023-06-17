@@ -2,7 +2,7 @@
 
 ## The Introduction
 
-The salvation of God can explained in a myriad of ways.
+<img class="intro-left" src="/images/art-creation.png">The salvation of God can explained in a myriad of ways.
 
 Now, we know that God saves his people from their sins. That is Matthew 1:21.
 
@@ -50,8 +50,6 @@ Let us get into the text.
 ><sup> 13 </sup> In the six hundred first year, in the first month, on the first day of the month, the water that had covered the earth was dried up. Then Noah removed the ark’s cover and saw that the surface of the ground was drying. 
 >
 ><sup> 14 </sup> By the twenty-seventh day of the second month, the earth was dry.
-
-**Where do you see God in the text? What does the text say about God?**
 
 ## God
 

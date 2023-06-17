@@ -2,7 +2,7 @@
 
 ## The Introduction
 
-When you read Genesis 4 and 5, you might be tempted to follow the section headings within the chapters--The Line of Cain, The Line of Seth, so on and so forth.
+<img class="intro-left" src="/images/art-creation.png">When you read Genesis 4 and 5, you might be tempted to follow the section headings within the chapters--The Line of Cain, The Line of Seth, so on and so forth.
 
 While extremely helpful, don't assume the section headings are inerrant and infallible--even our chapter and verse numbers were thought up by humans as a helpful way to remember the "address" of a particular passage in Scripture. What I mean is that what you see in the headings or cross-references are there to help along but that's not everything in the text.
 
@@ -44,8 +44,6 @@ Let us get into the text and see how this goes.
 ><sup> 9 </sup> two of each, male and female, came to Noah and entered the ark, just as God had commanded him. 
 >
 ><sup> 10 </sup> Seven days later the floodwaters came on the earth.
-
-**Where do you see God in the text? What does the text say about God?**
 
 ## God
 

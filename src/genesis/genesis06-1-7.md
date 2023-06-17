@@ -2,7 +2,7 @@
 
 ## The Introduction
 
-**Hamartiology** (ha mar tee ology). Incredibly huge word. If I would take a guess, I would say that maybe just a few people in here today has ever heard this word before--fewer still have even used it in a sentence. Hamartiology (ha mar tee ology) is simply "the study of sin." Undoubtedly, anybody who would undertake such a discipline would be, most likely, from a Christian perspective and within that perspective, "the study of sin and its effects."
+<img class="intro-left" src="/images/art-creation.png">**Hamartiology** (ha mar tee ology). Incredibly huge word. If I would take a guess, I would say that maybe just a few people in here today has ever heard this word before--fewer still have even used it in a sentence. Hamartiology (ha mar tee ology) is simply "the study of sin." Undoubtedly, anybody who would undertake such a discipline would be, most likely, from a Christian perspective and within that perspective, "the study of sin and its effects."
 
 Here's why I am not sure I would have the gumption to take on such a academic. If I read my Bible, and see what God says on sin, and know I was once a prisoner within my own sin, how would I even have the right mind and the right eyes to even see the fullest effects of sin? Even with the Triune God dwelling in me, I am not God--unless the Spirit warns me, can I even see the fullest outcome when I make a sinful choice?
 
@@ -61,8 +61,6 @@ We already know the spirit within mankind departed mankind when Adam and Eve sin
 This is not Holy Spirit but rather, the breath of life of God by God. Don't forget that God was still in the business of multiplying mankind despite our sinful ways. God declared that Man shall die. In this decree in verse 3, God declares that man will not live forever nor even for a long time. (The life expectancy of man starts to decline after God makes this decree.)
 
 >Romans 5:12-14 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned. 13 In fact, sin was in the world before the law, but sin is not charged to a person’s account when there is no law. 14 Nevertheless, death reigned from Adam to Moses, even over those who did not sin in the likeness of Adam’s transgression. He is a type of the Coming One.
-
-**Where do you see God in the text? What does the text say about God?**
 
 ## God
 

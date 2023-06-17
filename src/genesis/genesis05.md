@@ -33,8 +33,6 @@
 >38 son of Enos, son of Seth,  
 >son of Adam, son of God.
 
-**Where do you see God in the text? What does the text say about God?**
-
 ## God
 
 The gospel was always the plan. It is still always the plan.

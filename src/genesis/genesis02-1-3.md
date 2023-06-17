@@ -1,5 +1,9 @@
 # Genesis 2:1-3 Our Forever Rest
 
+## The Word
+
+>Exodus 20:8-11 (CSB) Remember the Sabbath day, to keep it holy: You are to labor six days and do all your work, but the seventh day is a Sabbath to the LORD your God. You must not do any work—you, your son or daughter, your male or female servant, your livestock, or the resident alien who is within your city gates. For the LORD made the heavens and the earth, the sea, and everything in them in six days; then he rested on the seventh day. Therefore the LORD blessed the Sabbath day and declared it holy.
+
 ## The Text
 
 >Genesis 2:1-3 (CSB) So the heavens and the earth and everything in them were completed. On the seventh day God had completed his work that he had done, and he rested on the seventh day from all his work that he had done. God blessed the seventh day and declared it holy, for on it he rested from all his work of creation.
@@ -8,17 +12,13 @@
 
 ### Two explicit commands were given to mankind before the Fall, only one of them is forever
 
-While the command of not eating from a certain tree no longer applies to us, we are still to rest after six days of work because God rested after six days of work.
-
->Exodus 20:8-11 (CSB) Remember the Sabbath day, to keep it holy: You are to labor six days and do all your work, but the seventh day is a Sabbath to the LORD your God. You must not do any work—you, your son or daughter, your male or female servant, your livestock, or the resident alien who is within your city gates. For the LORD made the heavens and the earth, the sea, and everything in them in six days; then he rested on the seventh day. Therefore the LORD blessed the Sabbath day and declared it holy.
+<img class="intro-left" src="/images/art-creation.png">While the command of not eating from a certain tree no longer applies to us, we are still to rest after six days of work because God rested after six days of work.
 
 God is Creator. We are his creation. We are to always obey our Creator. The call to obedience to God is always present: from Creation through the Garden through the Law all the way to the Gospel.
 
 One thing has always been consistent: we are to obey our Creator and we are to rest like our Creator.
 
 But why?
-
-**Where do you see God in the text? What does the text say about God?**
 
 ## God
 

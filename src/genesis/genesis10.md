@@ -2,7 +2,7 @@
 
 ## The Introduction
 
-Genealogies are important. But not in the way you might think.
+<img class="intro-left" src="/images/art-creation.png">Genealogies are important. But not in the way you might think.
 
 It might help to know where we came from, who are our ancestors, or what's in our DNA But our lineage ain't worth anything if we are not saved by God.
 

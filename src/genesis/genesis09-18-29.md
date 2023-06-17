@@ -2,10 +2,7 @@
 
 ## The Introduction
 
-- Thoughts on Bible Study vs. Sermon. Prep is the same. Execution is different.
-  - more questions
-
-We are here at the end of the story of Noah. We are completing his life here in Genesis.
+<img class="intro-left" src="/images/art-creation.png">We are here at the end of the story of Noah. We are completing his life here in Genesis.
 
 We have seen him be spared and saved by the grace of God alone, declared righteous, blameless, and one who walked with God. We have seen him and his family walk through the greatest catastrophe on the earth that displayed the righteousness, holiness, wrath and judgment of the omniscient, omnipotent, and omnipresent God of the Universe. After that, we see God being with Noah and declaring an unbreakable promise that his wrath will not pour out like this any again.
 
@@ -45,8 +42,6 @@ God in his almightiness most certainly make our circumstances perfect. What do y
 ><sup> 28 </sup> Now Noah lived 350 years after the flood. 
 >
 ><sup> 29 </sup> So Noah’s life lasted 950 years; then he died.
-
-**Where do you see God in the text? What does the text say about God?**
 
 ## God
 

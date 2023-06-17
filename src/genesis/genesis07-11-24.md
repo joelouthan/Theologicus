@@ -2,7 +2,7 @@
 
 ## The Introduction
 
-Make no mistake: everybody who has a opinion of God is a theologian. The question remains are you a good or bad theologian.
+<img class="intro-left" src="/images/art-creation.png">Make no mistake: everybody who has a opinion of God is a theologian. The question remains are you a good or bad theologian.
 
 "God doesn't exist." - that's a bad theologian. God does exist, he has made his eternal power obvious and divine nature obvious--or as the Apostle Paul puts it, "have been clearly seen" since the beginning of creation but you choose to suppress the truth so you can go your own way and not respond to the gospel commandments of the Lord Jesus Christ.
 
@@ -60,8 +60,6 @@ One thing to note: in literature, you will almost never see the hero show their 
 ><sup> 23 </sup> He wiped out every living thing that was on the face of the earth, from mankind to livestock, to creatures that crawl, to the birds of the sky, and they were wiped off the earth. Only Noah was left, and those that were with him in the ark. 
 >
 ><sup> 24 </sup> And the water surged on the earth 150 days.
-
-**Where do you see God in the text? What does the text say about God?**
 
 ## God
 

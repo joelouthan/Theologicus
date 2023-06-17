@@ -1,7 +1,5 @@
 # Genesis 14:17-24 The Gospel Blessing
 
-## The Introduction
-
 ## The Text
 
 >Genesis 14:17–24 (CSB)  

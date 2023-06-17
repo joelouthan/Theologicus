@@ -2,7 +2,7 @@
 
 ## The Introduction
 
-In Genesis 1 & 2, God created the heavens and the earth, we were introduced to the omnipotence, omniscient, and omnipresent of God. And please don't be put off by these big fancy words.
+<img class="intro-left" src="/images/art-creation.png">In Genesis 1 & 2, God created the heavens and the earth, we were introduced to the omnipotence, omniscient, and omnipresent of God. And please don't be put off by these big fancy words.
 
 - omnipotence - all powerful; Almighty
 - omniscient - all knowing and all wise
@@ -65,8 +65,6 @@ And not even the salvation of Noah was a big enough warning to everybody else ar
 ## The Support
 
 >1 Peter 1:13-16 (CSB) Therefore, with your minds ready for action, be sober-minded and set your hope completely on the grace to be brought to you at the revelation of Jesus Christ. As obedient children, do not be conformed to the desires of your former ignorance. But as the one who called you is holy, you also are to be holy in all your conduct; for it is written, Be holy, because I am holy.
-
-**Where do you see God in the text? What does the text say about God?**
 
 ## God
 

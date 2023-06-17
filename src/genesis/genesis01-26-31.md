@@ -17,7 +17,7 @@
 
 ### God takes our image bearing seriously
 
-So many of the laws of God deals with how we are to treat other humans. Do not steal. Do not covet. Do not kill. Invite the immigrant in. Care for the widow, orphan, and the poor. Even when we take those laws lightly, God takes them ultra serious. When we try to turn a blind eye, God sees all. When we are faithless, He is faithful. (2 Timothy 2:13)
+<img class="intro-left" src="/images/art-creation.png">So many of the laws of God deals with how we are to treat other humans. Do not steal. Do not covet. Do not kill. Invite the immigrant in. Care for the widow, orphan, and the poor. Even when we take those laws lightly, God takes them ultra serious. When we try to turn a blind eye, God sees all. When we are faithless, He is faithful. (2 Timothy 2:13)
 
 >John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
@@ -38,8 +38,6 @@ So many of the laws of God deals with how we are to treat other humans. Do not s
 >So why were you not afraid to speak against my servant Moses?” The LORD’s anger burned against them, and he left.
 >
 >As the cloud moved away from the tent, Miriam’s skin suddenly became diseased, resembling snow. When Aaron turned toward her, he saw that she was diseased and said to Moses, “My lord, please don’t hold against us this sin we have so foolishly committed. Please don’t let her be like a dead baby whose flesh is half eaten away when he comes out of his mother’s womb.”
-
-**Where do you see God in the text? What does the text say about God?**
 
 ## God
 

@@ -1,5 +1,9 @@
 # Genesis 3:1-13 The Gospel Needed
 
+## The Support
+
+>Romans 5:12 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.
+
 ## The Text
 
 >Genesis 3:1-13 (CSB) Now the serpent was the most cunning of all the wild animals that the LORD God had made. He said to the woman, “Did God really say, ‘You can’t eat from any tree in the garden’?”
@@ -20,13 +24,9 @@
 >
 >And the woman said, “The serpent deceived me, and I ate.”
 
-## The Support
-
->Romans 5:12 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.
-
 ## God
 
-In this particular study, I was tempted in breaking my usual template and wanted to step away from examining God first. But the more I read the passage,  the more we can see what the passage does proclaim God *in the light of the lies and the schemes of devil.*
+<img class="intro-left" src="/images/art-creation.png">In this particular study, I was tempted in breaking my usual template and wanted to step away from examining God first. But the more I read the passage,  the more we can see what the passage does proclaim God *in the light of the lies and the schemes of devil.*
 
 In other words, the more you know God and his word, the more that your mind and heart can reject the lies of Satan and the philosophies of this world.
 

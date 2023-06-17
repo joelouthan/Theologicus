@@ -1,18 +1,20 @@
 # Genesis 1:1 Our Forever Love
 
-## The Text
+## The Word
 
 >John 1:1-2 (CSB) In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning.
 
+## The Text
+
+>Genesis 1:1 (CSB) In the beginning God created the heavens and the earth.
+
 ## The Support
 
-You would think that when you about to study Genesis, that the first study you are about to do is something about Creation. Almost. But to be honest, we are not just there yet.
+<img class="intro-left" src="/images/art-creation.png">You would think that when you about to study Genesis, that the first study you are about to do is something about Creation. Almost. But to be honest, we are not just there yet.
 
 Before the heavens and the earth were formed, before the mountains took shape and the oceans were filled, before time and space were created, from everlasting to everlasting there is one God.
 
 What was God doing before he created the heavens and the earth? In other words, what was God doing before Genesis 1:1?
-
-**Where do you see God in the text? What does the text say about God?**
 
 ## God
 

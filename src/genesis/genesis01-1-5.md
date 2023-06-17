@@ -1,5 +1,13 @@
 # Genesis 1:1-5 Our Forever Wisdom
 
+## The Word
+
+>Proverbs 3:19-20 (CSB)  
+>The LORD founded the earth by wisdom  
+>and established the heavens by understanding.  
+>By his knowledge the watery depths broke open,  
+>and the clouds dripped with dew.
+
 ## The Text
 
 >Genesis 1:1-5 (CSB) In the beginning God created the heavens and the earth.
@@ -8,19 +16,11 @@
 
 ## The Support
 
->Proverbs 3:19-20 (CSB)
->The LORD founded the earth by wisdom  
->and established the heavens by understanding.  
->By his knowledge the watery depths broke open,  
->and the clouds dripped with dew.
-
-In the beginning, there was God. God made the heavens and the earth.
+<img class="intro-left" src="/images/art-creation.png">In the beginning, there was God. God made the heavens and the earth.
 
 But all that God did was by his wisdom. God's wisdom was meant for all of creation for all time.
 
 Let us see how the wisdom of God was there in beginning. And despite our fallen world, we can see where the wisdom of God permeated unscathed throughout all of time.
-
-**Where do you see God in the text? What does the text say about God?**
 
 ## God
 

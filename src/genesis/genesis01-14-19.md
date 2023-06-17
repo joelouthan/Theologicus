@@ -1,16 +1,14 @@
 # Genesis 1:14-19 Our Forever Light
 
+## The Word
+
+>John 8:12 (CSB) Jesus spoke to them again: “I am the light of the world. Anyone who follows me will never walk in the darkness but will have the light of life.”
+
 ## The Text
 
 >Genesis 1:14-19 (CSB) Then God said, “Let there be lights in the expanse of the sky to separate the day from the night. They will serve as signs for seasons and for days and years. They will be lights in the expanse of the sky to provide light on the earth.” And it was so. God made the two great lights—the greater light to rule over the day and the lesser light to rule over the night—as well as the stars. God placed them in the expanse of the sky to provide light on the earth, to rule the day and the night, and to separate light from darkness. And God saw that it was good. Evening came and then morning: the fourth day.
 
-## The Support
-
->John 8:12 (CSB) Jesus spoke to them again: “I am the light of the world. Anyone who follows me will never walk in the darkness but will have the light of life.”
-
-**Where do you see God in the text? What does the text say about God?**
-
-## God
+## <img class="intro-left" src="/images/art-creation.png">God
 
 ### From the beginning, when God made day and night, he was always the light and life of men
 

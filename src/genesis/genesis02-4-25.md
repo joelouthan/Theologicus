@@ -1,5 +1,14 @@
 # Genesis 2:4-25 Our Forever Righteousness
 
+## The Word
+
+>Psalms 1:2-3 (CSB) Instead, his delight is in the LORD’s instruction,  
+>and he meditates on it day and night.  
+>He is like a tree planted beside flowing streams  
+>that bears its fruit in its season,  
+>and its leaf does not wither.  
+>Whatever he does prospers.
+
 ## The Text
 
 >Genesis 2:4-25 (CSB) These are the records of the heavens and the earth, concerning their creation. At the time that the LORD God made the earth and the heavens, no shrub of the field had yet grown on the land, and no plant of the field had yet sprouted, for the LORD God had not made it rain on the land, and there was no man to work the ground. But mist would come up from the earth and water all the ground. Then the LORD God formed the man out of the dust from the ground and breathed the breath of life into his nostrils, and the man became a living being.
@@ -17,20 +26,9 @@
 >
 >This is why a man leaves his father and mother and bonds with his wife, and they become one flesh. Both the man and his wife were naked, yet felt no shame.
 
-## The Support
-
->Psalms 1:2-3 (CSB) Instead, his delight is in the LORD’s instruction,  
->and he meditates on it day and night.  
->He is like a tree planted beside flowing streams  
->that bears its fruit in its season,  
->and its leaf does not wither.  
->Whatever he does prospers.
-
-**Where do you see God in the text? What does the text say about God?**
-
 ## God
 
-God is our forever righteousness.
+<img class="intro-left" src="/images/art-creation.png">God is our forever righteousness.
 
 The way God designed, loved, and created all of mankind, his own creation, his own image, and Adam and Eve, his originally created son and daughter was in righteousness--that is, right-standing with him forever and ever.
 

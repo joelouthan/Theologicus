@@ -1,22 +1,20 @@
 # Genesis 1:20-25 Our Forever Creator
 
+## The Word
+
+>Hebrews 11:3 (CSB) By faith we understand that the universe was created by the word of God, so that what is seen was made from things that are not visible.
+
 ## The Text
 
 >Genesis 1:20-25 (CSB) Then God said, “Let the water swarm with living creatures, and let birds fly above the earth across the expanse of the sky.” So God created the large sea-creatures and every living creature that moves and swarms in the water, according to their kinds. He also created every winged creature according to its kind. And God saw that it was good. God blessed them: “Be fruitful, multiply, and fill the waters of the seas, and let the birds multiply on the earth.” Evening came and then morning: the fifth day.
 >
 >Then God said, “Let the earth produce living creatures according to their kinds: livestock, creatures that crawl, and the wildlife of the earth according to their kinds.” And it was so. So God made the wildlife of the earth according to their kinds, the livestock according to their kinds, and all the creatures that crawl on the ground according to their kinds. And God saw that it was good.
 
-## The Support
-
->Hebrews 11:3 (CSB) By faith we understand that the universe was created by the word of God, so that what is seen was made from things that are not visible.
-
-**Where do you see God in the text? What does the text say about God?**
-
 ## God
 
 ### God Made Everything Out of Nothing
 
-To believe in God, to trust in Christ, and to take Him at His word, by that very same word, you must believe that He created everything out of nothing. This is essentially to the faith of the Christian. There are no exceptions.
+<img class="intro-left" src="/images/art-creation.png">To believe in God, to trust in Christ, and to take Him at His word, by that very same word, you must believe that He created everything out of nothing. This is essentially to the faith of the Christian. There are no exceptions.
 
 That is why the Apostles' Creed declares from the start:
 

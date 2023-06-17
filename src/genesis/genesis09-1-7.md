@@ -2,7 +2,7 @@
 
 ## The Introduction
 
-There is no doubt that God is personal and he responds personally to us as individuals. He cares for us, speaks to us, answers are prayers and provides for us.
+<img class="intro-left" src="/images/art-creation.png">There is no doubt that God is personal and he responds personally to us as individuals. He cares for us, speaks to us, answers are prayers and provides for us.
 
 God certainly acts very intimately and personally. 
 
@@ -54,8 +54,6 @@ But not God. He is explicit in what he says and how he says it. And what really 
 Here is the simple definition of the covenant: you and I have our parts to do in this promise. However, if you fail to do your part, I will still do my part.
 
 When God makes a covenant, he is always going to hold up his end of the bargain. The commands he gives within the covenant--well, we are going to fail. And listen to be carefully: these are still commands but these then become blessings if you fulfill them or curses if you deny them.
-
-**Where do you see God in the text? What does the text say about God?**
 
 ## God
  

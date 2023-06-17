@@ -1,5 +1,13 @@
 # Genesis 3:14-24 The Gospel Proclaimed
 
+## The Word
+
+>Numbers 21:4-9 (CSB) Then they set out from Mount Hor by way of the Red Sea to bypass the land of Edom, but the people became impatient because of the journey. 5 The people spoke against God and Moses: “Why have you led us up from Egypt to die in the wilderness? There is no bread or water, and we detest this wretched food!” 6 Then the LORD sent poisonous snakes among the people, and they bit them so that many Israelites died.
+>
+>7 The people then came to Moses and said, “We have sinned by speaking against the LORD and against you. Intercede with the LORD so that he will take the snakes away from us.” And Moses interceded for the people.
+>
+>8 Then the LORD said to Moses, “Make a snake image and mount it on a pole. When anyone who is bitten looks at it, he will recover.” 9 So Moses made a bronze snake and mounted it on a pole. Whenever someone was bitten, and he looked at the bronze snake, he recovered.
+
 ## The Text
 
 >Genesis 3:14-24 (CSB) So the LORD God said to the serpent:  
@@ -36,17 +44,7 @@
 >
 >22 The LORD God said, “Since the man has become like one of us, knowing good and evil, he must not reach out, take from the tree of life, eat, and live forever.” 23 So the LORD God sent him away from the garden of Eden to work the ground from which he was taken. 24 He drove the man out and stationed the cherubim and the flaming, whirling sword east of the garden of Eden to guard the way to the tree of life.
 
-## The Support
-
->Numbers 21:4-9 (CSB) Then they set out from Mount Hor by way of the Red Sea to bypass the land of Edom, but the people became impatient because of the journey. 5 The people spoke against God and Moses: “Why have you led us up from Egypt to die in the wilderness? There is no bread or water, and we detest this wretched food!” 6 Then the LORD sent poisonous snakes among the people, and they bit them so that many Israelites died.
->
->7 The people then came to Moses and said, “We have sinned by speaking against the LORD and against you. Intercede with the LORD so that he will take the snakes away from us.” And Moses interceded for the people.
->
->8 Then the LORD said to Moses, “Make a snake image and mount it on a pole. When anyone who is bitten looks at it, he will recover.” 9 So Moses made a bronze snake and mounted it on a pole. Whenever someone was bitten, and he looked at the bronze snake, he recovered.
-
-**Where do you see God in the text? What does the text say about God?**
-
-## God
+## <img class="intro-left" src="/images/art-creation.png">God
 
 ### Christ is cursed for our sins
 

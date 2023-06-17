@@ -2,7 +2,7 @@
 
 ## The Introduction
 
-We are in Genesis 12. Let me set the stage: every word of this Bible is inspired--literally breathed out by God--so every word here holds weight.
+<img class="intro-left" src="/images/art-creation.png">We are in Genesis 12. Let me set the stage: every word of this Bible is inspired--literally breathed out by God--so every word here holds weight.
 
 When we talk about the Christian faith, teachers will point to certain important passages to speak about the foundations of our faith and religion. We will then talk about covenants or the promises of God. And just to be crystal clear, when God promises anything, it is an unbreakable promise--meaning, God has or will fulfill it because He is unable to break a promise or tell a lie. Because he is holy, right, good and perfect. I would like to say my word is bond. But my word and promises do not dare to compare to the Holy One of God.
 
