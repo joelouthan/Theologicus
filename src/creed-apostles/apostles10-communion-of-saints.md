@@ -48,7 +48,7 @@ Look at this passage: Christ equates loving God with loving your neighbor. The t
 
 If we are called to love one another, then we belong to one another. The world might do its best to love each other but that is where the similarities begin and end there. The world does not belong to one another. We, as the church, belong to one another. And out of the belonging, because of what Christ has done, we get to not only love each other but love our neighbors in the world.
 
-In our ministry and love in that, think of the grace of GOd and think of us belonging to one another. From there, love each other.
+In our ministry and love in that, think of the grace of God and think of us belonging to one another. From there, love each other.
 
 ### We Belong to One Another: Sit Under the Proclamation of the Word of God
 
