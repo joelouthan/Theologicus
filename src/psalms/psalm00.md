@@ -1,6 +1,8 @@
-# Praying Through Psalms, An Introduction & Resources
+# Praying Through Psalms, An Introduction & Recommendations
 
-I hope to write a commentary on the Psalms. In the meantime, I will pray through them.
+## The Introduction
+
+<img class="intro-icon" src="/images/logo-theologicus3.png">I hope to write a commentary on the Psalms. In the meantime, I will pray through them.
 
 ## It Goes Without Say
 
