@@ -5,7 +5,7 @@
 
 ## The Introduction
 
-<img class="intro-icon" src="/images/logo-theologicus3.png">Once upon a time, my kids were curious about the books in my office, and asked, "Papa, what are all these books about." I told them, "Mostly, they all say the same thing--that Jesus loves me, this I know, for the Bible tells me so."
+<img class="intro-left" src="/images/logo-theologicus3.png">Once upon a time, my kids were curious about the books in my office, and asked, "Papa, what are all these books about." I told them, "Mostly, they all say the same thing--that Jesus loves me, this I know, for the Bible tells me so."
 
 Theologicus is my humble attempt to be a part of those same set of books.
 
