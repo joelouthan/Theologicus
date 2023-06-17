@@ -1,8 +1,8 @@
-# The Gospel of Mark
+# The Gospel of MarkAn Introduction & Recommendations
 
 ## The Introduction
 
-I still remember when I first did family devotions. Every Thursday night at dinner.
+<img class="intro-icon" src="/images/logo-theologicus3.png">I still remember when I first did family devotions every Thursday night at dinner.
 
 I would love to tell you that when we first started they were gentle, sweet, and quiet little angels who sat there, smiled, ate their peas, and then afterward, broke out in a stunning rendition of the classic hymn, "The Solid Rock".
 
