@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-1689.png">
 
-# 1689 Baptist Confession of Faith: Chapter 1.3 The Apocrypha of Holy Scripture
+# 1689 Baptist Confession of Faith, Chapter 1.3 The Apocrypha of Holy Scripture
 
 ## The Text
 
