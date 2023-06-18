@@ -1,6 +1,9 @@
-<img class="intro-left" src="/images/logo-theologicus3.png">
+<img class="intro-right" src="/images/logo-theologicus3.png">
 
 # Theologicus: The Complete Works in Progress
+
+>No pen, no words, no image can express to you the loveliness of my only, only Lord Jesus.  
+>\- Samuel Rutherford
 
 ## The Introduction
 
@@ -8,8 +11,7 @@ Once upon a time, my kids were curious about the books in my office, and asked, 
 
 Theologicus is my humble attempt to be a part of those same set of books.
 
->No pen, no words, no image can express to you the loveliness of my only, only Lord Jesus.  
->\- Samuel Rutherford
+>No pen, no words, no image...
 
 I know that is absolutely true. I know I don't have enough time left on this earth to write all the words. Still, I must try. I must spend all of my breaths, all of my life, and write all of my words express my Christ's love and beauty because I love him so much. He is my Lord and my God. I am my Beloved's and he is mine forever.
 
