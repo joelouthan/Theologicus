@@ -2,7 +2,7 @@
 
 ## The Text
 
->Titus 1:1–4 (CSB)  
+><img class="intro-right" src="/images/art-titus.jpg">Titus 1:1–4 (CSB)  
 ><sup> 1  </sup>Paul, a servant of God and an apostle of Jesus Christ, for the faith of God’s elect and their knowledge of the truth that leads to godliness, 
 >
 ><sup> 2  </sup>in the hope of eternal life that God, who cannot lie, promised before time began. 

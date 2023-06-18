@@ -2,7 +2,7 @@
 
 ## The Text
 
->Titus 1:5–9 (CSB)  
+><img class="intro-right" src="/images/art-titus.jpg">Titus 1:5–9 (CSB)  
 ><sup> 5 </sup>The reason I left you in Crete was to set right what was left undone and, as I directed you, to appoint elders in every town. 
 >
 ><sup> 6 </sup>An elder must be blameless, the husband of one wife, with faithful children who are not accused of wildness or rebellion. 

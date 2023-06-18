@@ -2,7 +2,7 @@
 
 ## The Text
 
->Titus 2:9–15 (CSB)  
+><img class="intro-right" src="/images/art-titus.jpg">Titus 2:9–15 (CSB)  
 ><sup> 9 </sup> Slaves are to submit to their masters in everything, and to be well-pleasing, not talking back 
 >
 ><sup> 10 </sup> or stealing, but demonstrating utter faithfulness, so that they may adorn the teaching of God our Savior in everything. 

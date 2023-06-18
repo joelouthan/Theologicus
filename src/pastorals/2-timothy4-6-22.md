@@ -2,7 +2,7 @@
 
 ## The Text
 
->2 Timothy 4:6–22 (CSB)  
+><img class="intro-right" src="/images/art-timothy.jpg">2 Timothy 4:6–22 (CSB)  
 ><sup> 6 </sup> For I am already being poured out as a drink offering, and the time for my departure is close. 
 >
 ><sup> 7 </sup> I have fought the good fight, I have finished the race, I have kept the faith. 

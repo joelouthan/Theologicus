@@ -2,7 +2,7 @@
 
 ## The Text
 
->2 Timothy 1:13–2:2 (CSB)  
+><img class="intro-right" src="/images/art-timothy.jpg">2 Timothy 1:13–2:2 (CSB)  
 ><sup> 13 </sup> Hold on to the pattern of sound teaching that you have heard from me, in the faith and love that are in Christ Jesus. 
 >
 ><sup> 14 </sup> Guard the good deposit through the Holy Spirit who lives in us. 

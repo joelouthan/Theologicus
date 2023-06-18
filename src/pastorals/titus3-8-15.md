@@ -2,7 +2,7 @@
 
 ## The Text
 
->Titus 3:8–15 (CSB)  
+><img class="intro-right" src="/images/art-titus.jpg">Titus 3:8–15 (CSB)  
 ><sup> 8  </sup>This saying is trustworthy. I want you to insist on these things, so that those who have believed God might be careful to devote themselves to good works. These are good and profitable for everyone. 
 >
 ><sup> 9  </sup>But avoid foolish debates, genealogies, quarrels, and disputes about the law, because they are unprofitable and worthless. 

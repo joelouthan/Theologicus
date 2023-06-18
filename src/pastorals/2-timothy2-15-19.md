@@ -2,7 +2,7 @@
 
 ## The Text
 
->2 Timothy 2:15–19 (CSB)  
+><img class="intro-right" src="/images/art-timothy.jpg">2 Timothy 2:15–19 (CSB)  
 ><sup>15</sup>Be diligent to present yourself to God as one approved, a worker who doesn’t need to be ashamed, correctly teaching the word of truth. 
 >
 ><sup>16</sup>Avoid irreverent and empty speech, since those who engage in it will produce even more godlessness, 

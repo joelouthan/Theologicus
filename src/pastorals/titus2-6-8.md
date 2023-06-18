@@ -2,7 +2,7 @@
 
 ## The Text
 
->Titus 2:6–8 (CSB)  
+><img class="intro-right" src="/images/art-titus.jpg">Titus 2:6–8 (CSB)  
 ><sup> 6 </sup> In the same way, encourage the young men to be self-controlled 
 >
 ><sup> 7 </sup> in everything. Make yourself an example of good works with integrity and dignity in your teaching. 
