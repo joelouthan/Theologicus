@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 6:10a Pray Like This, Your Kingdom Come
 
 ## Pray Then Like This

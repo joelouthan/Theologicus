@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 1:17 Jesus Christ is Our God
 
 ## The Text
 
-><img class="intro-right" src="/images/art-matthew.jpg">Matthew 1:17 (CSB) So all the generations from Abraham to David were fourteen generations; and from David until the exile to Babylon, fourteen generations; and from the exile to Babylon until the Messiah, fourteen generations.
+>Matthew 1:17 (CSB) So all the generations from Abraham to David were fourteen generations; and from David until the exile to Babylon, fourteen generations; and from the exile to Babylon until the Messiah, fourteen generations.
 
 ## The Devotion
 

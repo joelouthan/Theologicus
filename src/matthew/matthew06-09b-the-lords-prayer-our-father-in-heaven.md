@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 6:9b Pray Like This--Our Father in Heaven
 
 ## Pray Then Like This

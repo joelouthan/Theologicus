@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 6:10b Pray Like This, Your Will Be Done
 
 ## Pray Then Like This
@@ -10,7 +12,7 @@
 
 ### This is not making God do what we want him to do
 
-<img class="intro-left" src="/images/art-matthew.jpg">19th Century American Evangelist Charles Finney studied a few doctrines in his lifetime--like any Christian who has seriously thought through the Bible. Now, depending on how well you pay attention in church, this might not be the first time hearing his name. In mentioning in his name, I usually gets two polarizing responses:
+19th Century American Evangelist Charles Finney studied a few doctrines in his lifetime--like any Christian who has seriously thought through the Bible. Now, depending on how well you pay attention in church, this might not be the first time hearing his name. In mentioning in his name, I usually gets two polarizing responses:
 
 - **"Greatest Christian since Paul"** mostly from more big movements within 20th century Evangelicalism and definitely, within the non-denomination megachurches and places like Bethel
 - **"The worst heretic since Judas and is a poison to all of Evangelicalism"** - Those statements usually come from more orthodox camps

@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 2:1-12 Jesus Christ is Our King
 
 ## The Text
 
-><img class="intro-right" src="/images/art-matthew.jpg">Matthew 2:1–12 (CSB)  
+>Matthew 2:1–12 (CSB)  
 ><sup> 1 </sup> After Jesus was born in Bethlehem of Judea in the days of King Herod, wise men from the east arrived in Jerusalem, 
 >
 ><sup> 2 </sup> saying, “Where is he who has been born king of the Jews? For we saw his star at its rising and have come to worship him.” 

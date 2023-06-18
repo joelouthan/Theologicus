@@ -1,10 +1,12 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 6:13 Pray Like This: Deliver Us From Evil
 
 ## Pray Then Like This
 
 >Matthew 6:13 (CSB) And do not bring us into temptation, but deliver us from the evil one.
 
-<img class="intro-left" src="/images/art-matthew.jpg">If we are going to pray like the Son of God because we are sons of God, we have to listen and obey what he says.
+If we are going to pray like the Son of God because we are sons of God, we have to listen and obey what he says.
 
 When Christ told us to pray for our daily bread, I contended to you that it was more than just our nourishment and our physical needs. They are so important--no one is denying that and Christ said it himself in verse 8:
 

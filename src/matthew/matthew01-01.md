@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 1:1 Jesus Christ is the Good News
 
 ## The Text
@@ -6,7 +8,7 @@
 
 ## The Devotion
 
-<img class="intro-left" src="/images/art-matthew.jpg">The Bible is about Jesus Christ. Now, why would we say that? Especially when we crack open the Bible, start at the beginning, Genesis 1 and read straight through all the way to Malachi chapter 4 verse 6 and we never see not word stitched together to form neither 'Jesus' nor 'Christ'. How can the largest part of this book be about Jesus Christ and never mentions the Christ.
+The Bible is about Jesus Christ. Now, why would we say that? Especially when we crack open the Bible, start at the beginning, Genesis 1 and read straight through all the way to Malachi chapter 4 verse 6 and we never see not word stitched together to form neither 'Jesus' nor 'Christ'. How can the largest part of this book be about Jesus Christ and never mentions the Christ.
 
 The Old Testament, all 39 books, are filled with history, explanation, promises, prophecies, poems, literature, and wise sayings. But at the center, at the core, at the meaning of the passages of the Old Testament was one thing: the gospel--that is, the good news of God.
 

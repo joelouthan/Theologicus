@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 1:21 Jesus Christ is Our Savior
 
 ## The Text
 
-><img class="intro-right" src="/images/art-matthew.jpg">Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 ## The Devotion
 

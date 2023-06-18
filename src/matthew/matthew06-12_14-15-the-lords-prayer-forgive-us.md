@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 6:12,14-15 Pray Like This: Forgive Us--Help Us to Forgive
 
 ## Pray Then Like This
 
-><img class="intro-right" src="/images/art-matthew.jpg">Matthew 6:12 and forgive us our debts,  
+>Matthew 6:12 and forgive us our debts,  
 >as we also have forgiven our debtors.
 >
 >Matthew 6:14-15 (CSB) “For if you forgive others their offenses, your heavenly Father will forgive you as well. But if you don’t forgive others, your Father will not forgive your offenses.

@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 1:12-16 Jesus Christ is Our Messiah
 
 ## The Text
 
-><img class="intro-right" src="/images/art-matthew.jpg">Matthew 1:12–16 (CSB)  
+>Matthew 1:12–16 (CSB)  
 ><sup> 12  </sup>After the exile to Babylon Jeconiah fathered Shealtiel, Shealtiel fathered Zerubbabel, 
 >
 ><sup> 13  </sup>Zerubbabel fathered Abiud, Abiud fathered Eliakim, Eliakim fathered Azor, 

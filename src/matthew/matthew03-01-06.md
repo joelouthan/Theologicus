@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 3:1-6 Jesus Christ is Our Proclamation
 
 ## The Text
 
-><img class="intro-right" src="/images/art-matthew.jpg">Matthew 3:1–6 (CSB)  
+>Matthew 3:1–6 (CSB)  
 ><sup> 1 </sup> In those days John the Baptist came, preaching in the wilderness of Judea 
 >
 ><sup> 2 </sup> and saying, “Repent, because the kingdom of heaven has come near!” 

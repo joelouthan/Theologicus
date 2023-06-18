@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 2:13-18 Jesus Christ is Our Word Eternal
 
 ## The Text
 
-><img class="intro-right" src="/images/art-matthew.jpg">Matthew 2:13–18 (CSB)  
+>Matthew 2:13–18 (CSB)  
 ><sup> 13 </sup> After they were gone, an angel of the Lord appeared to Joseph in a dream, saying, “Get up! Take the child and his mother, flee to Egypt, and stay there until I tell you. For Herod is about to search for the child to kill him.” 
 >
 ><sup> 14 </sup> So he got up, took the child and his mother during the night, and escaped to Egypt. 

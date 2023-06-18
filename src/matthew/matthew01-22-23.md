@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 1:22-23 Jesus Christ is Our Immanuel
 
 ## The Text
 
-><img class="intro-right" src="/images/art-matthew.jpg">Matthew 1:22-23 (CSB) Now all this took place to fulfill what was spoken by the Lord through the prophet:  
+>Matthew 1:22-23 (CSB) Now all this took place to fulfill what was spoken by the Lord through the prophet:  
 >See, the virgin will become pregnant  
 >and give birth to a son,  
 >and they will name him Immanuel,  

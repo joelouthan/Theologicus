@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 6:10c Pray Like This: On Earth As It Is In Heaven
 
 ## Pray Then Like This
@@ -6,7 +8,7 @@
 
 ## On Earth As Is It In Heaven
 
-><img class="intro-right" src="/images/art-matthew.jpg">Psalms 73:21-28 (ESV)  
+>Psalms 73:21-28 (ESV)  
 >When my soul was embittered,  
 >when I was pricked in heart,  
 >I was brutish and ignorant;  

@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 1:7–12 Jesus Christ is Our Lineage
 
 ## The Text
 
-><img class="intro-right" src="/images/art-matthew.jpg">Matthew 1:7–12 (CSB)  
+>Matthew 1:7–12 (CSB)  
 ><sup>7</sup> Solomon fathered Rehoboam, Rehoboam fathered Abijah, Abijah fathered Asa, 
 >
 ><sup>8</sup> Asa fathered Jehoshaphat, Jehoshaphat fathered Joram, Joram fathered Uzziah, 

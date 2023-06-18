@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 1:1-6 Jesus Christ is Our Perfection
 
 ## The Text
 
-><img class="intro-right" src="/images/art-matthew.jpg">Matthew 1:1–6 (CSB)  
+>Matthew 1:1–6 (CSB)  
 ><sup> 1 </sup> An account of the genealogy of Jesus Christ, the Son of David, the Son of Abraham: 
 >
 ><sup> 2 </sup> Abraham fathered Isaac, Isaac fathered Jacob, Jacob fathered Judah and his brothers, 

@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 1:18-20 Jesus Christ is Our Righteousness
 
 ## The Text
 
-><img class="intro-right" src="/images/art-matthew.jpg">Matthew 1:18-20 (CSB) The birth of Jesus Christ came about this way: After his mother Mary had been engaged to Joseph, it was discovered before they came together that she was pregnant from the Holy Spirit. So her husband, Joseph, being a righteous man, and not wanting to disgrace her publicly, decided to divorce her secretly.
+>Matthew 1:18-20 (CSB) The birth of Jesus Christ came about this way: After his mother Mary had been engaged to Joseph, it was discovered before they came together that she was pregnant from the Holy Spirit. So her husband, Joseph, being a righteous man, and not wanting to disgrace her publicly, decided to divorce her secretly.
 >
 >But after he had considered these things, an angel of the Lord appeared to him in a dream, saying, “Joseph, son of David, don’t be afraid to take Mary as your wife, because what has been conceived in her is from the Holy Spirit.
 

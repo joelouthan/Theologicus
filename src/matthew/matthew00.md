@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew: An Introduction & Recommendations
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-matthew.jpg">So why start up a new series? Do I need another series like I need another hole in my head? Perhaps.
+So why start up a new series? Do I need another series like I need another hole in my head? Perhaps.
 
 We moved to Kentucky from Oklahoma in early 2022 with my in-laws coming with. I started this series in anticipation that we might not find a local church instantly (Note: despite the published date, I am writing this on October 15, 2022. In short, God provided quickly. Praise be to God. - Ed.) and wanted to be prepared from the jump not going to church for a long while. Keeping it all the way real with you: I knew my in-laws would be slow going to church (Note: they still haven't gone. Pray for them. - Also, Ed.) and wanted to provide the word of God to them.
 

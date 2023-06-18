@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 6:11 Pray Like This: Give Us This Day Our Daily Bread
 
 ## Pray Then Like This
@@ -6,7 +8,7 @@
 
 ## Give Us This Day Our Daily Bread
 
-<img class="intro-left" src="/images/art-matthew.jpg">God knows what we need before we ask. He is our good Father in heaven. He provides for the birds in the air and the flowers in the field. How are we any less?
+God knows what we need before we ask. He is our good Father in heaven. He provides for the birds in the air and the flowers in the field. How are we any less?
 
 He knows that we need food and water and housing.
 
