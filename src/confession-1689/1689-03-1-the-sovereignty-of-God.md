@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-1689.png">
+
 # 1689 Baptist Confession of Faith, Chapter 3.1 The Sovereignty of God
 
 ## The Text
@@ -6,7 +8,7 @@
 
 ## The Chapter
 
-### <img class="intro-left" src="/images/art-1689.png">God hath decreed in himself, from all eternity, by the most wise and holy counsel of his own will, freely and unchangeably, all things, whatsoever comes to pass; yet so as thereby is God neither the author of sin nor hath fellowship with any therein; nor is violence offered to the will of the creature, nor yet is the liberty or contingency of second causes taken away, but rather established; in which appears his wisdom in disposing all things, and power and faithfulness in accomplishing his decree.
+### God hath decreed in himself, from all eternity, by the most wise and holy counsel of his own will, freely and unchangeably, all things, whatsoever comes to pass; yet so as thereby is God neither the author of sin nor hath fellowship with any therein; nor is violence offered to the will of the creature, nor yet is the liberty or contingency of second causes taken away, but rather established; in which appears his wisdom in disposing all things, and power and faithfulness in accomplishing his decree.
 
 ## The Confession
 

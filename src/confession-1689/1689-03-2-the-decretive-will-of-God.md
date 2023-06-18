@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-1689.png">
+
 # 1689 Baptist Confession of Faith, Chapter 3.2 The Decretive Will of God
 
 ## The Text
@@ -6,7 +8,7 @@
 
 ## The Chapter
 
-### <img class="intro-left" src="/images/art-1689.png">Although God knows whatsoever may or can come to pass, upon all supposed conditions, yet had he not decreed anything, because he foresaw it as future, or as that which would come to pass upon such conditions.
+### Although God knows whatsoever may or can come to pass, upon all supposed conditions, yet had he not decreed anything, because he foresaw it as future, or as that which would come to pass upon such conditions.
 
 ## The Confession
 

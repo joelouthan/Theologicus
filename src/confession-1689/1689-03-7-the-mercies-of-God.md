@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-1689.png">
+
 # 1689 Baptist Confession of Faith, Chapter 3.7 The Mercies of God
 
 ## The Text
@@ -6,7 +8,7 @@
 
 ## The Chapter
 
-### <img class="intro-left" src="/images/art-1689.png">The doctrine of the high mystery of predestination is to be handled with special prudence and care, that men attending the will of God revealed in his Word, and yielding obedience thereunto, may, from the certainty of their effectual vocation, be assured of their eternal election; so shall this doctrine afford matter of praise, reverence, and admiration of God, and of humility, diligence, and abundant consolation to all that sincerely obey the gospel.
+### The doctrine of the high mystery of predestination is to be handled with special prudence and care, that men attending the will of God revealed in his Word, and yielding obedience thereunto, may, from the certainty of their effectual vocation, be assured of their eternal election; so shall this doctrine afford matter of praise, reverence, and admiration of God, and of humility, diligence, and abundant consolation to all that sincerely obey the gospel.
 
 ## The Confession
 

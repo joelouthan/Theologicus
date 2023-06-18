@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-1689.png">
+
 # 1689 Baptist Confession of Faith, Chapter 10.4 The Calling of God: Not By Us
 
 ## The Text
@@ -6,7 +8,7 @@
 
 ## The Chapter
 
-### <img class="intro-left" src="/images/art-1689.png">Others not elected, although they may be called by the ministry of the Word, and may have some common operations of the Spirit, yet not being effectually drawn by the Father, they neither will nor can truly come to Christ, and therefore cannot be saved: much less can men that receive not the Christian religion be saved; be they never so diligent to frame their lives according to the light of nature and the law of that religion they do profess.
+### Others not elected, although they may be called by the ministry of the Word, and may have some common operations of the Spirit, yet not being effectually drawn by the Father, they neither will nor can truly come to Christ, and therefore cannot be saved: much less can men that receive not the Christian religion be saved; be they never so diligent to frame their lives according to the light of nature and the law of that religion they do profess.
 
 ## The Confession
 

@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-1689.png">
+
 # 1689 Baptist Confession of Faith, Chapter 9.5 The Glorification of the Will
 
 ## The Text
@@ -6,7 +8,7 @@
 
 ## The Chapter
 
-### <img class="intro-left" src="/images/art-1689.png">This will of man is made perfectly and immutably free to good alone in the state of glory only.
+### This will of man is made perfectly and immutably free to good alone in the state of glory only.
 
 ## The Confession
 

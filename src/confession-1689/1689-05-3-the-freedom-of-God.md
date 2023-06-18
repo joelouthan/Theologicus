@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-1689.png">
+
 # 1689 Baptist Confession of Faith, Chapter 5.3 The Freedom of God
 
 ## The Text
@@ -6,7 +8,7 @@
 
 ## The Chapter
 
-### <img class="intro-left" src="/images/art-1689.png">God, in his ordinary providence maketh use of means, yet is free to work without, above, and against them at his pleasure.
+### God, in his ordinary providence maketh use of means, yet is free to work without, above, and against them at his pleasure.
 
 ## The Confession
 

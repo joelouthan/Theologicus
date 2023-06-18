@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-1689.png">
+
 # 1689 Baptist Confession of Faith, Chapter 5.7 The Goodness of God
 
 ## The Text
@@ -8,7 +10,7 @@
 
 ## The Chapter
 
-### <img class="intro-left" src="/images/art-1689.png">As the providence of God doth in general reach to all creatures, so after a more special manner it taketh care of his church, and disposeth of all things to the good thereof.
+### As the providence of God doth in general reach to all creatures, so after a more special manner it taketh care of his church, and disposeth of all things to the good thereof.
 
 ## The Confession
 

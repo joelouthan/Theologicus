@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-1689.png">
+
 # 1689 Baptist Confession of Faith, Chapter 5.1 The Governance of All Things
 
 ## The Text
@@ -6,7 +8,7 @@
 
 ## The Chapter
 
-### <img class="intro-left" src="/images/art-1689.png">God the good Creator of all things, in His infinite power and wisdom does uphold, direct, dispose, and govern all creatures and things, from the greatest even to the least, by His most wise and holy providence, to the end for the which they were created, according unto His infallible foreknowledge, and the free and immutable counsel of His own will; to the praise of the glory of His wisdom, power, justice, infinite goodness, and mercy.
+### God the good Creator of all things, in His infinite power and wisdom does uphold, direct, dispose, and govern all creatures and things, from the greatest even to the least, by His most wise and holy providence, to the end for the which they were created, according unto His infallible foreknowledge, and the free and immutable counsel of His own will; to the praise of the glory of His wisdom, power, justice, infinite goodness, and mercy.
 
 ## The Confession
 
