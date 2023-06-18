@@ -103,6 +103,7 @@ h6:target::before {
 .content a { text-decoration: none; }
 .content a:hover { text-decoration: underline; }
 .content img, .content video { 
+  width: 100px;
 }
 .content .header:link,
 .content .header:visited {
@@ -217,8 +218,8 @@ table tbody tr:nth-child(2n) {
     background: var(--table-alternate-bg);
 }
 
-
 blockquote {
+    overflow: hidden;
     margin: 20px 0;
     padding: 0 20px;
     color: var(--fg);
