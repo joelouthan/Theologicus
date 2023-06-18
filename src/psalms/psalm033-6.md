@@ -1,8 +1,6 @@
-<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+<img class="intro-right" src="/images/art-paris-psalter.jpg">
 
 # Praying Through: Psalm 33:6
-
-<p style="clear:both;">
 
 ## The Psalm
 
