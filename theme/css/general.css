@@ -125,6 +125,7 @@ bgy {
 .intro-left {
   border-radius: 10px;
   float: left !important;
+  margin-top: 10px !important;
 }
 
 .intro-right {
