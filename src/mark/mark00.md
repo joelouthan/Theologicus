@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-mark.jpg">
+
 # The Gospel of Mark: An Introduction & Recommendations
 
 ## The Introduction
