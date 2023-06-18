@@ -2,7 +2,28 @@
 
 ## The Text
 
->1 Timothy 1:1–11 (CSB) Paul, an apostle of Christ Jesus by the command of God our Savior and of Christ Jesus our hope:  To Timothy, my true son in the faith. Grace, mercy, and peace from God the Father and Christ Jesus our Lord.  As I urged you when I went to Macedonia, remain in Ephesus so that you may instruct certain people not to teach false doctrine  or to pay attention to myths and endless genealogies. These promote empty speculations rather than God’s plan, which operates by faith.  Now the goal of our instruction is love that comes from a pure heart, a good conscience, and a sincere faith.  Some have departed from these and turned aside to fruitless discussion.  They want to be teachers of the law, although they don’t understand what they are saying or what they are insisting on.  But we know that the law is good, provided one uses it legitimately.  We know that the law is not meant for a righteous person, but for the lawless and rebellious, for the ungodly and sinful, for the unholy and irreverent, for those who kill their fathers and mothers, for murderers,  for the sexually immoral and males who have sex with males, for slave traders, liars, perjurers, and for whatever else is contrary to the sound teaching  that conforms to the gospel concerning the glory of the blessed God, which was entrusted to me.
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 1:1–11 (CSB)  
+><sup>1</sup> Paul, an apostle of Christ Jesus by the command of God our Savior and of Christ Jesus our hope: 
+>
+><sup>2</sup> To Timothy, my true son in the faith. Grace, mercy, and peace from God the Father and Christ Jesus our Lord. 
+>
+><sup>3</sup> As I urged you when I went to Macedonia, remain in Ephesus so that you may instruct certain people not to teach false doctrine 
+>
+><sup>4</sup> or to pay attention to myths and endless genealogies. These promote empty speculations rather than God’s plan, which operates by faith. 
+>
+><sup>5</sup> Now the goal of our instruction is love that comes from a pure heart, a good conscience, and a sincere faith. 
+>
+><sup>6</sup> Some have departed from these and turned aside to fruitless discussion. 
+>
+><sup>7</sup> They want to be teachers of the law, although they don’t understand what they are saying or what they are insisting on. 
+>
+><sup>8</sup> But we know that the law is good, provided one uses it legitimately. 
+>
+><sup>9</sup> We know that the law is not meant for a righteous person, but for the lawless and rebellious, for the ungodly and sinful, for the unholy and irreverent, for those who kill their fathers and mothers, for murderers, 
+>
+><sup>10</sup> for the sexually immoral and males who have sex with males, for slave traders, liars, perjurers, and for whatever else is contrary to the sound teaching 
+>
+><sup>11</sup> that conforms to the gospel concerning the glory of the blessed God, which was entrusted to me.
 
 ## The Meditation
 

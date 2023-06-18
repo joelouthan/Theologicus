@@ -2,9 +2,34 @@
 
 ## The Text
 
->1 Timothy 5:3-16 (CSB) Support widows who are genuinely in need. 4 But if any widow has children or grandchildren, let them learn to practice godliness toward their own family first and to repay their parents, for this pleases God. 5 The widow who is truly in need and left all alone has put her hope in God and continues night and day in her petitions and prayers; 6 however, she who is self-indulgent is dead even while she lives. 7 Command this also, so that they will be above reproach. 8 But if anyone does not provide for his own family, especially for his own household, he has denied the faith and is worse than an unbeliever.
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 5:3–16 (CSB)  
+><sup>3</sup> Support widows who are genuinely in need. 
 >
->9 No widow is to be enrolled on the list for support unless she is at least sixty years old, has been the wife of one husband, 10 and is well known for good works—that is, if she has brought up children, shown hospitality, washed the saints’ feet, helped the afflicted, and devoted herself to every good work. 11 But refuse to enroll younger widows, for when they are drawn away from Christ by desire, they want to marry 12 and will therefore receive condemnation because they have renounced their original pledge. 13 At the same time, they also learn to be idle, going from house to house; they are not only idle, but are also gossips and busybodies, saying things they shouldn’t say. 14 Therefore, I want younger women to marry, have children, manage their households, and give the adversary no opportunity to accuse us. 15 For some have already turned away to follow Satan. 16 If any believing woman has widows in her family, let her help them. Let the church not be burdened, so that it can help widows in genuine need.
+><sup>4</sup> But if any widow has children or grandchildren, let them learn to practice godliness toward their own family first and to repay their parents, for this pleases God. 
+>
+><sup>5</sup> The widow who is truly in need and left all alone has put her hope in God and continues night and day in her petitions and prayers; 
+>
+><sup>6</sup> however, she who is self-indulgent is dead even while she lives. 
+>
+><sup>7</sup> Command this also, so that they will be above reproach. 
+>
+><sup>8</sup> But if anyone does not provide for his own family, especially for his own household, he has denied the faith and is worse than an unbeliever. 
+>
+><sup>9</sup> No widow is to be enrolled on the list for support unless she is at least sixty years old, has been the wife of one husband, 
+>
+><sup>10</sup> and is well known for good works—that is, if she has brought up children, shown hospitality, washed the saints’ feet, helped the afflicted, and devoted herself to every good work. 
+>
+><sup>11</sup> But refuse to enroll younger widows, for when they are drawn away from Christ by desire, they want to marry 
+>
+><sup>12</sup> and will therefore receive condemnation because they have renounced their original pledge. 
+>
+><sup>13</sup> At the same time, they also learn to be idle, going from house to house; they are not only idle, but are also gossips and busybodies, saying things they shouldn’t say. 
+>
+><sup>14</sup> Therefore, I want younger women to marry, have children, manage their households, and give the adversary no opportunity to accuse us. 
+>
+><sup>15</sup> For some have already turned away to follow Satan. 
+>
+><sup>16</sup> If any believing woman has widows in her family, let her help them. Let the church not be burdened, so that it can help widows in genuine need.
 
 ## The Meditation
 

@@ -2,11 +2,12 @@
 
 ## The Text
 
->1 Timothy 6:17-19 (CSB) Instruct those who are rich in the present age not to be arrogant or to set their hope on the uncertainty of wealth, but on God, who richly provides us with all things to enjoy.
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 6:17–19 (CSB)  
+><sup>17</sup> Instruct those who are rich in the present age not to be arrogant or to set their hope on the uncertainty of wealth, but on God, who richly provides us with all things to enjoy. 
 >
-><sup> 18 </sup>Instruct them to do what is good, to be rich in good works, to be generous and willing to share,
+><sup>18</sup> Instruct them to do what is good, to be rich in good works, to be generous and willing to share, 
 >
-><sup> 19 </sup>storing up treasure for themselves as a good foundation for the coming age, so that they may take hold of what is truly life.
+><sup>19</sup> storing up treasure for themselves as a good foundation for the coming age, so that they may take hold of what is truly life.
 
 ## The Meditation
 

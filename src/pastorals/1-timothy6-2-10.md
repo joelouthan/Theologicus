@@ -2,7 +2,24 @@
 
 ## The Text
 
->1 Timothy 6:2-10 (CSB) Teach and encourage these things. 3 If anyone teaches false doctrine and does not agree with the sound teaching of our Lord Jesus Christ and with the teaching that promotes godliness, 4 he is conceited and understands nothing, but has an unhealthy interest in disputes and arguments over words. From these come envy, quarreling, slander, evil suspicions, 5 and constant disagreement among people whose minds are depraved and deprived of the truth, who imagine that godliness is a way to material gain. 6 But godliness with contentment is great gain. 7 For we brought nothing into the world, and we can take nothing out. 8 If we have food and clothing, we will be content with these. 9 But those who want to be rich fall into temptation, a trap, and many foolish and harmful desires, which plunge people into ruin and destruction. 10 For the love of money is a root of all kinds of evil, and by craving it, some have wandered away from the faith and pierced themselves with many griefs.
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 6:2–10 (CSB)  
+><sup>2</sup> Let those who have believing masters not be disrespectful to them because they are brothers, but serve them even better, since those who benefit from their service are believers and dearly loved. Teach and encourage these things. 
+>
+><sup>3</sup> If anyone teaches false doctrine and does not agree with the sound teaching of our Lord Jesus Christ and with the teaching that promotes godliness, 
+>
+><sup>4</sup> he is conceited and understands nothing, but has an unhealthy interest in disputes and arguments over words. From these come envy, quarreling, slander, evil suspicions, 
+>
+><sup>5</sup> and constant disagreement among people whose minds are depraved and deprived of the truth, who imagine that godliness is a way to material gain. 
+>
+><sup>6</sup> But godliness with contentment is great gain. 
+>
+><sup>7</sup> For we brought nothing into the world, and we can take nothing out. 
+>
+><sup>8</sup> If we have food and clothing, we will be content with these. 
+>
+><sup>9</sup> But those who want to be rich fall into temptation, a trap, and many foolish and harmful desires, which plunge people into ruin and destruction. 
+>
+><sup>10</sup> For the love of money is a root of all kinds of evil, and by craving it, some have wandered away from the faith and pierced themselves with many griefs.
 
 ## The Meditation
 

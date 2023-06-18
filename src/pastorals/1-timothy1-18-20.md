@@ -2,7 +2,12 @@
 
 ## The Text
 
->1 Timothy 1:18-20 (CSB) Timothy, my son, I am giving you this instruction in keeping with the prophecies previously made about you, so that by recalling them you may fight the good fight, having faith and a good conscience, which some have rejected and have shipwrecked the faith. Among them are Hymenaeus and Alexander, whom I have delivered to Satan, so that they may be taught not to blaspheme.
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 1:18–20 (CSB)  
+><sup>18</sup> Timothy, my son, I am giving you this instruction in keeping with the prophecies previously made about you, so that by recalling them you may fight the good fight, 
+>
+><sup>19</sup> having faith and a good conscience, which some have rejected and have shipwrecked their faith. 
+>
+><sup>20</sup> Among them are Hymenaeus and Alexander, whom I have delivered to Satan, so that they may be taught not to blaspheme.
 
 ## The Meditation
 

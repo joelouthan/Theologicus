@@ -2,7 +2,16 @@
 
 ## The Text
 
->1 Timothy 4:1-5 (CSB) Now the Spirit explicitly says that in later times some will depart from the faith, paying attention to deceitful spirits and the teachings of demons, through the hypocrisy of liars whose consciences are seared. They forbid marriage and demand abstinence from foods that God created to be received with gratitude by those who believe and know the truth. For everything created by God is good, and nothing is to be rejected if it is received with thanksgiving, since it is sanctified by the word of God and by prayer.
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 4:1–5 (CSB)  
+><sup>1</sup> Now the Spirit explicitly says that in later times some will depart from the faith, paying attention to deceitful spirits and the teachings of demons, 
+>
+><sup>2</sup> through the hypocrisy of liars whose consciences are seared. 
+>
+><sup>3</sup> They forbid marriage and demand abstinence from foods that God created to be received with gratitude by those who believe and know the truth. 
+>
+><sup>4</sup> For everything created by God is good, and nothing is to be rejected if it is received with thanksgiving, 
+>
+><sup>5</sup> since it is sanctified by the word of God and by prayer.
 
 ## The Meditation
 

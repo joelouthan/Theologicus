@@ -2,9 +2,24 @@
 
 ## The Text
 
->1 Timothy 5:17-25 (CSB) The elders who are good leaders are to be considered worthy of double honor, especially those who work hard at preaching and teaching. 18 For the Scripture says: Do not muzzle an ox while it is treading out the grain, and, “The worker is worthy of his wages.”>
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 5:17–25 (CSB)  
+><sup>17</sup> The elders who are good leaders are to be considered worthy of double honor, especially those who work hard at preaching and teaching. 
 >
->19 Don’t accept an accusation against an elder unless it is supported by two or three witnesses. 20 Publicly rebuke those who sin, so that the rest will be afraid. 21 I solemnly charge you before God and Christ Jesus and the elect angels to observe these things without prejudice, doing nothing out of favoritism. 22 Don’t be too quick to appoint anyone as an elder, and don’t share in the sins of others. Keep yourself pure. 23 Don’t continue drinking only water, but use a little wine because of your stomach and your frequent illnesses. 24 Some people’s sins are obvious, preceding them to judgment, but the sins of others surface later. 25 Likewise, good works are obvious, and those that are not obvious cannot remain hidden.
+><sup>18</sup> For the Scripture says: Do not muzzle an ox while it is treading out the grain, and, The worker is worthy of his wages. 
+>
+><sup>19</sup> Don’t accept an accusation against an elder unless it is supported by two or three witnesses. 
+>
+><sup>20</sup> Publicly rebuke those who sin, so that the rest will be afraid. 
+>
+><sup>21</sup> I solemnly charge you before God and Christ Jesus and the elect angels to observe these things without prejudice, doing nothing out of favoritism. 
+>
+><sup>22</sup> Don’t be too quick to appoint anyone as an elder, and don’t share in the sins of others. Keep yourself pure. 
+>
+><sup>23</sup> Don’t continue drinking only water, but use a little wine because of your stomach and your frequent illnesses. 
+>
+><sup>24</sup> Some people’s sins are obvious, preceding them to judgment, but the sins of others surface later. 
+>
+><sup>25</sup> Likewise, good works are obvious, and those that are not obvious cannot remain hidden.
 
 ## The Meditation
 

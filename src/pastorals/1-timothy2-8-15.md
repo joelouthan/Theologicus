@@ -2,7 +2,22 @@
 
 ## The Text
 
->1 Timothy 2:8-15 (CSB) Therefore, I want the men in every place to pray, lifting up holy hands without anger or argument. Also, the women are to dress themselves in modest clothing, with decency and good sense, not with elaborate hairstyles, gold, pearls, or expensive apparel, but with good works, as is proper for women who profess to worship God. A woman is to learn quietly with full submission. I do not allow a woman to teach or to have authority over a man; instead, she is to remain quiet. For Adam was formed first, then Eve. And Adam was not deceived, but the woman was deceived and transgressed. But she will be saved through childbearing, if they continue in faith, love, and holiness, with good sense.
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 2:8–15 (CSB)  
+><sup>8</sup> Therefore, I want the men in every place to pray, lifting up holy hands without anger or argument. 
+>
+><sup>9</sup> Also, the women are to dress themselves in modest clothing, with decency and good sense, not with elaborate hairstyles, gold, pearls, or expensive apparel, 
+>
+><sup>10</sup> but with good works, as is proper for women who profess to worship God. 
+>
+><sup>11</sup> A woman is to learn quietly with full submission. 
+>
+><sup>12</sup> I do not allow a woman to teach or to have authority over a man; instead, she is to remain quiet. 
+>
+><sup>13</sup> For Adam was formed first, then Eve. 
+>
+><sup>14</sup> And Adam was not deceived, but the woman was deceived and transgressed. 
+>
+><sup>15</sup> But she will be saved through childbearing, if they continue in faith, love, and holiness, with good sense.
 
 ## The Meditation
 

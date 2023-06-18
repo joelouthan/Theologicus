@@ -2,7 +2,18 @@
 
 ## The Text
 
->1 Timothy 1:12-17 (CSB) I give thanks to Christ Jesus our Lord who has strengthened me, because he considered me faithful, appointing me to the ministry— even though I was formerly a blasphemer, a persecutor, and an arrogant man. But I received mercy because I acted out of ignorance in unbelief, and the grace of our Lord overflowed, along with the faith and love that are in Christ Jesus. This saying is trustworthy and deserving of full acceptance: “Christ Jesus came into the world to save sinners”—and I am the worst of them. But I received mercy for this reason, so that in me, the worst of them, Christ Jesus might demonstrate his extraordinary patience as an example to those who would believe in him for eternal life. Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 1:12–17 (CSB)  
+><sup>12</sup> I give thanks to Christ Jesus our Lord who has strengthened me, because he considered me faithful, appointing me to the ministry—
+>
+><sup>13</sup> even though I was formerly a blasphemer, a persecutor, and an arrogant man. But I received mercy because I acted out of ignorance in unbelief, 
+>
+><sup>14</sup> and the grace of our Lord overflowed, along with the faith and love that are in Christ Jesus. 
+>
+><sup>15</sup> This saying is trustworthy and deserving of full acceptance: “Christ Jesus came into the world to save sinners”—and I am the worst of them. 
+>
+><sup>16</sup> But I received mercy for this reason, so that in me, the worst of them, Christ Jesus might demonstrate his extraordinary patience as an example to those who would believe in him for eternal life. 
+>
+><sup>17</sup> Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
 
 ## The Meditation
 

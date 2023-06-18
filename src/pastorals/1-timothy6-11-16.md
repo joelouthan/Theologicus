@@ -2,7 +2,18 @@
 
 ## The Text
 
->1 Timothy 6:11-16 (CSB) But you, man of God, flee from these things, and pursue righteousness, godliness, faith, love, endurance, and gentleness. Fight the good fight of the faith. Take hold of eternal life to which you were called and about which you have made a good confession in the presence of many witnesses. In the presence of God, who gives life to all, and of Christ Jesus, who gave a good confession before Pontius Pilate, I charge you to keep this command without fault or failure until the appearing of our Lord Jesus Christ. God will bring this about in his own time. He is the blessed and only Sovereign, the King of kings, and the Lord of lords, who alone is immortal and who lives in unapproachable light, whom no one has seen or can see, to him be honor and eternal power. Amen.
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 6:11–16 (CSB)  
+><sup>11</sup> But you, man of God, flee from these things, and pursue righteousness, godliness, faith, love, endurance, and gentleness. 
+>
+><sup>12</sup> Fight the good fight of the faith. Take hold of eternal life to which you were called and about which you have made a good confession in the presence of many witnesses. 
+>
+><sup>13</sup> In the presence of God, who gives life to all, and of Christ Jesus, who gave a good confession before Pontius Pilate, I charge you 
+>
+><sup>14</sup> to keep this command without fault or failure until the appearing of our Lord Jesus Christ. 
+>
+><sup>15</sup> God will bring this about in his own time. He is the blessed and only Sovereign, the King of kings, and the Lord of lords, 
+>
+><sup>16</sup> who alone is immortal and who lives in unapproachable light, whom no one has seen or can see, to him be honor and eternal power. Amen.
 
 ## The Meditation
 

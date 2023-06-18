@@ -2,10 +2,10 @@
 
 ## The Text
 
->1 Timothy 6:20–21 (CSB)
-> 20  Timothy, guard what has been entrusted to you, avoiding irreverent and empty speech and contradictions from what is falsely called knowledge. 
-
-> 21  By professing it, some people have departed from the faith. Grace be with you all.
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 6:20–21 (CSB)  
+><sup>20</sup> Timothy, guard what has been entrusted to you, avoiding irreverent and empty speech and contradictions from what is falsely called knowledge. 
+>
+><sup>21</sup> By professing it, some people have departed from the faith. Grace be with you all.
 
 ## The Meditation
 

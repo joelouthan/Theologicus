@@ -2,7 +2,18 @@
 
 ## The Text
 
->1 Timothy 3:8-13 (CSB) Deacons, likewise, should be worthy of respect, not hypocritical, not drinking a lot of wine, not greedy for money, holding the mystery of the faith with a clear conscience. They must also be tested first; if they prove blameless, then they can serve as deacons. Wives, likewise, should be worthy of respect, not slanderers, self-controlled, faithful in everything. Deacons are to be husbands of one wife, managing their children and their own households competently. For those who have served well as deacons acquire a good standing for themselves and great boldness in the faith that is in Christ Jesus.
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 3:8–13 (CSB)  
+><sup>8</sup> Deacons, likewise, should be worthy of respect, not hypocritical, not drinking a lot of wine, not greedy for money, 
+>
+><sup>9</sup> holding the mystery of the faith with a clear conscience. 
+>
+><sup>10</sup> They must also be tested first; if they prove blameless, then they can serve as deacons. 
+>
+><sup>11</sup> Wives, likewise, should be worthy of respect, not slanderers, self-controlled, faithful in everything. 
+>
+><sup>12</sup> Deacons are to be husbands of one wife, managing their children and their own households competently. 
+>
+><sup>13</sup> For those who have served well as deacons acquire a good standing for themselves and great boldness in the faith that is in Christ Jesus.
 
 ## The Meditation
 

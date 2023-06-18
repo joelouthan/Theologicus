@@ -2,9 +2,22 @@
 
 ## The Text
 
->1 Timothy 4:11 - 5:2 (CSB) Command and teach these things. Don’t let anyone despise your youth, but set an example for the believers in speech, in conduct, in love, in faith, and in purity. Until I come, give your attention to public reading, exhortation, and teaching. Don’t neglect the gift that is in you; it was given to you through prophecy, with the laying on of hands by the council of elders. Practice these things; be committed to them, so that your progress may be evident to all. Pay close attention to your life and your teaching; persevere in these things, for in doing this you will save both yourself and your hearers.
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 4:11–5:2 (CSB)  
+><sup>11</sup> Command and teach these things. 
 >
->Don’t rebuke an older man, but exhort him as a father, younger men as brothers, older women as mothers, and the younger women as sisters with all purity.
+><sup>12</sup> Don’t let anyone despise your youth, but set an example for the believers in speech, in conduct, in love, in faith, and in purity. 
+>
+><sup>13</sup> Until I come, give your attention to public reading, exhortation, and teaching. 
+>
+><sup>14</sup> Don’t neglect the gift that is in you; it was given to you through prophecy, with the laying on of hands by the council of elders. 
+>
+><sup>15</sup> Practice these things; be committed to them, so that your progress may be evident to all. 
+>
+><sup>16</sup> Pay close attention to your life and your teaching; persevere in these things, for in doing this you will save both yourself and your hearers. 
+>
+><sup>1</sup> Don’t rebuke an older man, but exhort him as a father, younger men as brothers, 
+>
+><sup>2</sup> older women as mothers, and the younger women as sisters with all purity.
 
 ## The Meditation
 

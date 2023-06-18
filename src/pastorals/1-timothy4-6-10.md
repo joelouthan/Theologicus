@@ -2,13 +2,18 @@
 
 ## The Text
 
->1 Timothy 4:6-10 (CSB) If you point these things out to the brothers and sisters, you will be a good servant of Christ Jesus, nourished by the words of the faith and the good teaching that you have followed. But have nothing to do with pointless and silly myths. Rather, train yourself in godliness. For the training of the body has limited benefit, but godliness is beneficial in every way, since it holds promise for the present life and also for the life to come. This saying is trustworthy and deserves full acceptance. For this reason we labor and strive, because we have put our hope in the living God, who is the Savior of all people, especially of those who believe.
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 4:6–10 (CSB)  
+><sup>6</sup> If you point these things out to the brothers and sisters, you will be a good servant of Christ Jesus, nourished by the words of the faith and the good teaching that you have followed. 
+>
+><sup>7</sup> But have nothing to do with pointless and silly myths. Rather, train yourself in godliness. 
+>
+><sup>8</sup> For the training of the body has limited benefit, but godliness is beneficial in every way, since it holds promise for the present life and also for the life to come. 
+>
+><sup>9</sup> This saying is trustworthy and deserves full acceptance. 
+>
+><sup>10</sup> For this reason we labor and strive, because we have put our hope in the living God, who is the Savior of all people, especially of those who believe.
 
-
-Let us walk through this passage and get into the good news.
 ## The Meditation
-
-Go back to verse 6:
 
 ### If you point these things out to the brothers and sisters, you will be a good servant of Christ Jesus
 

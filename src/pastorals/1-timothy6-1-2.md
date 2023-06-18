@@ -2,7 +2,10 @@
 
 ## The Text
 
->1 Timothy 6:1-2 (CSB) All who are under the yoke as slaves should regard their own masters as worthy of all respect, so that God’s name and his teaching will not be blasphemed. Let those who have believing masters not be disrespectful to them because they are brothers, but serve them even better, since those who benefit from their service are believers and dearly loved.
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 6:1–2 (CSB)  
+><sup>1</sup> All who are under the yoke as slaves should regard their own masters as worthy of all respect, so that God’s name and his teaching will not be blasphemed. 
+>
+><sup>2</sup> Let those who have believing masters not be disrespectful to them because they are brothers, but serve them even better, since those who benefit from their service are believers and dearly loved. Teach and encourage these things.
 
 ## The Meditation
 

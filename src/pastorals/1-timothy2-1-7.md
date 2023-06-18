@@ -2,7 +2,7 @@
 
 ## The Text
 
->1 Timothy 2:1-7 (CSB) First of all, then, I urge that petitions, prayers, intercessions, and thanksgivings be made for everyone, for kings and all those who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity. This is good, and it pleases God our Savior, who wants everyone to be saved and to come to the knowledge of the truth.
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 2:1-7 (CSB) First of all, then, I urge that petitions, prayers, intercessions, and thanksgivings be made for everyone, for kings and all those who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity. This is good, and it pleases God our Savior, who wants everyone to be saved and to come to the knowledge of the truth.
 >
 >For there is one God and one mediator between God and mankind, the man Christ Jesus, who gave himself as a ransom for all, a testimony at the proper time.
 >

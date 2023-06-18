@@ -2,14 +2,12 @@
 
 ## The Text
 
->1 Timothy 3:14-16 (CSB) I write these things to you, hoping to come to you soon. But if I should be delayed, I have written so that you will know how people ought to conduct themselves in God’s household, which is the church of the living God, the pillar and foundation of the truth. And most certainly, the mystery of godliness is great:
+><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 3:14–16 (CSB)  
+><sup>14</sup> I write these things to you, hoping to come to you soon. 
 >
->He was manifested in the flesh,  
->vindicated in the Spirit,  
->seen by angels,  
->preached among the nations,  
->believed on in the world,  
->taken up in glory.
+><sup>15</sup> But if I should be delayed, I have written so that you will know how people ought to conduct themselves in God’s household, which is the church of the living God, the pillar and foundation of the truth. 
+>
+><sup>16</sup> And most certainly, the mystery of godliness is great: He was manifested in the flesh, vindicated in the Spirit, seen by angels, preached among the nations, believed on in the world, taken up in glory.
 
 ## The Meditation
 
