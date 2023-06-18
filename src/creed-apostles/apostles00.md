@@ -1,8 +1,12 @@
+<img class="intro-left" src="/images/art-apostles-creed.png">
+
 # The Apostles' Creed: An Introduction & Recommendations
+
+<p style="clear:both;">
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-apostles-creed.png">Why exposit the Apostles' Creed or any creed whatsoever?
+Why exposit the Apostles' Creed or any creed whatsoever?
 
 Simply put, the Apostles' Creed is a summary of the Christian faith. Full stop. If you believe these words to be true (as with any historical creed), you are saved.
 
@@ -53,7 +57,7 @@ And with this creed, declare what they declared: that Jesus Christ is Lord.
 
 ## The Creed
 
-><img class="intro-right" src="/images/art-apostles-creed.png">I believe in God, the Father Almighty,
+>I believe in God, the Father Almighty,
 >the Creator of heaven and earth,
 >and in Jesus Christ, His only Son, our Lord:
 >Who was conceived of the Holy Spirit,
