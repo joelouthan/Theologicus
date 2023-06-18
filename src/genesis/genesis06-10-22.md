@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 6:10-22 The Gospel Certainty: The Holiness of God
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-creation.png">In Genesis 1 & 2, God created the heavens and the earth, we were introduced to the omnipotence, omniscient, and omnipresent of God. And please don't be put off by these big fancy words.
+In Genesis 1 & 2, God created the heavens and the earth, we were introduced to the omnipotence, omniscient, and omnipresent of God. And please don't be put off by these big fancy words.
 
 - omnipotence - all powerful; Almighty
 - omniscient - all knowing and all wise

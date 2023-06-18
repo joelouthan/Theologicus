@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 6:1-7 The Gospel Certainty: The Wickedness of Man
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-creation.png">**Hamartiology** (ha mar tee ology). Incredibly huge word. If I would take a guess, I would say that maybe just a few people in here today has ever heard this word before--fewer still have even used it in a sentence. Hamartiology (ha mar tee ology) is simply "the study of sin." Undoubtedly, anybody who would undertake such a discipline would be, most likely, from a Christian perspective and within that perspective, "the study of sin and its effects."
+**Hamartiology** (ha mar tee ology). Incredibly huge word. If I would take a guess, I would say that maybe just a few people in here today has ever heard this word before--fewer still have even used it in a sentence. Hamartiology (ha mar tee ology) is simply "the study of sin." Undoubtedly, anybody who would undertake such a discipline would be, most likely, from a Christian perspective and within that perspective, "the study of sin and its effects."
 
 Here's why I am not sure I would have the gumption to take on such a academic. If I read my Bible, and see what God says on sin, and know I was once a prisoner within my own sin, how would I even have the right mind and the right eyes to even see the fullest effects of sin? Even with the Triune God dwelling in me, I am not God--unless the Spirit warns me, can I even see the fullest outcome when I make a sinful choice?
 

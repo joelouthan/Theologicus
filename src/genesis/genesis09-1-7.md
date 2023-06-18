@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 9:1-7 The Gospel Certainty: The Love of God
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-creation.png">There is no doubt that God is personal and he responds personally to us as individuals. He cares for us, speaks to us, answers are prayers and provides for us.
+There is no doubt that God is personal and he responds personally to us as individuals. He cares for us, speaks to us, answers are prayers and provides for us.
 
 God certainly acts very intimately and personally. 
 

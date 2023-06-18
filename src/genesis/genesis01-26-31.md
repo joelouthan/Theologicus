@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 1:26-31 Our Forever Image
 
 ## The Text
@@ -17,7 +19,7 @@
 
 ### God takes our image bearing seriously
 
-<img class="intro-left" src="/images/art-creation.png">So many of the laws of God deals with how we are to treat other humans. Do not steal. Do not covet. Do not kill. Invite the immigrant in. Care for the widow, orphan, and the poor. Even when we take those laws lightly, God takes them ultra serious. When we try to turn a blind eye, God sees all. When we are faithless, He is faithful. (2 Timothy 2:13)
+So many of the laws of God deals with how we are to treat other humans. Do not steal. Do not covet. Do not kill. Invite the immigrant in. Care for the widow, orphan, and the poor. Even when we take those laws lightly, God takes them ultra serious. When we try to turn a blind eye, God sees all. When we are faithless, He is faithful. (2 Timothy 2:13)
 
 >John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 

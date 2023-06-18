@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 1:6-13 Our Forever Home
 
 ## The Word
@@ -12,7 +14,7 @@
 
 ## God
 
-### <img class="intro-left" src="/images/art-creation.png">The faith of the believer in Christ is that God made everything and he did so out of nothing
+### The faith of the believer in Christ is that God made everything and he did so out of nothing
 
 >Acts 17:24-28 (ESV) The God who made the world and everything in it, being Lord of heaven and earth, does not live in temples made by man, nor is he served by human hands, as though he needed anything, since he himself gives to all mankind life and breath and everything. And he made from one man every nation of mankind to live on all the face of the earth, having determined allotted periods and the boundaries of their dwelling place, that they should seek God, and perhaps feel their way toward him and find him. Yet he is actually not far from each one of us, for  
 >

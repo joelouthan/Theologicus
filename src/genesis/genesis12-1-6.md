@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 12:1-6 The Gospel Predestination 
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-creation.png">How did we get here? What I mean by that is how is setting the stage to do his will and his good pleasure in his people who are not yet his people.
+How did we get here? What I mean by that is how is setting the stage to do his will and his good pleasure in his people who are not yet his people.
 
 Well, logic dictates, he must start with a person. Now, because we have seen a couple of genealogies (Genesis 5) and we have heard the proclamation of the gospel (Genesis 3:15) and for most of us, this is not the first time hearing this story, we know that through one bloodline starting with Adam through Noah through a man name Terah.
 

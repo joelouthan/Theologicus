@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 10 The Gospel Certainty: The Lineage of God
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-creation.png">Genealogies are important. But not in the way you might think.
+Genealogies are important. But not in the way you might think.
 
 It might help to know where we came from, who are our ancestors, or what's in our DNA But our lineage ain't worth anything if we are not saved by God.
 

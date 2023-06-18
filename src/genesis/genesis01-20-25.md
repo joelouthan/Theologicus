@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 1:20-25 Our Forever Creator
 
 ## The Word
@@ -14,7 +16,7 @@
 
 ### God Made Everything Out of Nothing
 
-<img class="intro-left" src="/images/art-creation.png">To believe in God, to trust in Christ, and to take Him at His word, by that very same word, you must believe that He created everything out of nothing. This is essentially to the faith of the Christian. There are no exceptions.
+To believe in God, to trust in Christ, and to take Him at His word, by that very same word, you must believe that He created everything out of nothing. This is essentially to the faith of the Christian. There are no exceptions.
 
 That is why the Apostles' Creed declares from the start:
 

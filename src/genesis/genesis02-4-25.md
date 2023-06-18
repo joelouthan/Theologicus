@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 2:4-25 Our Forever Righteousness
 
 ## The Word
@@ -28,7 +30,7 @@
 
 ## God
 
-<img class="intro-left" src="/images/art-creation.png">God is our forever righteousness.
+God is our forever righteousness.
 
 The way God designed, loved, and created all of mankind, his own creation, his own image, and Adam and Eve, his originally created son and daughter was in righteousness--that is, right-standing with him forever and ever.
 

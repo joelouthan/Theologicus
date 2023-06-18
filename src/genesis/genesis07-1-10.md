@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 7:1–10 The Gospel Certainty: The Salvation of God
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-creation.png">When you read Genesis 4 and 5, you might be tempted to follow the section headings within the chapters--The Line of Cain, The Line of Seth, so on and so forth.
+When you read Genesis 4 and 5, you might be tempted to follow the section headings within the chapters--The Line of Cain, The Line of Seth, so on and so forth.
 
 While extremely helpful, don't assume the section headings are inerrant and infallible--even our chapter and verse numbers were thought up by humans as a helpful way to remember the "address" of a particular passage in Scripture. What I mean is that what you see in the headings or cross-references are there to help along but that's not everything in the text.
 

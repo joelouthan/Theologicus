@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 8:15-22 The Gospel Certainty: The Promise of God
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-creation.png">Through judgment and wrath and righteousness and the holiness of God and his right decisions, the people of God who have put their faith, trust, believe, and obedience and yes, hope, in their Christ alone, will be saved.
+Through judgment and wrath and righteousness and the holiness of God and his right decisions, the people of God who have put their faith, trust, believe, and obedience and yes, hope, in their Christ alone, will be saved.
 
 ## The Word
 

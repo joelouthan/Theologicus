@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 3:14-24 The Gospel Proclaimed
 
 ## The Word
@@ -44,7 +46,7 @@
 >
 >22 The LORD God said, “Since the man has become like one of us, knowing good and evil, he must not reach out, take from the tree of life, eat, and live forever.” 23 So the LORD God sent him away from the garden of Eden to work the ground from which he was taken. 24 He drove the man out and stationed the cherubim and the flaming, whirling sword east of the garden of Eden to guard the way to the tree of life.
 
-## <img class="intro-left" src="/images/art-creation.png">God
+## God
 
 ### Christ is cursed for our sins
 

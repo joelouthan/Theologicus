@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 3:1-13 The Gospel Needed
 
 ## The Support
@@ -26,7 +28,7 @@
 
 ## God
 
-<img class="intro-left" src="/images/art-creation.png">In this particular study, I was tempted in breaking my usual template and wanted to step away from examining God first. But the more I read the passage,  the more we can see what the passage does proclaim God *in the light of the lies and the schemes of devil.*
+In this particular study, I was tempted in breaking my usual template and wanted to step away from examining God first. But the more I read the passage,  the more we can see what the passage does proclaim God *in the light of the lies and the schemes of devil.*
 
 In other words, the more you know God and his word, the more that your mind and heart can reject the lies of Satan and the philosophies of this world.
 

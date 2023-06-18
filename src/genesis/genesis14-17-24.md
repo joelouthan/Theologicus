@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 14:17-24 The Gospel Blessing
 
 ## The Text

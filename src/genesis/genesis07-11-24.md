@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 7:11-24 The Gospel Certainty: The Will of God
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-creation.png">Make no mistake: everybody who has a opinion of God is a theologian. The question remains are you a good or bad theologian.
+Make no mistake: everybody who has a opinion of God is a theologian. The question remains are you a good or bad theologian.
 
 "God doesn't exist." - that's a bad theologian. God does exist, he has made his eternal power obvious and divine nature obvious--or as the Apostle Paul puts it, "have been clearly seen" since the beginning of creation but you choose to suppress the truth so you can go your own way and not respond to the gospel commandments of the Lord Jesus Christ.
 

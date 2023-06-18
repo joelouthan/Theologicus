@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 13 The Gospel Life
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-creation.png">For no other reason other than God in his sovereign grace elects one man out of everybody else and gives this one man a promise:
+For no other reason other than God in his sovereign grace elects one man out of everybody else and gives this one man a promise:
 
 >Genesis 12:1–3 (CSB)  The LORD said to Abram: Go from your land, your relatives, and your father’s house to the land that I will show you. 2 I will make you into a great nation, I will bless you, I will make your name great, and you will be a blessing. 3 I will bless those who bless you, I will curse anyone who treats you with contempt, and all the peoples on earth will be blessed through you.
 

@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 14:1-16 The Gospel Rescue
 
 ## The Introduction

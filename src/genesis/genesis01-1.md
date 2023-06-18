@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 1:1 Our Forever Love
 
 ## The Word
@@ -10,7 +12,7 @@
 
 ## The Support
 
-<img class="intro-left" src="/images/art-creation.png">You would think that when you about to study Genesis, that the first study you are about to do is something about Creation. Almost. But to be honest, we are not just there yet.
+You would think that when you about to study Genesis, that the first study you are about to do is something about Creation. Almost. But to be honest, we are not just there yet.
 
 Before the heavens and the earth were formed, before the mountains took shape and the oceans were filled, before time and space were created, from everlasting to everlasting there is one God.
 

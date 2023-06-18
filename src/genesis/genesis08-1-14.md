@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 8:1-14 The Gospel Certainty: The Restoration of God
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-creation.png">The salvation of God can explained in a myriad of ways.
+The salvation of God can explained in a myriad of ways.
 
 Now, we know that God saves his people from their sins. That is Matthew 1:21.
 

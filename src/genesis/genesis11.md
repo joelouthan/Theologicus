@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 11 The Gospel Tongue
 
 ## The Word
@@ -6,7 +8,7 @@
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-creation.png">If you have been on this channel for longer than a minute, or better yet, if you have been to college or some sort of college prep high school, you should be no stranger to philosophy. Now for those of us who haven't done any of that, don't tap out on me just yet. Just stay the course. We will get through this. I promise you that you won't have any homework essays to do. Just stay with me.
+If you have been on this channel for longer than a minute, or better yet, if you have been to college or some sort of college prep high school, you should be no stranger to philosophy. Now for those of us who haven't done any of that, don't tap out on me just yet. Just stay the course. We will get through this. I promise you that you won't have any homework essays to do. Just stay with me.
 
 We read in the Paul's letter to the church in Colossae and his warning to them is the same warning to the church in America: 
 

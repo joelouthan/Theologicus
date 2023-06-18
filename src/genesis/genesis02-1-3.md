@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 2:1-3 Our Forever Rest
 
 ## The Word
@@ -12,7 +14,7 @@
 
 ### Two explicit commands were given to mankind before the Fall, only one of them is forever
 
-<img class="intro-left" src="/images/art-creation.png">While the command of not eating from a certain tree no longer applies to us, we are still to rest after six days of work because God rested after six days of work.
+While the command of not eating from a certain tree no longer applies to us, we are still to rest after six days of work because God rested after six days of work.
 
 God is Creator. We are his creation. We are to always obey our Creator. The call to obedience to God is always present: from Creation through the Garden through the Law all the way to the Gospel.
 

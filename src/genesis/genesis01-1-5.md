@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 1:1-5 Our Forever Wisdom
 
 ## The Word
@@ -16,7 +18,7 @@
 
 ## The Support
 
-<img class="intro-left" src="/images/art-creation.png">In the beginning, there was God. God made the heavens and the earth.
+In the beginning, there was God. God made the heavens and the earth.
 
 But all that God did was by his wisdom. God's wisdom was meant for all of creation for all time.
 

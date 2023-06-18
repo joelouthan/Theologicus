@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 4 The Gospel Meeting
 
 ## The Word
@@ -34,7 +36,7 @@
 >
 >25 Adam was intimate with his wife again, and she gave birth to a son and named him Seth, for she said, “God has given me another offspring in place of Abel, since Cain killed him.” 26 A son was born to Seth also, and he named him Enosh. At that time people began to call on the name of the LORD.
 
-## <img class="intro-left" src="/images/art-creation.png">God
+## God
 
 ### God meets us when we made us
 

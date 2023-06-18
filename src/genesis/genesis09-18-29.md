@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 9:18-29 The Gospel Certainty: The Glory of God
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-creation.png">We are here at the end of the story of Noah. We are completing his life here in Genesis.
+We are here at the end of the story of Noah. We are completing his life here in Genesis.
 
 We have seen him be spared and saved by the grace of God alone, declared righteous, blameless, and one who walked with God. We have seen him and his family walk through the greatest catastrophe on the earth that displayed the righteousness, holiness, wrath and judgment of the omniscient, omnipotent, and omnipresent God of the Universe. After that, we see God being with Noah and declaring an unbreakable promise that his wrath will not pour out like this any again.
 

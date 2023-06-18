@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 9:8-17 The Gospel Certainty: The Redemption of God
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-creation.png">It is one thing to wrap our minds around the continuous work of God in redemption. It is whole other thing to sit and think and meditate on the permeance of God's work in redemption.
+It is one thing to wrap our minds around the continuous work of God in redemption. It is whole other thing to sit and think and meditate on the permeance of God's work in redemption.
 
 What I mean is this: when we dwell on the promises of God especially when it comes to God saving us, I think things like salvation, adoption, calling, and even election can be understood simply--whether we believe it or not. With a careful bigger explanation, we can explain the work of Christ in atonement (Christ's payment for our sins), propitiation (Christ's wrath-absorbing death on the cross) and expiation (Christ's removal of our sins) pretty straightforward.
 

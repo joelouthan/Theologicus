@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 1:14-19 Our Forever Light
 
 ## The Word
@@ -8,7 +10,7 @@
 
 >Genesis 1:14-19 (CSB) Then God said, “Let there be lights in the expanse of the sky to separate the day from the night. They will serve as signs for seasons and for days and years. They will be lights in the expanse of the sky to provide light on the earth.” And it was so. God made the two great lights—the greater light to rule over the day and the lesser light to rule over the night—as well as the stars. God placed them in the expanse of the sky to provide light on the earth, to rule the day and the night, and to separate light from darkness. And God saw that it was good. Evening came and then morning: the fourth day.
 
-## <img class="intro-left" src="/images/art-creation.png">God
+## God
 
 ### From the beginning, when God made day and night, he was always the light and life of men
 

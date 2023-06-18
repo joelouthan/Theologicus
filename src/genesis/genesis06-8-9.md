@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-creation.png">
+
 # Genesis 6:8-9 The Gospel Certainty: The Grace of God
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-creation.png">Genesis chapters 3 through the beginning of 6 starts to unveil and unravel the destructive nearly unceasing power of sin and corruptness. Our wickedness and transgression against the Holy God was not without the most severe consequences. To call it, "consequences", is an understatement. The best phrase I have heard said, "the breaking of the cosmos".
+Genesis chapters 3 through the beginning of 6 starts to unveil and unravel the destructive nearly unceasing power of sin and corruptness. Our wickedness and transgression against the Holy God was not without the most severe consequences. To call it, "consequences", is an understatement. The best phrase I have heard said, "the breaking of the cosmos".
 
 Do you think that something in space and time didn't break? Could you even imagine when sin came into our existence, that the departure of the spirit, the cracking of the mind, the depletion of strength, hardening of the heart, and the infection of the will?
 
