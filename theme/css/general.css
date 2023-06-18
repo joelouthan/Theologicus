@@ -103,10 +103,6 @@ h6:target::before {
 .content a { text-decoration: none; }
 .content a:hover { text-decoration: underline; }
 .content img, .content video { 
-    margin-right: 15px;
-    margin-bottom: 10px;
-    width: 100px;
-    float: left;
 }
 .content .header:link,
 .content .header:visited {
@@ -122,6 +118,12 @@ bgy {
   color: black;
 }
 
+.contact-info img {
+  margin: 0rem 0;
+  float: left;
+  border-radius: 4px;
+}
+
 .intro-left {
   border-radius: 10px;
   float: left !important;
@@ -134,6 +136,56 @@ bgy {
   margin-left: 15px !important;
   margin-right: 0px !important;
   float: right !important;
+}
+
+.profile-pic {
+  float: left;
+  padding-right: 20px !important;
+  padding-left: 20px !important;
+  margin: 0rem 0 !important;
+  border-radius: 50% !important;
+  width: 100px;
+}
+
+.logos-certs {
+  display: flex;
+  align-items: flex-start;
+  vertical-align: top;
+  flex-direction: column;
+  margin: auto;
+  padding: 0px;
+  text-align: center;
+}
+
+.logos-certs a {
+  text-decoration: none !important;
+  border: 0px !important;
+  outline: none;
+  border-width: 0px;
+  outline-width: 0px;
+  border-bottom: none;
+  box-shadow: 0 0px;
+}
+
+.logos-certs img {
+  margin: 0rem 0;
+  margin-left: 5px;
+  width: 60px;
+  height: 60px;
+}
+
+.text-resume {
+  flex: 1;
+  margin-left: 20px;
+}
+
+.contact-info img {
+  margin: 0rem 0;
+}
+
+.container-resume {
+  display: flex;
+  align-items: flex-start;
 }
 
 table {

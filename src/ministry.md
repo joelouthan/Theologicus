@@ -1,49 +1,17 @@
-# Ministry Resume
+# Joseph Louthan
 
-<style>
+<img class="profile-pic" src="/images/jlouthan-ai-starry-back-500-01.png">
 
-.contact-info img {
-  margin: 0rem 0;
-}
+<div class="contact-info">
 
-.container {
-  display: flex;
-  align-items: flex-start;
-}
+  [![Cell](https://img.shields.io/badge/SMS-joseph-437790?style=for-the-badge&logo=Apple)](sms:8177071486)[![Email](https://img.shields.io/badge/Email-joseph-success?style=for-the-badge&logo=Minutemailer)](mailto:joe@theologic.us)[![GitHub](https://img.shields.io/badge/GitHub-joseph-171515?style=for-the-badge&logo=GitHub)](https://github.com/joelouthan)[![LinkedIn](https://img.shields.io/badge/linkedin-joelouthan-0C66C2?style=for-the-badge&logo=linkedin)](https://linkedin.com/in/joelouthan)[![Twitter](https://img.shields.io/badge/Twitter-josephlouthan-blue?style=for-the-badge&logo=twitter)](https://twitter.com/josephlouthan)
+  [![StarCraft 2](https://img.shields.io/badge/StarCraft%202-Nachoz-80A6C6?style=for-the-badge)](https://starcraft2.com/en-us/profile/1/1/9753175)
 
-.text {
-  flex: 1;
-  margin-left: 20px;
-}
+</div>
 
-.logos {
-  display: flex;
-  align-items: flex-start;
-  vertical-align: top;
-  flex-direction: column;
-  margin: auto;
-  padding: 0px;
-  text-align: center;
-}
+<p style="clear:both;">
 
-.logos a {
-  text-decoration: none !important;
-  border:0px !important;
-  outline: none;
-  border-width: 0px;
-  outline-width:0px;
-  border-bottom: none;
-  box-shadow: 0 0px;
-}
-
-.logos img {
-  margin: 0rem 0;
-  margin-left: 5px;
-  width: 60px;
-  height: 60px;
-}
-
-</style>
+## About
 
 Trying to waste my time with God. Preacher of the Gospel. Writing at Theologicus. StarCraft 2 Elderly.
 
@@ -51,40 +19,13 @@ Trying to waste my time with God. Preacher of the Gospel. Writing at Theologicus
 >
 >Samuel Rutherford.
 
-## About
+<p style="clear:both;">
 
-<img style="float:left; padding-right: 20px; padding-left: 20px; margin: 0rem 0; border-radius: 50%" src="/images/jlouthan-ai-starry-back-500-01.png" width="75">
-
-<div class="contact-info">
-  <a href="sms:8177071486" target="_blank">
-    <img src="https://img.shields.io/badge/SMS-joseph-437790?style=for-the-badge&logo=Apple">
-  </a>
-
-  <a href="mailto:joe@theologic.us" target="_blank">
-    <img src="https://img.shields.io/badge/Email-joseph-success?style=for-the-badge&logo=Minutemailer">
-  </a>
-
-  <a href="https://github.com/joelouthan" target="_blank">
-    <img src="https://img.shields.io/badge/GitHub-joseph-171515?style=for-the-badge&logo=GitHub">
-  </a>
-
-  <a href="https://linkedin.com/in/joelouthan" target="_blank">
-    <img src="https://img.shields.io/badge/linkedin-joelouthan-0C66C2?style=for-the-badge&logo=linkedin">
-  </a>
-
-  <a href="https://starcraft2.com/en-us/profile/1/1/9753175" target="_blank">
-    <img src="https://img.shields.io/badge/StarCraft%202-Nachoz-80A6C6?style=for-the-badge">
-  </a>
-
-</div>
-
-<hr style="clear:both;">
-
-### MINISTRY VISION
+## MINISTRY VISION
 
 Seeking to glorify Christ by serving his Bride, first and foremost, by preaching and teaching his word. My desire is to serve your church as either in Pulpit Supply and/or Interim Pastor in a bi-vocational capacity. I do this by faithfully preaching Christ crucified, teaching the Scriptures, and under-shepherd your congregation until God provides you with your next pastor.
 
-#### THE GOSPEL of CHRIST
+### THE GOSPEL of CHRIST
 
 The gospel is the good news that God looked upon me as a wicked, depraved, weak sinner and sent his Son to live and die so that I might be truly alive and free by the power of his Spirit.
 
@@ -104,11 +45,11 @@ This is the gospel of Christ that I must preach so that all may know the love of
 
 >Acts 4:12 (CSB) There is salvation in no one else, for there is no other name under heaven given to people by which we must be saved.”
 
-### PERSONAL
+## PERSONAL
 
 Born on May 17, 1975, in Fort Worth, TX. My home is in Versailles, KY with my wife, Sarah, and our two kids, Elijah, and Ivy. Also, my in-laws live with us, Cherri and Jason. My oldest son, Yusef, lives in Norman, OK.
 
-### TESTIMONY
+## TESTIMONY
 
 I came to saving faith when the Almighty God came down, took my heart, and in exchange, gave me His heart, and His Spirit.
 
@@ -168,65 +109,59 @@ It stands to reason: if God could save a wretch like me, then no one is outside 
 
 It is like I ask my kids, "Does God have T-Rex arms?" Of course He doesn't. He is the mighty one who saves.
 
-### DOCTRINAL STATEMENT
+## DOCTRINAL STATEMENT
 
-I am Creedal and abide in the [Apostles' Creed](/series/doctrine-apostles-creed/), Nicene, Chalcedonian, and Athanasian Creed.
+I am Creedal and abide in the [Apostles' Creed](/creed-apostles/apostles.md), Nicene, Chalcedonian, and Athanasian Creed.
 
-I am Confessional and confess the 1689 Second London Baptist Confession. My exposition of the 1689 Confession is [here](/confession-1689/1689-0-1-confession-introduction.md).
+I am Confessional and confess the 1689 Second London Baptist Confession. My exposition of the 1689 Confession is [here](/confession-1689/1689-00.md).
 
 To that end, I am a Reformed Baptist and therefore, credobaptist. My local church, [Reforming Truth Church](https://reformingtruth.church/), will be a part of the [Grace Reformed Network](https://gracereformednetwork.org/).
 
-### MINISTRY EXPERIENCE
+## MINISTRY EXPERIENCE
 
-#### Reforming Truth Church, Lexington, KY (2022 to Present)
+### Reforming Truth Church, Lexington, KY (2022 to Present)
 
-Layperson 
+- Member
+- Bible Study Teacher
+- Technology 
 
-#### Frontline Church South, Oklahoma City, OK (2019-2022)
+### Frontline Church South, Oklahoma City, OK (2019-2022)
 
-Intern, Community
-
-Layperson
-
+- Intern, Community
+- Covenant Member
 - Bible Study Teacher
 - Small Group Leader
 - Children’s Teacher
 - Worship Presentation
 
-#### Antioch Community Church, Norman, OK (2017-2019)
+### Antioch Community Church, Norman, OK (2017-2019)
 
-Assistant to the Senior Pastor
-
-Layperson:
-
+- Assistant to the Senior Pastor
+- Member
 - Bible Study Teacher
 - Small Group Leader
 - Children’s Teacher
 
-#### Catch the Fire Ministries, Bedford, TX (2015-2017)
+### Catch the Fire Ministries, Bedford, TX (2015-2017)
 
-Layperson
-
+- Member
 - Children’s Teacher
 
-#### The City Church, Fort Worth, TX (2014-2015)
+### The City Church, Fort Worth, TX (2014-2015)
 
-Layperson
-
+- Member
 - Mentored by Ben Connelly, Senior Pastor
 
-#### Gateway Church, Southlake, TX (2007-2014)
+### Gateway Church, Southlake, TX (2007-2014)
 
-Intern, Leadership & Discipleship
-
-Layperson
-
-- Embrace Grace (crisis pregnancy ministry) leader
+- Intern: Leadership & Discipleship Ministries
+- Member
+- Embrace Grace (Crisis Pregnancy Ministry) Leader
 - Bible Study Teacher
 - Small Group Leader
 - Mentored by Alan Smith, Pastor of Leadership & Discipleship
 
-### VOCATIONAL EXPERIENCE
+## VOCATIONAL EXPERIENCE
 
 Technical Project Manager at Red Hat (2019-Now)
 
@@ -234,69 +169,69 @@ Information Technology Administrator & Manager (1996-2019)
 
 United States Air Force (1993-1996)
 
-### MINISTRY DEVELOPMENT
+## MINISTRY DEVELOPMENT
 
-#### Interim Pastor Training
+### Interim Pastor Training
 
 Kentucky Baptist Convention  
 Louisville, KY  
 July 2022
 
-#### The Institute for Expository Preaching (2021)
+### The Institute for Expository Preaching (2021)
 
 Dr. Steven J. Lawson  
 Oklahoma City, OK  
 August 2021
 
-#### Internship, Frontline Church
+### Internship, Frontline Church
 
 Frontline Church  
 Oklahoma City, OK  
 September 2020 to May 2021
 
-#### The Institute for Expository Preaching (2019)
+### The Institute for Expository Preaching (2019)
 
 Dr. Steven J. Lawson  
 Oklahoma City, OK  
 October 2019
 
-#### On Preaching
+### On Preaching
 
 Matt Chandler  
 Acts 29 Regional  
 2010
 
-#### The Doctrine of God
+### The Doctrine of God
 
 Dr. Sinclair Ferguson  
 Reformed Theological Seminary  
 Dallas, TX  
 January to May 2010
 
-#### The Need for Evangelism
+### The Need for Evangelism
 
 Desiring God 2009 Conference for Pastors  
 Minneapolis, MN  
 February 2009
 
-#### Internship, Gateway Church
+### Internship, Gateway Church
 
 Leadership & Discipleship Ministry  
 Gateway Church  
 January to August 2009
 
-### SKILLS
+## SKILLS
 
 Expository preaching and teaching  
 Writing  
 Project Management
 
-### WRITINGS
+## WRITINGS
 
-Everything is located here at [Theologicus](https://theologic.us).
+Completed works and works in progress can be found at [Theologicus](https://theologic.us).
 
 ---
 
-### REFERENCES
+## REFERENCES
 
 *To protect the privacy of my references, their contact information can be provided upon request*

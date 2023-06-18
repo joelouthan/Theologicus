@@ -1,52 +1,20 @@
 # Joseph Louthan
 
-<style>
+<img class="profile-pic" src="/images/jlouthan-ai-starry-back-500-01.png">
 
-.contact-info img {
-  margin: 0rem 0;
-}
+<div class="contact-info">
 
-.container {
-  display: flex;
-  align-items: flex-start;
-}
+  [![Cell](https://img.shields.io/badge/SMS-joseph-437790?style=for-the-badge&logo=Apple)](sms:8177071486)[![Email](https://img.shields.io/badge/Email-joseph-success?style=for-the-badge&logo=Minutemailer)](mailto:joe@theologic.us)[![GitHub](https://img.shields.io/badge/GitHub-joseph-171515?style=for-the-badge&logo=GitHub)](https://github.com/joelouthan)[![LinkedIn](https://img.shields.io/badge/linkedin-joelouthan-0C66C2?style=for-the-badge&logo=linkedin)](https://linkedin.com/in/joelouthan)[![Twitter](https://img.shields.io/badge/Twitter-josephlouthan-blue?style=for-the-badge&logo=twitter)](https://twitter.com/josephlouthan)
+  [![StarCraft 2](https://img.shields.io/badge/StarCraft%202-Nachoz-80A6C6?style=for-the-badge)](https://starcraft2.com/en-us/profile/1/1/9753175)
 
-.text {
-  flex: 1;
-  margin-left: 20px;
-}
+</div>
 
-.logos {
-  display: flex;
-  align-items: flex-start;
-  vertical-align: top;
-  flex-direction: column;
-  margin: auto;
-  padding: 0px;
-  text-align: center;
-}
+<p style="clear:both;">
 
-.logos a {
-  text-decoration: none !important;
-  border:0px !important;
-  outline: none;
-  border-width: 0px;
-  outline-width:0px;
-  border-bottom: none;
-  box-shadow: 0 0px;
-}
+## Summary
 
-.logos img {
-  margin: 0rem 0;
-  margin-left: 5px;
-  width: 60px;
-  height: 60px;
-}
-
-</style>
-
-<div class="container">
-    <div class="logos">
+<div class="container-resume">
+    <div class="logos-certs">
       <a href="https://bcert.me/sqqjyozaw" target="_blank">
         <img src="/images/logo-csm.png" alt="Certified Scrum Master">
       </a>
@@ -54,7 +22,7 @@
         <img src="/images/logo-safe6-sa.png" alt="Certified SAFe 6 Agilist">
       </a>
   </div>
-  <div class="text">
+  <div class="text-resume">
     Nearly 30 years IT experience<br>
     Technical Project Manager, Ansible Enthusiast, Rust Newbie<br>
     <a href="https://bcert.me/sqqjyozaw" target="_blank">Certified Scrum Master</a> & <a href="https://www.credly.com/badges/43000dae-5ec9-42f5-9059-8c569c278e29/public_url" target="_blank">Certified SAFe 6 Agilist</a><br>
@@ -64,38 +32,13 @@
   </div>
 </div>
 
-## Contact
+<p style="clear:both;">
 
-<img style="float:left; padding-right: 20px; padding-left: 20px; margin: 0rem 0; border-radius: 50%" src="https://theologic.us/images/jlouthan-ai-starry-back-500-01.png" width="75px">
-
-<div class="contact-info">
-  <a href="sms:8177071486" target="_blank">
-    <img src="https://img.shields.io/badge/SMS-Joseph-437790?style=for-the-badge&logo=Apple">
-  </a>
-
-  <a href="mailto:joe@theologic.us" target="_blank">
-    <img src="https://img.shields.io/badge/Email-joseph-success?style=for-the-badge&logo=Minutemailer">
-  </a>
-
-  <a href="https://github.com/joelouthan" target="_blank">
-    <img src="https://img.shields.io/badge/GitHub-joelouthan-171515?style=for-the-badge&logo=GitHub">
-  </a>
-
-  <a href="https://linkedin.com/in/joelouthan" target="_blank">
-    <img src="https://img.shields.io/badge/linkedin-joelouthan-0C66C2?style=for-the-badge&logo=linkedin">
-  </a>
-
-  <a href="https://starcraft2.com/en-us/profile/1/1/9753175" target="_blank">
-    <img src="https://img.shields.io/badge/StarCraft%202-Nachoz-80A6C6?style=for-the-badge">
-  </a>
-
-</div>
-
-<hr style="clear:both;">
-
-## Technical Project Manager
+## Current Experience
 
 ### Red Hat, Jul 2019-Now
+
+**Technical Project Manager**
 
 Noteworthy Projects include but not limited to:
 
@@ -151,9 +94,11 @@ Noteworthy Projects include but not limited to:
 
 ---
 
-## Linux Systems Administrator
+## Previous Experiences
 
 ### Mirum Agency, Jun 2015 - Jul 2019
+
+**Senior DevOps Engineer**
 
 - Configuration management experience with Ansible as an implemented and administered solution
 - In addition, using Ansible, conducted regular General Computer Checks (GCC) to assess the security posture and overall health of IT systems, including review of security policies and procedures, scanning for vulnerabilities, analyzing monitoring data for potential security incidents, reviewing user access controls, assessing data backup and recovery procedures, and reviewing physical security measures.
@@ -164,45 +109,65 @@ Noteworthy Projects include but not limited to:
 
 ### Apptricity, Oct 2014 - Jun 2015
 
+**Senior Systems Administrator**
+
 - Successfully completed large-scale implementation and upgrade projects for PCI-DSS compliance, Active Directory (AD) upgrades, and implementation of JIRA, Nagios, and Fortinet to improve system performance and security.
 - Maintained day-to-day administration of critical systems, including Apache Tomcat, HTTP Proxy, KVM, and Chef, and developed and implemented bash scripts to automate tasks and improve efficiency.
 - Proficient in cloud environments, including Azure, Amazon Web Services (AWS), Internap, and Openstack, and adept at configuring, deploying, and managing cloud infrastructure to support business needs.
 
 ### Dell, Nov 2012 - Oct 2014
 
+**Senior Systems Administrator**
+
 - Led a team of internal UNIX PCI auditors to prepare for official PCI Audit for Dell@Hilton, including assessing twelve categories of compliance for four UNIX types through bash shell scripts, coordinating and assigning changes to steady state team for remediation, and documenting time for Certified Information Systems Auditor (CISA) certification.
 - Served as team lead for 300+ RHEL, Solaris, and AIX servers for Dell CoreLogic Operational Transition Team, implementing best practices such as policy manuals and standard operating procedures, training in OPAS (Remedy), processes, procedures, inventory, KACE, monitoring, storage, and backup, and executing successful physical-to-virtual (VMware vCenter) and geographic relocation of data centers.
 
 ### IBM, Feb 2012 - Dec 2012
+
+**Senior Systems Administrator**
 
 - Provided final level of support for 500 Mac OS X, Linux (RHEL, SuSE, Gentoo), and AIX servers, engineering and configuring new virtual AIX and RHEL/CentOS environments, and migrating AIX and Linux servers to virtual environments running IBM HMC 7.3.0 and VMWare VCenter Server 5.0, respectively.
 - Demonstrated expertise in resolving disaster recovery issues for Linux servers running CA ESP System Agent, ensuring compliance for all Linux and Mac servers, and conducting day-to-day administration and migration projects using bash shell scripting. Also provided hardware support for System i servers, RAID, SAN, and networking to maintain optimal performance, uptime, capacity, and security.
 
 ### Vertis Communications, Oct 2010 - Jan 2012
 
+**Senior Systems Administrator**
+
 - Delivered exceptional end-user support to 5000+ Mac and Windows users, wrote IT articles, and projected yearly budgets.
 
 ### Apple, Jun - Oct 2010
+
+**Business Specialist**
 
 - Generated $350,000+ in retail sales by providing customers with complete Mac-based solutions, and served as the Mac OS X Server expert for the business team at Apple Retail.
 
 ### Think Fixed, Jan 2008 - May 2010
 
+**Senior Systems Administrator**
+
 - Designed and deployed Linux, Mac, and Windows solutions for infrastructure providers, including SAN for video editing and web development servers using RHEL.
 
 ### Digital Works, Aug 2007 - Dec 2007
+
+**Senior Systems Administrator**
 
 - Conducted security audit for KwaZulu-Natal government using Nessus, GFI Languard, Helix, Wireshark, Airmagnet, EnCase, Forensic Toolkit, Acronis, and bash scripting.
 
 ### Click Here, Nov 2005 - Jul 2007
 
+**Senior Systems Administrator**
+
 - Managed 50+ Linux servers integrated into Windows AD; migrated ASP.NET to open source web solutions.
 
 ### Layered Technologies, Oct 2004 - Nov 2005
 
+**Senior Systems Administrator**
+
 - Managed 50,000 standalone Linux-based servers, built and deployed 30 servers per day, and managed a team of 15 employees in Tech Support, Data Entry, and Development.
 
 ### Microsoft, May - Oct 2004
+
+**Global Developer Support**
 
 - Provided comprehensive support for Internet Information Services across operating systems, including developer, performance, security, and integration issues
 
@@ -220,29 +185,35 @@ Noteworthy Projects include but not limited to:
 
 ### Invision Marketing Group 2001-02
 
+**Systems Administrator**
+
 - Supported and administered a network infrastructure for an advertising and marketing firm
 
 ### HP 2000-01
+
+**Systems Administrator**
 
 - Supported and provided technical assistance for a web-based developer community as a Systems Administrator and Technical Support. Administered a network of 10 Linux servers and implemented backup procedures, tape maintenance, backup scheduling, and file and system recovery. Took the lead in enhancing security measures, including physical access controls, password improvements, and hardening techniques. 
 
 ### Virtuoso 1996-2000
 
+**Systems Administrator**
+
 - Finished my tenure as a Systems Administrator overseeing Windows, Novell, Solaris, AIX, and Linux servers
 
 ### PrimeCo 1996
 
-- Desktop Support for Windows 95 and Windows NT Workstations
+**Customer Support**
 
-## Combat Photographer
+- Desktop Support for Windows 95 and Windows NT Workstations
 
 ### United States Air Force 1993-96
 
-Still Photographer
+**Still Photographer**
 
 ## Skills
 
-Agile, Atlassian, Scaled, Agile, Trello, Salesforce, Jira, Excel, Sheets, VS Code, git, Markdown, GitHub, AsciiDoc, CICD, Linux, Ansible, OpenShift, Hugo
+Agile, Atlassian, Scaled, Agile, Trello, Salesforce, Jira, Excel, Sheets, VS Code, git, Markdown, GitHub, AsciiDoc, CICD, Linux, DevOps, AWS, Azure, Ansible, OpenShift, Hugo, Rust
 
 ## Education
 
