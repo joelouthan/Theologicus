@@ -1,8 +1,10 @@
-# The Communion of Saints
+<img class="intro-right" src="/images/art-apostles-creed.png">
+
+# The Apostles' Creed: The Communion of Saints
 
 ## The Creed
 
-><img class="intro-right" src="/images/art-apostles-creed.png">I believe in God, the Father Almighty,  
+>I believe in God, the Father Almighty,  
 >the Creator of heaven and earth,  
 >and in Jesus Christ, His only Son, our Lord:  
 >Who was conceived of the Holy Spirit,  

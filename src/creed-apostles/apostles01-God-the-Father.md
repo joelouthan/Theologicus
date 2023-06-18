@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-apostles-creed.png">
+
 # The Apostles' Creed: I Believe in God the Father Almighty
 
 ## The Creed
 
-><img class="intro-right" src="/images/art-apostles-creed.png"><bgy> **I believe in God, the Father Almighty,** </bgy>  
+><bgy> **I believe in God, the Father Almighty,** </bgy>  
 >the Creator of heaven and earth,  
 >and in Jesus Christ, His only Son, our Lord:  
 >Who was conceived of the Holy Spirit,  
