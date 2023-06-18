@@ -1,4 +1,4 @@
-# <img class="intro-left" src="/images/art-paris-psalter.jpg">Praying Through Psalms, An Introduction & Recommendations
+# Praying Through Psalms, An Introduction & Recommendations<img class="intro-right" src="/images/art-paris-psalter.jpg">
 
 ## The Introduction
 
