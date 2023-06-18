@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 55 (CSB)  >
+>Psalm 55 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> For the choir director: with stringed instruments. A Maskil of David. 
 >
 ><sup>1</sup> God, listen to my prayer and do not hide from my plea for help. 

@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 83 (CSB)  
+>Psalm 83 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">    
 > A song. A psalm of Asaph. 
 >
 ><sup> 1 </sup> God, do not keep silent. Do not be deaf, God; do not be quiet. 

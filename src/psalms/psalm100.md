@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 100 (CSB)  >
+>Psalm 100 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> A psalm of thanksgiving. 
 >
 ><sup>1</sup> Let the whole earth shout triumphantly to the LORD! 

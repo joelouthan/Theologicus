@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 33:6 (CSB) The heavens were made by the word of the LORD, and all the stars, by the breath of his mouth.
+>Psalm 33:6 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   The heavens were made by the word of the LORD, and all the stars, by the breath of his mouth.
 
 ## The Prayer
 

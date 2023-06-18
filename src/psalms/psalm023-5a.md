@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 23:5a (CSB) You prepare a table before me in the presence of my enemies
+>Psalm 23:5a (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   You prepare a table before me in the presence of my enemies
 
 ## The Prayer
 

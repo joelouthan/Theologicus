@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 34 (CSB)  >
+>Psalm 34 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup>7</sup> The angel of the LORD encamps around those who fear him, and rescues them. 
 
 ## The Prayer

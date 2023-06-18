@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 23:4b (CSB) I fear no danger
+>Psalm 23:4b (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   I fear no danger
 
 ## The Prayer
 

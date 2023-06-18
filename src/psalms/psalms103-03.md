@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 103:3 (CSB) He forgives all your iniquity; he heals all your diseases. 
+>Psalm 103:3 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   He forgives all your iniquity; he heals all your diseases. 
 
 ## The Prayer
 

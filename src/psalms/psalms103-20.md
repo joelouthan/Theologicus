@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 103:20 (CSB) Bless the LORD, all his angels of great strength, who do his word, obedient to his command. 
+>Psalm 103:20 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   Bless the LORD, all his angels of great strength, who do his word, obedient to his command. 
 
 ## The Prayer
 

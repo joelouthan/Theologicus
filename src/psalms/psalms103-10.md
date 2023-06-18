@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 103:10 (CSB) He has not dealt with us as our sins deserve or repaid us according to our iniquities. 
+>Psalm 103:10 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   He has not dealt with us as our sins deserve or repaid us according to our iniquities. 
 
 ## The Prayer
 

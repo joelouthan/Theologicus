@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 34:3 (CSB)  >
+>Psalm 34:3 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup>3</sup> Proclaim the LORD’s greatness with me; let us exalt his name together.
 
 ## The Prayer

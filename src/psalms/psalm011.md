@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 11 (CSB)  >
+>Psalm 11 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> For the choir director. Of David. 
 >
 ><sup>1</sup> I have taken refuge in the LORD. How can you say to me, “Escape to the mountains like a bird! 

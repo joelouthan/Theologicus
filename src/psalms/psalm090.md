@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 90 (CSB)  
+>Psalm 90 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">    
 > A prayer of Moses, the man of God. 
 >
 ><sup> 1  </sup>Lord, you have been our refuge in every generation. 

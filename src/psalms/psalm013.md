@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 13 (CSB)  >
+>Psalm 13 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> For the choir director. A psalm of David. 
 >
 ><sup>1</sup> How long, LORD? Will you forget me forever? How long will you hide your face from me? 

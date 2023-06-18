@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 23:6a (CSB) Only goodness
+>Psalm 23:6a (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   Only goodness
 
 ## The Prayer
 

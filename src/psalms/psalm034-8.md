@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 34 (CSB)  >
+>Psalm 34 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup>8</sup> Taste and see that the LORD is good. How happy is the person who takes refuge in him! 
 
 ## The Prayer

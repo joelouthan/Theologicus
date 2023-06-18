@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 94 (CSB)  >
+>Psalm 94 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup> 1  </sup>LORD, God of vengeance— God of vengeance, shine! 
 >
 ><sup> 2  </sup>Rise up, Judge of the earth; repay the proud what they deserve. 

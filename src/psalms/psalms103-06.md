@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 103:6 (CSB) The LORD executes acts of righteousness and justice for all the oppressed. 
+>Psalm 103:6 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   The LORD executes acts of righteousness and justice for all the oppressed. 
 
 ## The Prayer
 

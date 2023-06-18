@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 37 (CSB)  >
+>Psalm 37 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup>4</sup> Take delight in the LORD, and he will give you your heart’s desires. 
 
 ## The Prayer

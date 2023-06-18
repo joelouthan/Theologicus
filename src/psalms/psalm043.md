@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 43 (CSB)  >
+>Psalm 43 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup>1</sup> Vindicate me, God, and champion my cause against an unfaithful nation; rescue me from the deceitful and unjust person. 
 >
 ><sup>2</sup> For you are the God of my refuge. Why have you rejected me? Why must I go about in sorrow because of the enemy’s oppression? 

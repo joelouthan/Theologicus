@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 37 (CSB)  >
+>Psalm 37 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup>7</sup> Be silent before the LORD and wait expectantly for him; do not be agitated by one who prospers in his way, by the person who carries out evil plans. 
 
 ## The Prayer

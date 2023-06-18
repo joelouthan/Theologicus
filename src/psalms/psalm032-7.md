@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 32:7 (CSB) You are my hiding place; you protect me from trouble. You surround me with joyful shouts of deliverance. Selah
+>Psalm 32:7 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   You are my hiding place; you protect me from trouble. You surround me with joyful shouts of deliverance. Selah
 
 ## The Prayer
 

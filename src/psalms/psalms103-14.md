@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 103:14 (CSB) For he knows what we are made of, remembering that we are dust. 
+>Psalm 103:14 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   For he knows what we are made of, remembering that we are dust. 
 
 ## The Prayer
 

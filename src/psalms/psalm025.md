@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 25 (CSB)  >
+>Psalm 25 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> Of David. 
 >
 ><sup>1</sup> LORD, I appeal to you. 

@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 44 (CSB)  >
+>Psalm 44 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> For the choir director. A Maskil of the sons of Korah. 
 >
 ><sup>1</sup> God, we have heard with our ears— our ancestors have told us— the work you accomplished in their days, in days long ago: 

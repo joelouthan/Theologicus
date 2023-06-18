@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 33:9 (CSB) For he spoke, and it came into being; he commanded, and it came into existence.
+>Psalm 33:9 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   For he spoke, and it came into being; he commanded, and it came into existence.
 
 ## The Prayer
 

@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 103:19 (CSB) The LORD has established his throne in heaven, and his kingdom rules over all. 
+>Psalm 103:19 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   The LORD has established his throne in heaven, and his kingdom rules over all. 
 
 ## The Prayer
 

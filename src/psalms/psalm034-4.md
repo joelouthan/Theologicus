@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 34 (CSB)  >
+>Psalm 34 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup>4</sup> I sought the LORD, and he answered me and rescued me from all my fears. 
 
 ## The Prayer

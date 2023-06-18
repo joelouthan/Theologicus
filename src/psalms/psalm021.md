@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 21 (CSB)  >
+>Psalm 21 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> For the choir director. A psalm of David. 
 >
 ><sup>1</sup> LORD, the king finds joy in your strength. How greatly he rejoices in your victory! 

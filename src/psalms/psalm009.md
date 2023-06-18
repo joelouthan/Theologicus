@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 9 (CSB)  >
+>Psalm 9 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> For the choir director: according to Muth-labben. A psalm of David. 
 >
 ><sup>1</sup> I will thank the LORD with all my heart; I will declare all your wondrous works. 

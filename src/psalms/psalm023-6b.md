@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 23:6b (CSB) faithful love
+>Psalm 23:6b (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   faithful love
 
 ## The Prayer
 

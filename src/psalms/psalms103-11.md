@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 103:11 (CSB) For as high as the heavens are above the earth, so great is his faithful love toward those who fear him. 
+>Psalm 103:11 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   For as high as the heavens are above the earth, so great is his faithful love toward those who fear him. 
 
 ## The Prayer
 

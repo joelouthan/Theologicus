@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 97 (CSB)  >
+>Psalm 97 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup> 1  </sup>The LORD reigns! Let the earth rejoice; let the many coasts and islands be glad. 
 >
 ><sup> 2  </sup>Clouds and total darkness surround him; righteousness and justice are the foundation of his throne. 

@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 36 (CSB)  >
+>Psalm 36 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup>5</sup> LORD, your faithful love reaches to heaven, your faithfulness to the clouds. 
 
 ## The Prayer

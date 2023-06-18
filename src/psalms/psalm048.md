@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 48 (CSB)  >
+>Psalm 48 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> A song. A psalm of the sons of Korah. 
 >
 ><sup>1</sup> The LORD is great and highly praised in the city of our God. His holy mountain, 

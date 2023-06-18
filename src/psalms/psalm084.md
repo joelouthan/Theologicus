@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 84 (CSB)
+>Psalm 84 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 >For the choir director: on the Gittith. A psalm of the sons of Korah. 
 >
 ><sup> 1 </sup> How lovely is your dwelling place, LORD of Armies. 

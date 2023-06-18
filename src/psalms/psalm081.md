@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 81 (CSB)  >
+>Psalm 81 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup> 1  </sup>Sing for joy to God our strength; shout in triumph to the God of Jacob.
 >
 ><sup> 2  </sup>Lift up a song—play the tambourine, the melodious lyre, and the harp.

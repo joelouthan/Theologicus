@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 34 (CSB)  >
+>Psalm 34 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup>5</sup> Those who look to him are radiant with joy; their faces will never be ashamed. 
 
 ## The Prayer

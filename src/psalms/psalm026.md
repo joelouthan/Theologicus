@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 26 (CSB)  >
+>Psalm 26 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> Of David. 
 >
 ><sup>1</sup> Vindicate me, LORD, because I have lived with integrity and have trusted in the LORD without wavering. 

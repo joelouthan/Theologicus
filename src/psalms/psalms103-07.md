@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 103:7 (CSB) He revealed his ways to Moses, his deeds to the people of Israel. 
+>Psalm 103:7 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   He revealed his ways to Moses, his deeds to the people of Israel. 
 
 ## The Prayer
 

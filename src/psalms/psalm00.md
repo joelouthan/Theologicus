@@ -2,7 +2,9 @@
 
 ## The Introduction
 
-<img class="intro-left" src="/images/logo-theologicus3.png">I hope to write a commentary on the Psalms. In the meantime, I will pray through them.
+<img class="intro-left" src="/images/art-paris-psalter.jpg">I hope to write a commentary on the Psalms. In the meantime, I will pray through them.
+
+<hr style="clear:both;">
 
 ## It Goes Without Say
 

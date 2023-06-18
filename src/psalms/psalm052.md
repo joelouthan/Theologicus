@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 52 (CSB)  >
+>Psalm 52 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> For the choir director. A Maskil of David. When Doeg the Edomite went and reported to Saul, telling him, “David went to Ahimelech’s house.” 
 >
 ><sup>1</sup> Why boast about evil, you hero! God’s faithful love is constant. 

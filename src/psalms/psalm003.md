@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 3 (CSB)  >
+>Psalm 3 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> A psalm of David when he fled from his son Absalom. 
 >
 ><sup>1</sup> LORD, how my foes increase! There are many who attack me. 

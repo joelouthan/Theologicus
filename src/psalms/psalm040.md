@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 40 (CSB)  >
+>Psalm 40 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> For the choir director. A psalm of David. 
 >
 ><sup>1</sup> I waited patiently for the LORD, and he turned to me and heard my cry for help. 

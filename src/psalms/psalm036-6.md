@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 36 (CSB)  >
+>Psalm 36 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup>6</sup> Your righteousness is like the highest mountains, your judgments like the deepest sea. LORD, you preserve people and animals. 
 
 ## The Prayer

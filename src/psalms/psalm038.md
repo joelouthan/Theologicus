@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 38 (CSB)  >
+>Psalm 38 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> A psalm of David to bring remembrance. 
 >
 ><sup>1</sup> LORD, do not punish me in your anger or discipline me in your wrath. 

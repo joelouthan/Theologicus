@@ -1,7 +1,7 @@
 # Praying Through: Psalm 86 Protector
 
 ## The Psalm
->Psalm 86 (CSB)  
+>Psalm 86 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">    
 > A prayer of David. 
 >
 ><sup> 1 </sup> Listen, LORD, and answer me, for I am poor and needy. 

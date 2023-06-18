@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 7 (CSB)  >
+>Psalm 7 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> A Shiggaion of David, which he sang to the LORD concerning the words of Cush, a Benjaminite. 
 >
 ><sup>1</sup> LORD my God, I seek refuge in you; save me from all my pursuers and rescue me, 

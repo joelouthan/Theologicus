@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 32:6 (CSB) Therefore let everyone who is faithful pray to you immediately. When great floodwaters come, they will not reach him.
+>Psalm 32:6 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   Therefore let everyone who is faithful pray to you immediately. When great floodwaters come, they will not reach him.
 
 ## The Prayer
 

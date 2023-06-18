@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 51 (CSB)  >
+>Psalm 51 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> For the choir director. A psalm of David, when the prophet Nathan came to him after he had gone to Bathsheba. 
 >
 ><sup>1</sup> Be gracious to me, God, according to your faithful love; according to your abundant compassion, blot out my rebellion. 

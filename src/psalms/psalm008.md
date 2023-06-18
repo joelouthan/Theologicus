@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 8 (CSB)  >
+>Psalm 8 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> For the choir director: on the Gittith. A psalm of David. 
 >
 ><sup>1</sup> LORD, our Lord, how magnificent is your name throughout the earth! You have covered the heavens with your majesty. 

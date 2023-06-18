@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 23:6d (CSB) all the days of my life
+>Psalm 23:6d (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   all the days of my life
 
 ## The Prayer
 

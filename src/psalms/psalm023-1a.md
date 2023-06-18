@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 23:1a (CSB) The LORD is my shepherd
+>Psalm 23:1a (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   The LORD is my shepherd
 
 ## The Prayer
 

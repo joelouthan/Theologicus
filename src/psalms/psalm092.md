@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 92 (CSB)  
+>Psalm 92 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">    
 > A psalm. A song for the Sabbath day. 
 >
 ><sup> 1  </sup>It is good to give thanks to the LORD, to sing praise to your name, Most High, 

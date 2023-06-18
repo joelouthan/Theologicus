@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 34 (CSB)  >
+>Psalm 34 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup>6</sup> This poor man cried, and the LORD heard him and saved him from all his troubles. 
 
 ## The Prayer

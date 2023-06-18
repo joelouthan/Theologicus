@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 99 (CSB)  >
+>Psalm 99 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup> 1  </sup>The LORD reigns! Let the peoples tremble. He is enthroned between the cherubim. Let the earth quake. 
 >
 ><sup> 2  </sup>The LORD is great in Zion; he is exalted above all the peoples. 

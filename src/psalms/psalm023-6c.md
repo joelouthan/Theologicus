@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 23:6c (CSB) will pursue me
+>Psalm 23:6c (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   will pursue me
 
 ## The Prayer
 

@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 103:2 (CSB) My soul, bless the LORD, and do not forget all his benefits. 
+>Psalm 103:2 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   My soul, bless the LORD, and do not forget all his benefits. 
 
 ## The Prayer
 

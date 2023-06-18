@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 103:16 (CSB) when the wind passes over it, it vanishes, and its place is no longer known. 
+>Psalm 103:16 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   when the wind passes over it, it vanishes, and its place is no longer known. 
 
 ## The Prayer
 

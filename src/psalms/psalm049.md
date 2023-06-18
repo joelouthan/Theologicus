@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 49 (CSB)  >
+>Psalm 49 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> For the choir director. A psalm of the sons of Korah. 
 >
 ><sup>1</sup> Hear this, all you peoples; listen, all who inhabit the world, 

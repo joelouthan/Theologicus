@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 20 (CSB)  >
+>Psalm 20 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> For the choir director. A psalm of David. 
 >
 ><sup>1</sup> May the LORD answer you in a day of trouble; may the name of Jacob’s God protect you. 

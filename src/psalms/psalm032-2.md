@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 32:2 (CSB) How joyful is a person whom the LORD does not charge with iniquity and in whose spirit is no deceit!
+>Psalm 32:2 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   How joyful is a person whom the LORD does not charge with iniquity and in whose spirit is no deceit!
 
 ## The Prayer
 

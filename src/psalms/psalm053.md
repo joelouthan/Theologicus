@@ -2,7 +2,7 @@
 
 ## The Psalm
 
->Psalm 53 (CSB)  >
+>Psalm 53 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
 ><sup></sup> For the choir director: on Mahalath. A Maskil of David. 
 >
 ><sup>1</sup> The fool says in his heart, “There’s no God.” They are corrupt, and they do vile deeds. There is no one who does good. 
