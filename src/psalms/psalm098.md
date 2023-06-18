@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 98 Wonder
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 98 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">    
+>Psalm 98 (CSB)    
 > A psalm. 
 >
 ><sup> 1  </sup>Sing a new song to the LORD, for he has performed wonders; his right hand and holy arm have won him victory. 

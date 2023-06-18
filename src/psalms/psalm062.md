@@ -1,4 +1,8 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 62
+
+<p style="clear:both;">
 
 ## The Psalm
 

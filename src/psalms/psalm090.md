@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 90 Eternity
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 90 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">    
+>Psalm 90 (CSB)    
 > A prayer of Moses, the man of God. 
 >
 ><sup> 1  </sup>Lord, you have been our refuge in every generation. 

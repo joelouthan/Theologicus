@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 34:9
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 34 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 34 (CSB)  
 ><sup>9</sup> You who are his holy ones, fear the LORD, for those who fear him lack nothing. 
 
 ## The Prayer

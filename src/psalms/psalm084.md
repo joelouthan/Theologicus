@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 84 Home
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 84 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 84 (CSB)  
 >For the choir director: on the Gittith. A psalm of the sons of Korah. 
 >
 ><sup> 1 </sup> How lovely is your dwelling place, LORD of Armies. 

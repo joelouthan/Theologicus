@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 23:4b My Only Fear
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 23:4b (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   I fear no danger
+>Psalm 23:4b (CSB)   I fear no danger
 
 ## The Prayer
 

@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 34:6
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 34 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 34 (CSB)  
 ><sup>6</sup> This poor man cried, and the LORD heard him and saved him from all his troubles. 
 
 ## The Prayer

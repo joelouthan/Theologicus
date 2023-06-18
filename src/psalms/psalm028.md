@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 28
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 28 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 28 (CSB)  
 ><sup></sup> Of David. 
 >
 ><sup>1</sup> LORD, I call to you; my rock, do not be deaf to me. If you remain silent to me, I will be like those going down to the Pit. 

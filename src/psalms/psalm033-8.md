@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 33:8
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 33:8 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   Let the whole earth fear the LORD; let all the inhabitants of the world stand in awe of him.
+>Psalm 33:8 (CSB)   Let the whole earth fear the LORD; let all the inhabitants of the world stand in awe of him.
 
 ## The Prayer
 

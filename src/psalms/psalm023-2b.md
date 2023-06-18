@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 23:2b He Leads Me Beside Quiet Waters
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 23:2b (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   he leads me beside quiet waters.
+>Psalm 23:2b (CSB)   he leads me beside quiet waters.
 
 ## The Prayer
 

@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 81 God
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 81 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 81 (CSB)  
 ><sup> 1  </sup>Sing for joy to God our strength; shout in triumph to the God of Jacob.
 >
 ><sup> 2  </sup>Lift up a song—play the tambourine, the melodious lyre, and the harp.

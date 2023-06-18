@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 46
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 46 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 46 (CSB)  
 ><sup></sup> For the choir director. A song of the sons of Korah. According to Alamoth. 
 >
 ><sup>1</sup> God is our refuge and strength, a helper who is always found in times of trouble. 

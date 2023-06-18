@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 1
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 1 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 1 (CSB)  
 ><sup>1</sup> How happy is the one who does not walk in the advice of the wicked or stand in the pathway with sinners or sit in the company of mockers! 
 >
 ><sup>2</sup> Instead, his delight is in the LORD’s instruction, and he meditates on it day and night. 

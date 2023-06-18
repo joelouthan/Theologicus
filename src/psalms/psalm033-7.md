@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 33:7
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 33:7 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   He gathers the water of the sea into a heap; he puts the depths into storehouses.
+>Psalm 33:7 (CSB)   He gathers the water of the sea into a heap; he puts the depths into storehouses.
 
 ## The Prayer
 

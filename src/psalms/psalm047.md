@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 47
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 47 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 47 (CSB)  
 ><sup></sup> For the choir director. A psalm of the sons of Korah. 
 >
 ><sup>1</sup> Clap your hands, all you peoples; shout to God with a jubilant cry. 

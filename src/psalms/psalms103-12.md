@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 103:12
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 103:12 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   As far as the east is from the west, so far has he removed our transgressions from us. 
+>Psalm 103:12 (CSB)   As far as the east is from the west, so far has he removed our transgressions from us. 
 
 ## The Prayer
 

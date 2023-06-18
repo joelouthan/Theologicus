@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 8
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 8 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 8 (CSB)  
 ><sup></sup> For the choir director: on the Gittith. A psalm of David. 
 >
 ><sup>1</sup> LORD, our Lord, how magnificent is your name throughout the earth! You have covered the heavens with your majesty. 

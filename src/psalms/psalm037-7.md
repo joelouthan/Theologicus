@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 37:7
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 37 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 37 (CSB)  
 ><sup>7</sup> Be silent before the LORD and wait expectantly for him; do not be agitated by one who prospers in his way, by the person who carries out evil plans. 
 
 ## The Prayer

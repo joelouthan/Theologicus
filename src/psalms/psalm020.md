@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 20
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 20 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 20 (CSB)  
 ><sup></sup> For the choir director. A psalm of David. 
 >
 ><sup>1</sup> May the LORD answer you in a day of trouble; may the name of Jacob’s God protect you. 

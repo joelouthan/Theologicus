@@ -1,8 +1,10 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 23:4c You Are With Me
 
 ## The Psalm
 
->Psalm 23:4c (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   for you are with me
+>Psalm 23:4c (CSB)   for you are with me
 
 ## The Prayer
 

@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 50
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 50 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 50 (CSB)  
 ><sup></sup> A psalm of Asaph. 
 >
 ><sup>1</sup> The Mighty One, God, the LORD, speaks; he summons the earth from the rising of the sun to its setting. 

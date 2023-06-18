@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 15
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 15 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 15 (CSB)  
 ><sup></sup> A psalm of David. 
 >
 ><sup>1</sup> LORD, who can dwell in your tent? Who can live on your holy mountain? 

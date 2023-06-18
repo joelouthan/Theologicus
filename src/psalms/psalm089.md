@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 89 Security
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 89 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">    
+>Psalm 89 (CSB)    
 > A Maskil of Ethan the Ezrahite. 
 >
 ><sup> 1  </sup>I will sing about the LORD’s faithful love forever; I will proclaim your faithfulness to all generations with my mouth. 

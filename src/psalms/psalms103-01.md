@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 103:1
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 103:1 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   My soul, bless the LORD, and all that is within me, bless his holy name. 
+>Psalm 103:1 (CSB)   My soul, bless the LORD, and all that is within me, bless his holy name. 
 
 ## The Prayer
 

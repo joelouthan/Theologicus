@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 103:13
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 103:13 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   As a father has compassion on his children, so the LORD has compassion on those who fear him. 
+>Psalm 103:13 (CSB)   As a father has compassion on his children, so the LORD has compassion on those who fear him. 
 
 ## The Prayer
 

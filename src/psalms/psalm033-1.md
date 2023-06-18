@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 33:1
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 33:1 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   Rejoice in the LORD, you righteous ones; praise from the upright is beautiful.
+>Psalm 33:1 (CSB)   Rejoice in the LORD, you righteous ones; praise from the upright is beautiful.
 
 ## The Prayer
 

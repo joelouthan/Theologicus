@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 2
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 2 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 2 (CSB)  
 ><sup>1</sup> Why do the nations rage and the peoples plot in vain? 
 >
 ><sup>2</sup> The kings of the earth take their stand, and the rulers conspire together against the LORD and his Anointed One: 

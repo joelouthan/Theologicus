@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 29
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 29 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 29 (CSB)  
 ><sup></sup> A psalm of David. 
 >
 ><sup>1</sup> Ascribe to the LORD, you heavenly beings, ascribe to the LORD glory and strength. 

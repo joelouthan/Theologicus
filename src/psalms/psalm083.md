@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 83 Conqueror
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 83 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">    
+>Psalm 83 (CSB)    
 > A song. A psalm of Asaph. 
 >
 ><sup> 1 </sup> God, do not keep silent. Do not be deaf, God; do not be quiet. 

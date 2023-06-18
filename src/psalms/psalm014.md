@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 14
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 14 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 14 (CSB)  
 ><sup></sup> For the choir director. Of David. 
 >
 ><sup>1</sup> The fool says in his heart, “There’s no God.” They are corrupt; they do vile deeds. There is no one who does good. 

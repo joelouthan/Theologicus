@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 58
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 58 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 58 (CSB)  
 ><sup></sup> For the choir director: “Do Not Destroy.” A Miktam of David. 
 >
 ><sup>1</sup> Do you really speak righteously, you mighty ones? Do you judge people fairly? 

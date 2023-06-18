@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 45
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 45 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 45 (CSB)  
 ><sup></sup> For the choir director: according to “The Lilies.” A Maskil of the sons of Korah. A love song. 
 >
 ><sup>1</sup> My heart is moved by a noble theme as I recite my verses to the king; my tongue is the pen of a skillful writer. 

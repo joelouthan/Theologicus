@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 23:4a Even When I Go Through The Darkest Valley
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 23:4a (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   Even when I go through the darkest valley
+>Psalm 23:4a (CSB)   Even when I go through the darkest valley
 
 ## The Prayer
 

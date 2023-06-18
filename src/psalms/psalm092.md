@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 92 Faithfulness
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 92 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">    
+>Psalm 92 (CSB)    
 > A psalm. A song for the Sabbath day. 
 >
 ><sup> 1  </sup>It is good to give thanks to the LORD, to sing praise to your name, Most High, 

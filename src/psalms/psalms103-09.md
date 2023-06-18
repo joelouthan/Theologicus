@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 103:9
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 103:9 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   He will not always accuse us or be angry forever. 
+>Psalm 103:9 (CSB)   He will not always accuse us or be angry forever. 
 
 ## The Prayer
 

@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 36:5
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 36 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 36 (CSB)  
 ><sup>5</sup> LORD, your faithful love reaches to heaven, your faithfulness to the clouds. 
 
 ## The Prayer

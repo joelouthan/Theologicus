@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 44
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 44 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 44 (CSB)  
 ><sup></sup> For the choir director. A Maskil of the sons of Korah. 
 >
 ><sup>1</sup> God, we have heard with our ears— our ancestors have told us— the work you accomplished in their days, in days long ago: 

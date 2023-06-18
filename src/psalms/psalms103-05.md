@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 103:5
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 103:5 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   He satisfies you with good things; your youth is renewed like the eagle. 
+>Psalm 103:5 (CSB)   He satisfies you with good things; your youth is renewed like the eagle. 
 
 ## The Prayer
 

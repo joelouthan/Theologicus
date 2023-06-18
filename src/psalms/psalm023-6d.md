@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 23:6d All The Days of My Life
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 23:6d (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   all the days of my life
+>Psalm 23:6d (CSB)   all the days of my life
 
 ## The Prayer
 

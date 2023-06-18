@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 95 Thanksgiving
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 95 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 95 (CSB)  
 ><sup> 1  </sup>Come, let’s shout joyfully to the LORD, shout triumphantly to the rock of our salvation! 
 >
 ><sup> 2  </sup>Let’s enter his presence with thanksgiving; let’s shout triumphantly to him in song. 

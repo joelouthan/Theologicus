@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 99 Awe
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 99 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 99 (CSB)  
 ><sup> 1  </sup>The LORD reigns! Let the peoples tremble. He is enthroned between the cherubim. Let the earth quake. 
 >
 ><sup> 2  </sup>The LORD is great in Zion; he is exalted above all the peoples. 

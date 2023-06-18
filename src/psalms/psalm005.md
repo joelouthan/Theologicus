@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 5
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 5 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 5 (CSB)  
 ><sup></sup> For the choir director: with the flutes. A psalm of David. 
 >
 ><sup>1</sup> Listen to my words, LORD; consider my sighing. 

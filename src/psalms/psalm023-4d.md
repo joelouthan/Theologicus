@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 23:4d The Comfort of Your Power
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 23:4d (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   your rod and your staff—they comfort me.
+>Psalm 23:4d (CSB)   your rod and your staff—they comfort me.
 
 ## The Prayer
 

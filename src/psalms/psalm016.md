@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 16
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 16 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 16 (CSB)  
 ><sup></sup> A Miktam of David. 
 >
 ><sup>1</sup> Protect me, God, for I take refuge in you. 

@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 23:6a Surely Goodness
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 23:6a (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   Only goodness
+>Psalm 23:6a (CSB)   Only goodness
 
 ## The Prayer
 

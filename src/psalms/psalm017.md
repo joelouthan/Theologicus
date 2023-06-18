@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 17
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 17 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 17 (CSB)  
 ><sup></sup> A prayer of David. 
 >
 ><sup>1</sup> LORD, hear a just cause; pay attention to my cry; listen to my prayer— from lips free of deceit. 

@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 23:3a He Renews My Life
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 23:3 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   He renews my life
+>Psalm 23:3 (CSB)   He renews my life
 
 ## The Prayer
 

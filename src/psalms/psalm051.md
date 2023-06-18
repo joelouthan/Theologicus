@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 51
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 51 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 51 (CSB)  
 ><sup></sup> For the choir director. A psalm of David, when the prophet Nathan came to him after he had gone to Bathsheba. 
 >
 ><sup>1</sup> Be gracious to me, God, according to your faithful love; according to your abundant compassion, blot out my rebellion. 

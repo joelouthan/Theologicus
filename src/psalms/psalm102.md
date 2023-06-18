@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 102 Forever
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 102 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 102 (CSB)  
 ><sup></sup> A prayer of a suffering person who is weak and pours out his lament before the LORD. 
 >
 ><sup>1</sup> LORD, hear my prayer; let my cry for help come before you. 

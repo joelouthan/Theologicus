@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 82 Divine
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 82 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">    
+>Psalm 82 (CSB)    
 > A psalm of Asaph. 
 >
 ><sup> 1 </sup> God stands in the divine assembly; he pronounces judgment among the gods: 

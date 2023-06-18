@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 9
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 9 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 9 (CSB)  
 ><sup></sup> For the choir director: according to Muth-labben. A psalm of David. 
 >
 ><sup>1</sup> I will thank the LORD with all my heart; I will declare all your wondrous works. 

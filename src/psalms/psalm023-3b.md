@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 23:3b He Leads Me Along The Right Paths For His Name’s Sake
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 23:3b (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   he leads me along the right paths for his name’s sake.
+>Psalm 23:3b (CSB)   he leads me along the right paths for his name’s sake.
 
 ## The Prayer
 

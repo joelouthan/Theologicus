@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 101 Worthy
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 101 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 101 (CSB)  
 ><sup></sup> A psalm of David. 
 >
 ><sup>1</sup> I will sing of faithful love and justice; I will sing praise to you, LORD. 

@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 85 Grace
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 85 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">    
+>Psalm 85 (CSB)    
 > For the choir director. A psalm of the sons of Korah. 
 >
 ><sup> 1 </sup> LORD, you showed favor to your land; you restored the fortunes of Jacob. 

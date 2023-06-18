@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 38
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 38 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 38 (CSB)  
 ><sup></sup> A psalm of David to bring remembrance. 
 >
 ><sup>1</sup> LORD, do not punish me in your anger or discipline me in your wrath. 

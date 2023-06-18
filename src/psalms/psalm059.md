@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 59
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 59 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 59 (CSB)  
 ><sup></sup> For the choir director: “Do Not Destroy.” A Miktam of David. When Saul sent agents to watch the house and kill him. 
 >
 ><sup>1</sup> Rescue me from my enemies, my God; protect me from those who rise up against me. 

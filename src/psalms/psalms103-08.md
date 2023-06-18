@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 103:8
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 103:8 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   The LORD is compassionate and gracious, slow to anger and abounding in faithful love. 
+>Psalm 103:8 (CSB)   The LORD is compassionate and gracious, slow to anger and abounding in faithful love. 
 
 ## The Prayer
 

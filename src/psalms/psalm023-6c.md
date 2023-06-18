@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 23:6c You Will Always Be With Me
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 23:6c (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   will pursue me
+>Psalm 23:6c (CSB)   will pursue me
 
 ## The Prayer
 

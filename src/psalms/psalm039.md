@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 39
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 39 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 39 (CSB)  
 ><sup></sup> For the choir director, for Jeduthun. A psalm of David. 
 >
 ><sup>1</sup> I said, “I will guard my ways so that I may not sin with my tongue; I will guard my mouth with a muzzle as long as the wicked are in my presence.” 

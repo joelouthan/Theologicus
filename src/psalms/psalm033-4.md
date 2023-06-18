@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 33:4
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 33:4 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   For the word of the LORD is right, and all his work is trustworthy.
+>Psalm 33:4 (CSB)   For the word of the LORD is right, and all his work is trustworthy.
 
 ## The Prayer
 

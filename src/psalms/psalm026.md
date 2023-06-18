@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 26
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 26 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 26 (CSB)  
 ><sup></sup> Of David. 
 >
 ><sup>1</sup> Vindicate me, LORD, because I have lived with integrity and have trusted in the LORD without wavering. 

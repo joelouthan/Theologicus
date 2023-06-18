@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 25
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 25 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 25 (CSB)  
 ><sup></sup> Of David. 
 >
 ><sup>1</sup> LORD, I appeal to you. 

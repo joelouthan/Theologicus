@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 37:3
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 37 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 37 (CSB)  
 ><sup>3</sup> Trust in the LORD and do what is good; dwell in the land and live securely. 
 
 ## The Prayer

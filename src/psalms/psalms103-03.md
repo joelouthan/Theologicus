@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 103:3
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 103:3 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   He forgives all your iniquity; he heals all your diseases. 
+>Psalm 103:3 (CSB)   He forgives all your iniquity; he heals all your diseases. 
 
 ## The Prayer
 

@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 41
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 41 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 41 (CSB)  
 ><sup></sup> For the choir director. A psalm of David. 
 >
 ><sup>1</sup> Happy is one who is considerate of the poor; the LORD will save him in a day of adversity. 

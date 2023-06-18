@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 23:6b Mercies
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 23:6b (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   faithful love
+>Psalm 23:6b (CSB)   faithful love
 
 ## The Prayer
 

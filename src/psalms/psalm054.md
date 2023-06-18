@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 54
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 54 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 54 (CSB)  
 ><sup></sup> For the choir director: with stringed instruments. A Maskil of David. When the Ziphites went and said to Saul, “Is David not hiding among us?” 
 >
 ><sup>1</sup> God, save me by your name, and vindicate me by your might! 

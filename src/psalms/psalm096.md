@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 96 Song
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 96 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 96 (CSB)  
 ><sup> 1  </sup>Sing a new song to the LORD; let the whole earth sing to the LORD. 
 >
 ><sup> 2  </sup>Sing to the LORD, bless his name; proclaim his salvation from day to day. 

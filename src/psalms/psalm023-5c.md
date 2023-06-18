@@ -1,8 +1,10 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 23:5c My Cup Overflows
 
 ## The Psalm
 
->Psalm 23:5c (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   my cup overflows
+>Psalm 23:5c (CSB)   my cup overflows
 
 ## The Prayer
 

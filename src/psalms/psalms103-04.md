@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 103:4
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 103:4 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   He redeems your life from the Pit; he crowns you with faithful love and compassion. 
+>Psalm 103:4 (CSB)   He redeems your life from the Pit; he crowns you with faithful love and compassion. 
 
 ## The Prayer
 

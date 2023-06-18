@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 24
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 24 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 24 (CSB)  
 ><sup></sup> A psalm of David. 
 >
 ><sup>1</sup> The earth and everything in it, the world and its inhabitants, belong to the LORD; 

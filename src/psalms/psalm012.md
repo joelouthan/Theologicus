@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 12
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 12 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 12 (CSB)  
 ><sup></sup> For the choir director: according to Sheminith. A psalm of David. 
 >
 ><sup>1</sup> Help, LORD, for no faithful one remains; the loyal have disappeared from the human race. 

@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 3
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 3 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 3 (CSB)  
 ><sup></sup> A psalm of David when he fled from his son Absalom. 
 >
 ><sup>1</sup> LORD, how my foes increase! There are many who attack me. 

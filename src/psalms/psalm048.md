@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 48
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 48 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 48 (CSB)  
 ><sup></sup> A song. A psalm of the sons of Korah. 
 >
 ><sup>1</sup> The LORD is great and highly praised in the city of our God. His holy mountain, 

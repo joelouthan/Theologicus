@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 91 Almighty
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 91 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 91 (CSB)  
 ><sup> 1  </sup>The one who lives under the protection of the Most High dwells in the shadow of the Almighty. 
 >
 ><sup> 2  </sup>I will say concerning the LORD, who is my refuge and my fortress, my God in whom I trust: 

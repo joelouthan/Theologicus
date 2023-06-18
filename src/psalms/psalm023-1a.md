@@ -1,8 +1,10 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 23:1a The Lord Is My Shepherd
 
 ## The Psalm
 
->Psalm 23:1a (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   The LORD is my shepherd
+>Psalm 23:1a (CSB)   The LORD is my shepherd
 
 ## The Prayer
 

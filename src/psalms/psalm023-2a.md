@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 23:2a He Lets Me Lie Down in Green Pastures
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 23:2a (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   He lets me lie down in green pastures
+>Psalm 23:2a (CSB)   He lets me lie down in green pastures
 
 ## The Prayer
 

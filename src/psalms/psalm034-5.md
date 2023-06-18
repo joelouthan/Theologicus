@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 34:5
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 34 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 34 (CSB)  
 ><sup>5</sup> Those who look to him are radiant with joy; their faces will never be ashamed. 
 
 ## The Prayer

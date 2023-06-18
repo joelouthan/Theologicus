@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 37:4
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 37 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 37 (CSB)  
 ><sup>4</sup> Take delight in the LORD, and he will give you your heart’s desires. 
 
 ## The Prayer

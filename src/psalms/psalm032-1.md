@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 32:1
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 32:1 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   How joyful is the one whose transgression is forgiven, whose sin is covered!
+>Psalm 32:1 (CSB)   How joyful is the one whose transgression is forgiven, whose sin is covered!
 
 ## The Prayer
 

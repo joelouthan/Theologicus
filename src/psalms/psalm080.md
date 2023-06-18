@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 80 Restorer
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 80 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">    
+>Psalm 80 (CSB)    
 > For the choir director: according to “The Lilies.” A testimony of Asaph. A psalm. 
 >
 ><sup> 1 </sup> Listen, Shepherd of Israel, who leads Joseph like a flock; you who sit enthroned between the cherubim, shine 

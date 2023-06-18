@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 34:8
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 34 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 34 (CSB)  
 ><sup>8</sup> Taste and see that the LORD is good. How happy is the person who takes refuge in him! 
 
 ## The Prayer

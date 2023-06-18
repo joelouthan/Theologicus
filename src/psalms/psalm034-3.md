@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 34:3
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 34:3 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 34:3 (CSB)  
 ><sup>3</sup> Proclaim the LORD’s greatness with me; let us exalt his name together.
 
 ## The Prayer

@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 23:1b I Have What I Need
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 23:1b (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">   I have what I need.
+>Psalm 23:1b (CSB)   I have what I need.
 
 ## The Prayer
 

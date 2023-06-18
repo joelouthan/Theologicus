@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 93 Majesty
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 93 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">  
+>Psalm 93 (CSB)  
 ><sup> 1  </sup>The LORD reigns! He is robed in majesty; the LORD is robed, enveloped in strength. The world is firmly established; it cannot be shaken. 
 >
 ><sup> 2  </sup>Your throne has been established from the beginning; you are from eternity. 

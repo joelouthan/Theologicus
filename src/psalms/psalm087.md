@@ -1,8 +1,12 @@
+<img class="intro-left" style="margin-top:10px" src="/images/art-paris-psalter.jpg">
+
 # Praying Through: Psalm 87 Dwelling
+
+<p style="clear:both;">
 
 ## The Psalm
 
->Psalm 87 (CSB)<img class="intro-right" style="margin-top:10px" src="/images/art-paris-psalter.jpg">    
+>Psalm 87 (CSB)    
 > A psalm of the sons of Korah. A song. 
 >
 ><sup> 1 </sup> The city he founded is on the holy mountains. 
