@@ -1,8 +1,8 @@
-# Praying Through Psalms, An Introduction & Recommendations
+# <img class="intro-left" src="/images/art-paris-psalter.jpg">Praying Through Psalms, An Introduction & Recommendations
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-paris-psalter.jpg">I hope to write a commentary on the Psalms. In the meantime, I will pray through them.
+I hope to write a commentary on the Psalms. In the meantime, I will pray through them.
 
 <hr style="clear:both;">
 
