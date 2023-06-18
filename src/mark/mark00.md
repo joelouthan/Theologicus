@@ -2,7 +2,7 @@
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-mark.jpg">I still remember when I first did family devotions every Thursday night at dinner.
+I still remember when I first did family devotions every Thursday night at dinner.
 
 I would love to tell you that when we first started they were gentle, sweet, and quiet little angels who sat there, smiled, ate their peas, and then afterward, broke out in a stunning rendition of the classic hymn, "The Solid Rock".
 
