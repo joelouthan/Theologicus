@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-ruth-naomi.jpg">
+
 # Ruth 3:1-9 God's Redeeming Work for His People
 
 >Ruth 3:1-9 (CSB)  

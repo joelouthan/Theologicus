@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-ruth-naomi.jpg">
+
 # Ruth 1:1-7 By God's Goodness, He Predestined Us
 
 ## The Text
