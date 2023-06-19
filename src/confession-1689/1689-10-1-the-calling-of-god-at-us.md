@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-1689.png">
 
-# 1689 Baptist Confession of Faith, Chapter 10.1 The Calling of God: At Us
+# 1689 Baptist Confession of Faith, Chapter 10.1 The Calling of God At Us
 
 ## The Text
 
@@ -21,6 +21,46 @@
 >Ephesians 1:10–11 (CSB) as a plan for the right time—to bring everything together in Christ, both things in heaven and things on earth in him. In him we have also received an inheritance, because we were predestined according to the plan of the one who works out everything in agreement with the purpose of his will,
 
 >2 Thessalonians 2:13–14 (CSB) But we ought to thank God always for you, brothers and sisters loved by the Lord, because from the beginning God has chosen you for salvation through sanctification by the Spirit and through belief in the truth. He called you to this through our gospel, so that you might obtain the glory of our Lord Jesus Christ.
+
+TODO:
+
+- we always do what pleases us and we think nothing is wrong with that
+- God, the Supreme Ruler, omniscient, omnipotent, ever present, holy, good, righteous, just, merciful, compassion, tender, kind, perfect and glorious, rightfully and truly does what he please
+
+We do we balk at that?
+
+That "he is pleased in His appointed, and accepted time, effectually to call."
+
+Romans 9 fleshes this out perfect.
+
+>Romans 9:22-26 (CSB) And what if God, wanting to display his wrath and to make his power known, endured with much patience objects of wrath prepared for destruction? And what if he did this to make known the riches of his glory on objects of mercy that he prepared beforehand for glory — on us, the ones he also called, not only from the Jews but also from the Gentiles? As it also says in Hosea,  
+>I will call Not My People, My People,  
+>and she who is Unloved, Beloved.  
+>And it will be in the place where they were told,  
+>you are not my people,  
+>there they will be called sons of the living God.
+
+God does as he pleases. He is God. He is not like us under some sort of authority. The Triune God is himself authority because he is God. He created everything and he rules and reigns over all.
+
+>1 Chronicles 29:10–18 (CSB)  
+><sup>10</sup> Then David blessed the LORD in the sight of all the assembly. David said, May you be blessed, LORD God of our father Israel, from eternity to eternity. 
+>
+><sup>11</sup> Yours, LORD, is the greatness and the power and the glory and the splendor and the majesty, for everything in the heavens and on earth belongs to you. Yours, LORD, is the kingdom, and you are exalted as head over all. 
+>
+><sup>12</sup> Riches and honor come from you, and you are the ruler of everything. Power and might are in your hand, and it is in your hand to make great and to give strength to all. 
+>
+><sup>13</sup> Now therefore, our God, we give you thanks and praise your glorious name. 
+>
+><sup>14</sup> But who am I, and who are my people, that we should be able to give as generously as this? For everything comes from you, and we have given you only what comes from your own hand. 
+>
+><sup>15</sup> For we are aliens and temporary residents in your presence as were all our ancestors. Our days on earth are like a shadow, without hope. 
+>
+><sup>16</sup> LORD our God, all this wealth that we’ve provided for building you a house for your holy name comes from your hand; everything belongs to you. 
+>
+><sup>17</sup> I know, my God, that you test the heart and that you are pleased with what is right. I have willingly given all these things with an upright heart, and now I have seen your people who are present here giving joyfully and willingly to you. 
+>
+><sup>18</sup> LORD God of Abraham, Isaac, and Israel, our ancestors, keep this desire forever in the thoughts of the hearts of your people, and confirm their hearts toward you.
+
 
 ### by His Word and Spirit, out of that state of sin and death in which they are by nature, to grace and salvation by Jesus Christ;
 
