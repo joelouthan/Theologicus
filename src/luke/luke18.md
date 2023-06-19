@@ -1,6 +1,8 @@
+<img class="intro-right" src="/images/art-luke.jpg">
+
 # Luke 18 Christ Is God
 
-><img class="intro-right" src="/images/art-luke.jpg">Luke 18:1-8 (CSB) Now he told them a parable on the need for them to pray always and not give up. “There was a judge in a certain town who didn’t fear God or respect people. And a widow in that town kept coming to him, saying, ‘Give me justice against my adversary.’
+>Luke 18:1-8 (CSB) Now he told them a parable on the need for them to pray always and not give up. “There was a judge in a certain town who didn’t fear God or respect people. And a widow in that town kept coming to him, saying, ‘Give me justice against my adversary.’
 >
 >“For a while he was unwilling, but later he said to himself, ‘Even though I don’t fear God or respect people, yet because this widow keeps pestering me, I will give her justice, so that she doesn’t wear me out by her persistent coming.’”
 >

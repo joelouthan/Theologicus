@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-luke.jpg">
+
 # Luke: An Introduction & A Few Resources
 
 ## The Introduction
 
-<img class="intro-left" src="/images/art-luke.jpg">I finished up [The Gospel of Mark](/mark/mark00.md) with my stepkids. Now I have little bitty kids.
+I finished up [The Gospel of Mark](/mark/mark00.md) with my stepkids. Now I have little bitty kids.
 
 This started out as a mere outline for Luke's Gospel. But because of the youth of my kids (pre-kindergarten whenw e started), I wanted to fold in some catechism. So I integrated the Westminster Shorter Catechism into the readings of Luke.
 

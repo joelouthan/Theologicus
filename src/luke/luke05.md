@@ -1,6 +1,8 @@
+<img class="intro-right" src="/images/art-luke.jpg">
+
 # Luke 5 Christ is Lord Over Everything
 
-><img class="intro-right" src="/images/art-luke.jpg">Luke 5:1–7 (CSB) As the crowd was pressing in on Jesus to hear God’s word, he was standing by Lake Gennesaret.  He saw two boats at the edge of the lake; the fishermen had left them and were washing their nets.  He got into one of the boats, which belonged to Simon, and asked him to put out a little from the land. Then he sat down and was teaching the crowds from the boat.  When he had finished speaking, he said to Simon, “Put out into deep water and let down your nets for a catch.”  “Master,” Simon replied, “we’ve worked hard all night long and caught nothing. But if you say so, I’ll let down the nets.”  When they did this, they caught a great number of fish, and their nets began to tear.  So they signaled to their partners in the other boat to come and help them; they came and filled both boats so full that they began to sink.
+>Luke 5:1–7 (CSB) As the crowd was pressing in on Jesus to hear God’s word, he was standing by Lake Gennesaret.  He saw two boats at the edge of the lake; the fishermen had left them and were washing their nets.  He got into one of the boats, which belonged to Simon, and asked him to put out a little from the land. Then he sat down and was teaching the crowds from the boat.  When he had finished speaking, he said to Simon, “Put out into deep water and let down your nets for a catch.”  “Master,” Simon replied, “we’ve worked hard all night long and caught nothing. But if you say so, I’ll let down the nets.”  When they did this, they caught a great number of fish, and their nets began to tear.  So they signaled to their partners in the other boat to come and help them; they came and filled both boats so full that they began to sink.
 
 Genesis 1:1 (CSB) In the beginning God created the heavens and the earth.
 
