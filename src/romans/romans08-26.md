@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-paul.jpg">
+
 # Romans 8:26 Who Defines Us in the Midst of Our Weakness?
 
 ## The Text

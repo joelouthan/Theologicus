@@ -1,18 +1,7 @@
-# Romans 8:35 Christ Defined Us"
-author: Joseph Louthan
-publishDate: 2022-12-05
-categories:
-  - Commentaries
-  - Study
-tags:
-  - "Romans"
-series:
-  - "Romans"
-cover:
-  image: '/images/banners/romans.png'
-tocopen: true
-css: "prayers"
-draft: false
+<img class="intro-right" src="/images/art-paul.jpg">
+
+# Romans 8:35 Christ Defined Us
+
 ## The Introduction
 
 >Romans 8:35 (CSB) Who can separate us from the love of Christ? Can affliction or distress or persecution or famine or nakedness or danger or sword?

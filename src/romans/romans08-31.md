@@ -1,18 +1,7 @@
-# Romans 8:31 Christ Saved Us"
-author: Joseph Louthan
-publishDate: 2022-11-07
-categories:
-  - Commentaries
-  - Study
-tags:
-  - "Romans"
-series:
-  - "Romans"
-cover:
-  image: '/images/banners/romans.png'
-tocopen: true
-css: "prayers"
-draft: false
+<img class="intro-right" src="/images/art-paul.jpg">
+
+# Romans 8:31 Christ Saved Us
+
 ## The Introduction
 
 And here is love:

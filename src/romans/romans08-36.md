@@ -1,18 +1,7 @@
-# Romans 8:36 Christ Died For Us"
-author: Joseph Louthan
-publishDate: 2022-12-12
-categories:
-  - Commentaries
-  - Study
-tags:
-  - "Romans"
-series:
-  - "Romans"
-cover:
-  image: '/images/banners/romans.png'
-tocopen: true
-css: "prayers"
-draft: false
+<img class="intro-right" src="/images/art-paul.jpg">
+
+# Romans 8:36 Christ Died For Us
+
 ## The Introduction
 
 >Romans 8:36 (CSB) As it is written: Because of you we are being put to death all day long; we are counted as sheep to be slaughtered.

@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-paul.jpg">
+
 # Romans 8:30a Loved & Predestined by God
 
 ## The Text

@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-paul.jpg">
+
 # Romans 8:28 Who Define Us in the Midst of Sin Around Us?
 
 ## The Text

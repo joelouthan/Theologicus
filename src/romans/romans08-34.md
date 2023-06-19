@@ -1,18 +1,7 @@
-# Romans 8:34 Romans 8:34 Christ Raised For Us"
-author: Joseph Louthan
-publishDate: 2022-11-28
-categories:
-  - Commentaries
-  - Study
-tags:
-  - "Romans"
-series:
-  - "Romans"
-cover:
-  image: '/images/banners/romans.png'
-tocopen: true
-css: "prayers"
-draft: false
+<img class="intro-right" src="/images/art-paul.jpg">
+
+# Romans 8:34 Romans 8:34 Christ Raised For Us
+
 ## The Introduction
 
 >Romans 8:34 (CSB) Who is the one who condemns? Christ Jesus is the one who died, but even more, has been raised; he also is at the right hand of God and intercedes for us.

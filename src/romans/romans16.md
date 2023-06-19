@@ -1,3 +1,5 @@
+<img class="intro-right" src="/images/art-paul.jpg">
+
 # Romans 16 God Has Overcome--Amen
 
 ## The Text

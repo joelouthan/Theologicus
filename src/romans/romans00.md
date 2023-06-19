@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-paul.jpg">
+
 # The Epistle to the Romans: An Introduction & Recommendations
 
 ## The Introduction
 
-<img class="intro-left" src="/images/logo-theologicus3.png">In 2010, I came across a gem of a book called [No Condemnation in Christ Jesus](https://www.goodreads.com/book/show/4011534-no-condemnation-in-christ-jesus) by Octavius Winslow, a contemporary of Charles Spurgeon, from 19th century England.
+In 2010, I came across a gem of a book called [No Condemnation in Christ Jesus](https://www.goodreads.com/book/show/4011534-no-condemnation-in-christ-jesus) by Octavius Winslow, a contemporary of Charles Spurgeon, from 19th century England.
 
 And I wrote a [little review](https://www.goodreads.com/review/show/134527292).
 

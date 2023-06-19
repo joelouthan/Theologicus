@@ -1,18 +1,7 @@
-# Romans 8:32 Christ Is For Us"
-author: Joseph Louthan
-publishDate: 2022-11-14
-categories:
-  - Commentaries
-  - Study
-tags:
-  - "Romans"
-series:
-  - "Romans"
-cover:
-  image: '/images/banners/romans.png'
-tocopen: true
-css: "prayers"
-draft: false
+<img class="intro-right" src="/images/art-paul.jpg">
+
+# Romans 8:32 Christ Is For Us
+
 ## The Introduction
 
 >Romans 8:32 (CSB) He did not even spare his own Son but gave him up for us all. How will he not also with him grant us everything?

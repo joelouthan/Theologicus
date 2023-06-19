@@ -1,18 +1,7 @@
-# Romans 8:30d Loved & Glorified by God"
-author: Joseph Louthan
-publishDate: 2022-10-31
-categories:
-  - Commentaries
-  - Study
-tags:
-  - "Romans"
-series:
-  - "Romans"
-cover:
-  image: '/images/banners/romans.png'
-tocopen: true
-css: "prayers"
-draft: false
+<img class="intro-right" src="/images/art-paul.jpg">
+
+# Romans 8:30d Loved & Glorified by God
+
 ## The Introduction
 
 And here is love:

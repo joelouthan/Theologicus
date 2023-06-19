@@ -1,18 +1,7 @@
-# Romans 8:33 Christ Justified Us"
-author: Joseph Louthan
-publishDate: 2022-11-21
-categories:
-  - Commentaries
-  - Study
-tags:
-  - "Romans"
-series:
-  - "Romans"
-cover:
-  image: '/images/banners/romans.png'
-tocopen: true
-css: "prayers"
-draft: false
+<img class="intro-right" src="/images/art-paul.jpg">
+
+# Romans 8:33 Christ Justified Us
+
 ## The Introduction
 
 >Romans 8:33 (CSB) Who can bring an accusation against God’s elect? God is the one who justifies.
