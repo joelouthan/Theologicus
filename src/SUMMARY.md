@@ -765,6 +765,7 @@
   - [Romans 8:36 Christ Died For Us](romans/romans08-36.md)
   - [Romans 8:37 Christ Loves Us](romans/romans08-37.md)
   - [Romans 8:38-39 NO SEPARATION!](romans/romans08-38-39.md)
+  - [Romans 8 The Conclusion: Here is Love](romans/romans08-x1john4-10.md)
   - [Romans 9:1-13 For His Mercies Will Never Come to An End](romans/romans09-01-13.md)
   - [Romans 9:14-23 His Mercies Are New Every Morning](romans/romans09-14-23.md)
   - [Romans 9:23-33 Great is His Faithfulness](romans/romans09-23-33.md)
