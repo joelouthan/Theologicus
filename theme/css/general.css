@@ -121,6 +121,7 @@ h6:target::before {
 bgy {
   background-color: yellow;
   color: black;
+  font-weight: bold;
 }
 
 .contact-info img {
