@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 1 Timothy 2:8-15 Worship in Christ
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 2:8–15 (CSB)  
+>1 Timothy 2:8–15 (CSB)  
 ><sup>8</sup> Therefore, I want the men in every place to pray, lifting up holy hands without anger or argument. 
 >
 ><sup>9</sup> Also, the women are to dress themselves in modest clothing, with decency and good sense, not with elaborate hairstyles, gold, pearls, or expensive apparel, 

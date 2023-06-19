@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-titus.jpg">
+
 # Titus 3:1-7 Live Like This: Christ Appeared
 
 ## The Text
 
-><img class="intro-right" src="/images/art-titus.jpg">Titus 3:1–7 (CSB)  
+>Titus 3:1–7 (CSB)  
 ><sup> 1 </sup> Remind them to submit to rulers and authorities, to obey, to be ready for every good work, 
 >
 ><sup> 2 </sup> to slander no one, to avoid fighting, and to be kind, always showing gentleness to all people. 

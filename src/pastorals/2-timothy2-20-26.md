@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 2 Timothy 2:20-26 Chosen by God
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">2 Timothy 2:20–26 (CSB)  
+>2 Timothy 2:20–26 (CSB)  
 ><sup> 20 </sup> Now in a large house there are not only gold and silver vessels, but also those of wood and clay; some for honorable use and some for dishonorable. 
 >
 ><sup> 21 </sup> So if anyone purifies himself from anything dishonorable, he will be a special instrument, set apart, useful to the Master, prepared for every good work. 

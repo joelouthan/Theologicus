@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 1 Timothy 6:2-10 Be Content in Christ
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 6:2–10 (CSB)  
+>1 Timothy 6:2–10 (CSB)  
 ><sup>2</sup> Let those who have believing masters not be disrespectful to them because they are brothers, but serve them even better, since those who benefit from their service are believers and dearly loved. Teach and encourage these things. 
 >
 ><sup>3</sup> If anyone teaches false doctrine and does not agree with the sound teaching of our Lord Jesus Christ and with the teaching that promotes godliness, 

@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 2 Timothy 4:1-5 Charged by God
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">2 Timothy 4:1–5 (CSB)  
+>2 Timothy 4:1–5 (CSB)  
 ><sup> 1 </sup> I solemnly charge you before God and Christ Jesus, who is going to judge the living and the dead, and because of his appearing and his kingdom: 
 >
 ><sup> 2 </sup> Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching. 

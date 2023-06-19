@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 1 Timothy 1:1–11 Christ Our Grace
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 1:1–11 (CSB)  
+>1 Timothy 1:1–11 (CSB)  
 ><sup>1</sup> Paul, an apostle of Christ Jesus by the command of God our Savior and of Christ Jesus our hope: 
 >
 ><sup>2</sup> To Timothy, my true son in the faith. Grace, mercy, and peace from God the Father and Christ Jesus our Lord. 

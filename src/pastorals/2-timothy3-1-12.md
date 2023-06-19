@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 2 Timothy 3:1-12 Refined By God
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">2 Timothy 3:1–12 (CSB)  
+>2 Timothy 3:1–12 (CSB)  
 ><sup> 1 </sup> But know this: Hard times will come in the last days. 
 >
 ><sup> 2 </sup> For people will be lovers of self, lovers of money, boastful, proud, demeaning, disobedient to parents, ungrateful, unholy, 

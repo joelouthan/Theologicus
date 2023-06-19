@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 2 Timothy 2:3-14 Life by God
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">2 Timothy 2:3–14 (CSB)  
+>2 Timothy 2:3–14 (CSB)  
 ><sup> 3 </sup> Share in suffering as a good soldier of Christ Jesus. 
 >
 ><sup> 4 </sup> No one serving as a soldier gets entangled in the concerns of civilian life; he seeks to please the commanding officer. 

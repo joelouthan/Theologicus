@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-titus.jpg">
+
 # Titus 2:1-5 Teach Like This: Family of Christ
 
 ## The Text
 
-><img class="intro-right" src="/images/art-titus.jpg">Titus 2:1–5 (CSB)  
+>Titus 2:1–5 (CSB)  
 ><sup> 1 </sup> But you are to proclaim things consistent with sound teaching. 
 >
 ><sup> 2 </sup> Older men are to be self-controlled, worthy of respect, sensible, and sound in faith, love, and endurance. 

@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 1 Timothy 3:14-16 Mystery of Christ
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 3:14–16 (CSB)  
+>1 Timothy 3:14–16 (CSB)  
 ><sup>14</sup> I write these things to you, hoping to come to you soon. 
 >
 ><sup>15</sup> But if I should be delayed, I have written so that you will know how people ought to conduct themselves in God’s household, which is the church of the living God, the pillar and foundation of the truth. 

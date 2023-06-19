@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 2 Timothy 3:13-17 Called by God 
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">2 Timothy 3:13–17 (CSB)  
+>2 Timothy 3:13–17 (CSB)  
 ><sup> 13 </sup> Evil people and impostors will become worse, deceiving and being deceived. 
 >
 ><sup> 14 </sup> But as for you, continue in what you have learned and firmly believed. You know those who taught you, 

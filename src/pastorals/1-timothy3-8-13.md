@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 1 Timothy 3:8-13 Serve in Christ
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 3:8–13 (CSB)  
+>1 Timothy 3:8–13 (CSB)  
 ><sup>8</sup> Deacons, likewise, should be worthy of respect, not hypocritical, not drinking a lot of wine, not greedy for money, 
 >
 ><sup>9</sup> holding the mystery of the faith with a clear conscience. 

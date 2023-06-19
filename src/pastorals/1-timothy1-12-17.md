@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 1 Timothy 1:12-17 Christ Our Salvation
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 1:12–17 (CSB)  
+>1 Timothy 1:12–17 (CSB)  
 ><sup>12</sup> I give thanks to Christ Jesus our Lord who has strengthened me, because he considered me faithful, appointing me to the ministry—
 >
 ><sup>13</sup> even though I was formerly a blasphemer, a persecutor, and an arrogant man. But I received mercy because I acted out of ignorance in unbelief, 

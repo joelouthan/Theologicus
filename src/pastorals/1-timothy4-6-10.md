@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 1 Timothy 4:6-10 Train in Christ
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 4:6–10 (CSB)  
+>1 Timothy 4:6–10 (CSB)  
 ><sup>6</sup> If you point these things out to the brothers and sisters, you will be a good servant of Christ Jesus, nourished by the words of the faith and the good teaching that you have followed. 
 >
 ><sup>7</sup> But have nothing to do with pointless and silly myths. Rather, train yourself in godliness. 

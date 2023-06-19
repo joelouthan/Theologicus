@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 1 Timothy 5:3-16 Christ our Bridegroom
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 5:3–16 (CSB)  
+>1 Timothy 5:3–16 (CSB)  
 ><sup>3</sup> Support widows who are genuinely in need. 
 >
 ><sup>4</sup> But if any widow has children or grandchildren, let them learn to practice godliness toward their own family first and to repay their parents, for this pleases God. 

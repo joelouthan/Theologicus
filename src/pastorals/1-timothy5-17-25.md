@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 1 Timothy 5:17-25 Christ our Eldest Brother
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 5:17–25 (CSB)  
+>1 Timothy 5:17–25 (CSB)  
 ><sup>17</sup> The elders who are good leaders are to be considered worthy of double honor, especially those who work hard at preaching and teaching. 
 >
 ><sup>18</sup> For the Scripture says: Do not muzzle an ox while it is treading out the grain, and, The worker is worthy of his wages. 

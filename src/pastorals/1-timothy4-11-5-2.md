@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 1 Timothy 4:11-5:2 Minister in Christ
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 4:11–5:2 (CSB)  
+>1 Timothy 4:11–5:2 (CSB)  
 ><sup>11</sup> Command and teach these things. 
 >
 ><sup>12</sup> Don’t let anyone despise your youth, but set an example for the believers in speech, in conduct, in love, in faith, and in purity. 

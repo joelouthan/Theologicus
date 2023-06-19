@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 2 Timothy 1:8-12 Saved by God
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">2 Timothy 1:8–12 (CSB)  
+>2 Timothy 1:8–12 (CSB)  
 ><sup> 8 </sup> So don’t be ashamed of the testimony about our Lord, or of me his prisoner. Instead, share in suffering for the gospel, relying on the power of God. 
 >
 ><sup> 9 </sup> He has saved us and called us with a holy calling, not according to our works, but according to his own purpose and grace, which was given to us in Christ Jesus before time began. 

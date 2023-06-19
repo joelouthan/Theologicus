@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 1 Timothy 6:11-16 Contend in Christ
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 6:11–16 (CSB)  
+>1 Timothy 6:11–16 (CSB)  
 ><sup>11</sup> But you, man of God, flee from these things, and pursue righteousness, godliness, faith, love, endurance, and gentleness. 
 >
 ><sup>12</sup> Fight the good fight of the faith. Take hold of eternal life to which you were called and about which you have made a good confession in the presence of many witnesses. 

@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 1 Timothy 4:1-5 Worship Christ
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 4:1–5 (CSB)  
+>1 Timothy 4:1–5 (CSB)  
 ><sup>1</sup> Now the Spirit explicitly says that in later times some will depart from the faith, paying attention to deceitful spirits and the teachings of demons, 
 >
 ><sup>2</sup> through the hypocrisy of liars whose consciences are seared. 

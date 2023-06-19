@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 2 Timothy 1:1-7 Thanks Be To God!
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">2 Timothy 1:1–7 (CSB)  
+>2 Timothy 1:1–7 (CSB)  
 ><sup> 1 </sup> Paul, an apostle of Christ Jesus by God’s will, for the sake of the promise of life in Christ Jesus: 
 >
 ><sup> 2 </sup> To Timothy, my dearly loved son. Grace, mercy, and peace from God the Father and Christ Jesus our Lord. 

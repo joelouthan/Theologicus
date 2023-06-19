@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 1 Timothy 3:1-7 Assemble in Christ
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 3:1–7 (CSB)  
+>1 Timothy 3:1–7 (CSB)  
 ><sup> 1 </sup> This saying is trustworthy: “If anyone aspires to be an overseer, he desires a noble work.” 
 >
 ><sup> 2 </sup> An overseer, therefore, must be above reproach, the husband of one wife, self-controlled, sensible, respectable, hospitable, able to teach, 

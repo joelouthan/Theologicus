@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-paul.jpg">
 
-# Romans 8, Conclusion: Here is Love
+# Romans 8 The Conclusion: Here is Love
 
 ## Here is Love
 

@@ -1,8 +1,10 @@
+<img class="intro-right" src="/images/art-timothy.jpg">
+
 # 1 Timothy 6:17-19 Hope in Christ
 
 ## The Text
 
-><img class="intro-right" src="/images/art-timothy.jpg">1 Timothy 6:17–19 (CSB)  
+>1 Timothy 6:17–19 (CSB)  
 ><sup>17</sup> Instruct those who are rich in the present age not to be arrogant or to set their hope on the uncertainty of wealth, but on God, who richly provides us with all things to enjoy. 
 >
 ><sup>18</sup> Instruct them to do what is good, to be rich in good works, to be generous and willing to share, 
