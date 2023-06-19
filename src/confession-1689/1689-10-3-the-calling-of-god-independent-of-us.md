@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-1689.png">
 
-# 1689 Baptist Confession of Faith, Chapter 10.3 The Calling of God: Independent of Us
+# 1689 Baptist Confession of Faith, Chapter 10.3 The Calling of God Independent of Us
 
 ## The Text
 
