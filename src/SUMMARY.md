@@ -18,7 +18,7 @@
   - [The Holy Spirit as Taught by Christ](creed-apostles/apostles08-the-Holy-Spirit-Christ-said.md)
   - [The Holy Catholic Church](creed-apostles/apostles09-the-holy-catholic-church.md)
   - [The Communion of Saints](creed-apostles/apostles10-communion-of-saints.md)
-  - [The Forgiveness of Sins]()
+  - [The Forgiveness of Sins](creed-apostles/apostles11-forgiveness-of-sins.md)
   - [The Resurrection of the Body]()
   - [Life Everlasting]()
   - [Amen]()
