@@ -602,7 +602,7 @@
   - [Mark 3:28-30 Listen to the Holy Spirit](mark/mark03-28-30.md)
   - [Mark 3:31-35 Jesus is Family](mark/mark03-31-35.md)
   - [Mark 4:1-9 Jesus Teaches, How Do We Respond?](mark/mark04-01-9.md)
-  - [Mark 4:10-13 Jesus Helps Us to Understand, See, Hear, Feel, and Know God](mark/mark04-10-13.md)
+  - [Mark 4:10-13 Jesus is the Only Way to Behold God](mark/mark04-10-13.md)
   - [Mark 4:13-20 Jesus Sows, We Grow](mark/mark04-13-20.md)
   - [Mark 4:21-22 Jesus is the Light](mark/mark04-21-22.md)
   - [Mark 4:23-25 Jesus Gives More, Do We Receive?](mark/mark04-23-25.md)
