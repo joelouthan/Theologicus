@@ -103,11 +103,9 @@ h6:target::before {
 .content a { text-decoration: none; }
 .content a:hover { text-decoration: underline; }
 .content img, .content video { 
-  width: 100px;
   border-radius: 4px;
   margin-right: 15px;
   margin-bottom: 10px;
-  width: 100px;
   float: left;
 }
 .content .header:link,
@@ -128,6 +126,10 @@ bgy {
   margin: 0rem 0;
   float: left;
   border-radius: 4px;
+}
+
+.book {
+    width: 100px;
 }
 
 .intro-left {
