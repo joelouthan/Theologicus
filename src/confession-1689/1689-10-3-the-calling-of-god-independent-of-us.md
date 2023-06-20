@@ -20,6 +20,8 @@
 
 ### who worketh when, and where, and how he pleases
 
+TODO:
+
 >John 3:8 (CSB) The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.”
 
 ### so also are all elect persons, who are incapable of being outwardly called by the ministry of the Word.
