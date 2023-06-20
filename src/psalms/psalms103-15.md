@@ -11,3 +11,15 @@
 <div style="font-variant: small-caps;">
 Lord
 </div>
+
+I am not here for long at all. 
+
+And I wish I had loved you all of my life. 
+
+But I know I will love you for the rest of my life. 
+
+Come get me soon. 
+
+I love you.
+
+Amen.
