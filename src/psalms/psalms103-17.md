@@ -11,3 +11,16 @@
 <div style="font-variant: small-caps;">
 Lord
 </div>
+
+Once invisible now revealed  
+  from faith to faith
+  
+And when you appeared  
+  you saved me
+
+You plucked me out of time and death  
+ And entered me into your precious joy
+  
+Forever and ever
+
+Amen
