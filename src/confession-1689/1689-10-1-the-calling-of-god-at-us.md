@@ -22,16 +22,31 @@
 
 >2 Thessalonians 2:13–14 (CSB) But we ought to thank God always for you, brothers and sisters loved by the Lord, because from the beginning God has chosen you for salvation through sanctification by the Spirit and through belief in the truth. He called you to this through our gospel, so that you might obtain the glory of our Lord Jesus Christ.
 
-TODO:
+As humans, we are made to reflect the image of our Creator. Needless, to say, while we are not all the way exactly like God, we have distinct traits with God in that separates us from the rest of creation. Not cute puppy dogs nor the angels in heavens nor Satan and demons reflect the image of God like we do. With that said, it should be no surprised that the imagebearers of God would do what pleases us because God does exactly what he wants to do that pleases him.
 
-- we always do what pleases us and we think nothing is wrong with that
-- God, the Supreme Ruler, omniscient, omnipotent, ever present, holy, good, righteous, just, merciful, compassion, tender, kind, perfect and glorious, rightfully and truly does what he please
+The obvious difference is that God is the Supreme Ruler, omniscient, omnipotent, ever present, holy, good, righteous, just, merciful, compassion, tender, kind, perfect and glorious--he is perfection. When he does that pleases him, he is the source of good and all that he does is good.
+
+But we, as his creation, will always do what pleases us. So why is that a bad thing? Because we have no good within us and we are not the source of good and because of our fallen sinful state, whatever we do is infected with sin and is not wholly good.
+
+>Isaiah 64:6 (CSB) All of us have become like something unclean, and all our righteous acts are like a polluted garment; all of us wither like a leaf, and our iniquities carry us away like the wind.
+
+>Jeremiah 17:9 (CSB) The heart is deceitful above all things and incurable—who can understand it?
+
+All throughout the history of mankind, we will do something that is evil and sinful and because of God's judgment, we can be turned over to a debased mind to worship what we have created rather the Creator. (Romans 1:18-31).
+
+And we always take it one step more and *celebrate* our sin.
+
+>Romans 1:32 (CSB) Although they know God’s just sentence—that those who practice such things deserve to die—they not only do them, but even applaud others who practice them.
+
+Yet, when God, who is good and the source of all good and does only good, does exactly what pleases him and we *balk* at his audacity.
 
 We do we balk at that?
 
-That "he is pleased in His appointed, and accepted time, effectually to call."
+The best and most succinct passage that deals with the pleasure of God in his calling of his elect to himself is a particular passage that many Christians, and most Evangelicals have balk at.
 
-Romans 9 fleshes this out perfect.
+Romans 9.
+
+Instead of taking Romans 9 in context
 
 >Romans 9:22-26 (CSB) And what if God, wanting to display his wrath and to make his power known, endured with much patience objects of wrath prepared for destruction? And what if he did this to make known the riches of his glory on objects of mercy that he prepared beforehand for glory — on us, the ones he also called, not only from the Jews but also from the Gentiles? As it also says in Hosea,  
 >I will call Not My People, My People,  
