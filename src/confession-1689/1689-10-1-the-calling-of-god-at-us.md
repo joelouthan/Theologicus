@@ -46,7 +46,9 @@ The best and most succinct passage that deals with the pleasure of God in his ca
 
 Romans 9.
 
-Instead of taking Romans 9 in context
+And instead of taking Romans 9 in context of chapter 8, Romans, and the Bible, many Christians have a difficult time dealing with what God does as he pleases and will then try to explain away the text.
+
+What does God, source of all good and is good, wants to do in this case?
 
 >Romans 9:22-26 (CSB) And what if God, wanting to display his wrath and to make his power known, endured with much patience objects of wrath prepared for destruction? And what if he did this to make known the riches of his glory on objects of mercy that he prepared beforehand for glory — on us, the ones he also called, not only from the Jews but also from the Gentiles? As it also says in Hosea,  
 >I will call Not My People, My People,  
@@ -55,31 +57,65 @@ Instead of taking Romans 9 in context
 >you are not my people,  
 >there they will be called sons of the living God.
 
+According to Romans 9, God wants to show mercy.
+
+Why do we balk at that?
+
 God does as he pleases. He is God. He is not like us under some sort of authority. The Triune God is himself authority because he is God. He created everything and he rules and reigns over all.
 
->1 Chronicles 29:10–18 (CSB)  
-><sup>10</sup> Then David blessed the LORD in the sight of all the assembly. David said, May you be blessed, LORD God of our father Israel, from eternity to eternity. 
->
-><sup>11</sup> Yours, LORD, is the greatness and the power and the glory and the splendor and the majesty, for everything in the heavens and on earth belongs to you. Yours, LORD, is the kingdom, and you are exalted as head over all. 
->
-><sup>12</sup> Riches and honor come from you, and you are the ruler of everything. Power and might are in your hand, and it is in your hand to make great and to give strength to all. 
->
-><sup>13</sup> Now therefore, our God, we give you thanks and praise your glorious name. 
->
-><sup>14</sup> But who am I, and who are my people, that we should be able to give as generously as this? For everything comes from you, and we have given you only what comes from your own hand. 
->
-><sup>15</sup> For we are aliens and temporary residents in your presence as were all our ancestors. Our days on earth are like a shadow, without hope. 
->
-><sup>16</sup> LORD our God, all this wealth that we’ve provided for building you a house for your holy name comes from your hand; everything belongs to you. 
->
-><sup>17</sup> I know, my God, that you test the heart and that you are pleased with what is right. I have willingly given all these things with an upright heart, and now I have seen your people who are present here giving joyfully and willingly to you. 
->
-><sup>18</sup> LORD God of Abraham, Isaac, and Israel, our ancestors, keep this desire forever in the thoughts of the hearts of your people, and confirm their hearts toward you.
+In the blessing of the temple, David corporately prays to our God in the midst of the entire nation of Israel. Look at the distinction between God and us.
 
+>1 Chronicles 29:10–12 (CSB) Then David blessed the LORD in the sight of all the assembly. David said, May you be blessed, LORD God of our father Israel, from eternity to eternity. Yours, LORD, is the greatness and the power and the glory and the splendor and the majesty, for everything in the heavens and on earth belongs to you. Yours, LORD, is the kingdom, and you are exalted as head over all. Riches and honor come from you, and you are the ruler of everything. Power and might are in your hand, and it is in your hand to make great and to give strength to all.
+
+God is Lord. God is our Father. God is eternal. God holds greatness, power, glory, splendor and majesty. More so, everything in the heavens and on earth belong to God. His is the kingdom. He is exalted far above all our gods. Whatever riches and honors we think we have, it comes from him. Power and might are in his great and he alone raises up kings and leaders and tears them done.
+
+When we read of this greatness and at the same time, God wants to bestow pure mercy and grace and love and affections upon his people. Should we try, in complete vanity and futility, dismiss what he has done or should we thank our great God?
+
+>1 Chronicles 29:13 (CSB) Now therefore, our God, we give you thanks and praise your glorious name.
+
+Why should we?
+
+>1 Chronicles 29:14 (CSB) But who am I, and who are my people, that we should be able to give as generously as this? For everything comes from you, and we have given you only what comes from your own hand. 
+
+Because we can only receive what is good because nothing in us is good. (Psalm 14; Romans 3:10-12)
+
+>1 Chronicles 29:15 (CSB) For we are aliens and temporary residents in your presence as were all our ancestors. Our days on earth are like a shadow, without hope. 
+
+Because we are temporal creatures temporarily walking through this temporary home just like all the sons of Adam before and after us. We are here but for a fraction of a moment. Our lives are like a vapor on grass and the noon sun comes quickly. (James 4:14)
+
+>1 Chronicles 29:16 (CSB) LORD our God, all this wealth that we’ve provided for building you a house for your holy name comes from your hand; everything belongs to you. 
+
+Whatever we think we can do--build, create, restore, renew or even choose--that comes from God alone.
+
+>1 Chronicles 29:17 (CSB) I know, my God, that you test the heart and that you are pleased with what is right. I have willingly given all these things with an upright heart, and now I have seen your people who are present here giving joyfully and willingly to you. 
+
+Goodness, pleasure, righteousness--God alone.
+
+>1 Chronicles 29:18 (CSB) LORD God of Abraham, Isaac, and Israel, our ancestors, keep this desire forever in the thoughts of the hearts of your people, and confirm their hearts toward you.
+
+Affections, desires, love, thoughts, our new hearts? God alone.
 
 ### by His Word and Spirit, out of that state of sin and death in which they are by nature, to grace and salvation by Jesus Christ;
 
 >Ephesians 2:1–6 (CSB) And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. But God, who is rich in mercy, because of his great love that he had for us, made us alive with Christ even though we were dead in trespasses. You are saved by grace! He also raised us up with him and seated us with him in the heavens in Christ Jesus,
+
+And
+
+>Titus 3:3–7 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior so that, having been justified by his grace, we may become heirs with the hope of eternal life.
+
+And
+
+>John 3:7-8 (CSB) Do not be amazed that I told you that you must be born again. The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.”
+
+And
+
+>John 3:14-17 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life. For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
+
+The Triune God--Father, Son, and the Holy Spirit--from eternity to eternity, saw a most wicked and depraved people who strived to run from his presence and goodness. We were made from dust and we are futile in everything we do. We sometimes even pretend to do what is good but only not to face all the consequences. But this lie only delays the evitable.
+
+God saw us in our vain, debased, depravity, and wickedness. He saw that no one was going to choose him. And in his tender mercies and sweetest grace, he rescues and redeems us. Not just a promises but the ultimate accomplish done--by the life and death of his wonderful, only begotten Son, Jesus Christ, Son of God, who is God, who perfectly, definitely, completely saved his people from their sins by the power of the Holy Spirit.
+
+Who is like our God and who can compare to him? He alone is worthy.
 
 ### enlightening their minds spiritually and savingly to understand the things of God;
 
@@ -87,9 +123,19 @@ God does as he pleases. He is God. He is not like us under some sort of authorit
 
 >Ephesians 1:17–18 (CSB) I pray that the God of our Lord Jesus Christ, the glorious Father, would give you the Spirit of wisdom and revelation in the knowledge of him. I pray that the eyes of your heart may be enlightened so that you may know what is the hope of his calling, what is the wealth of his glorious inheritance in the saints,
 
+>1 Corinthians 2:12 (CSB) Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God.
+
+Knowing God is not a intellectual pursuit. It is not based on what you know. For you and I to know God, God must make us new creatures from the inside out.
+
+>Romans 3:10–12 (CSB) as it is written: There is no one righteous, not even one. There is no one who understands; there is no one who seeks God. All have turned away; all alike have become worthless. There is no one who does what is good, not even one.
+
+If someone who is not righteous, does not understand, does not seek after God but in fact, turned away from God, is worthless before God, does not do good **and** yet, for us to see God and understand God is good in the sight of God, how is this possible?
+
 ### taking away their heart of stone, and giving to them a heart of flesh;
 
 >Ezekiel 36:26 (CSB) I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh.
+
+Swapping our old dead, rock hearts for a new soft heart with new desires for him. And a new heart is not complete without his Spirit inside of us to give us life and keep us alive to him forever.
 
 ### renewing their wills, and by His almighty power determining them to that which is good, and effectually drawing them to Jesus Christ;
 
@@ -99,8 +145,46 @@ God does as he pleases. He is God. He is not like us under some sort of authorit
 
 >Ephesians 1:19 (CSB) and what is the immeasurable greatness of his power toward us who believe, according to the mighty working of his strength.
 
+Does the Spirit does this saving work over the course of one's life or in a moment? The answer is yes. The Holy Spirit is all powerful, eternal, and never ceasing--he constantly and consistently at work within each of us--not just for believers but for the unbelievers and Satan and demons as well.
+
+>John 16:7–11 (CSB) Nevertheless, I am telling you the truth. It is for your benefit that I go away, because if I don’t go away the Counselor will not come to you. If I go, I will send him to you. When he comes, he will convict the world about sin, righteousness, and judgment: About sin, because they do not believe in me; about righteousness, because I am going to the Father and you will no longer see me; and about judgment, because the ruler of this world has been judged.
+
 ### yet so as they come most freely, being made willing by His grace.
+
+>Psalms 18:17-19 (CSB) He rescued me from my powerful enemy  
+>and from those who hated me,  
+>for they were too strong for me.  
+>They confronted me in the day of my calamity,  
+>but the LORD was my support.  
+>He brought me out to a spacious place;  
+>he rescued me because he delighted in me.
+>
+>Psalms 116:8 (CSB) For you, LORD, rescued me from death,  
+>my eyes from tears,  
+>my feet from stumbling.
+>
+>Psalms 34:4 (CSB) I sought the LORD, and he answered me  
+>and rescued me from all my fears.
+
+We too were once disobedient and enslaved and dead in our sins. How does God respond?
+
+>Psalms 81:7 (CSB) You called out in distress, and I rescued you;  
+>I answered you from the thundercloud.  
+>I tested you at the Waters of Meribah. *Selah*
+
+>Psalms 103:13-14 (CSB) As a father has compassion on his children,  
+>so the LORD has compassion on those who fear him.  
+>For he knows what we are made of,  
+>remembering that we are dust.
+
+We have been rescued and redeemed by the precious blood of Christ. And God rescues >us from sin, Satan, demons, hell, and death.
+
+Now we possess the heart of the Father and the Spirit of the only begotten Son! What shall we do?
 
 >Psalm 110:3 (CSB) Your people will volunteer on your day of battle. In holy splendor, from the womb of the dawn, the dew of your youth belongs to you.
 
+And now we rest because we have assurance because we have the Christ!
+
 >Song of Solomon 1:4 (CSB) Take me with you—let’s hurry. Oh, that the king would bring me to his chambers. We will rejoice and be glad in you; we will celebrate your caresses more than wine. It is only right that they adore you.
+
+Amen.
