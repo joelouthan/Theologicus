@@ -8,7 +8,7 @@
 
 And
 
->1 Corinthians 2:10–12 (CSB)  Now God has revealed these things to us by the Spirit, since the Spirit searches everything, even the depths of God. 11 For who knows a person’s thoughts except his spirit within him? In the same way, no one knows the thoughts of God except the Spirit of God. 12 Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God.
+>1 Corinthians 2:10–12 (CSB) Now God has revealed these things to us by the Spirit, since the Spirit searches everything, even the depths of God. For who knows a person’s thoughts except his spirit within him? In the same way, no one knows the thoughts of God except the Spirit of God. Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God.
 
 And
 
