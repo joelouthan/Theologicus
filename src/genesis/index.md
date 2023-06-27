@@ -12,7 +12,7 @@ Here just the very small list of resources on Genesis that I have found most hel
 
 ## It Goes Without Say
 
-<img src="/images/bible-csb-study.jpg">Christian Standard Bible  
+<img src="/images/art-creation-portrait.png" hidden><img src="/images/bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
 [Goodreads](https://www.goodreads.com/book/show/30746885-csb-study-bible)
 
