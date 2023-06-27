@@ -6,9 +6,22 @@
 
 So why start up a new series? Do I need another series like I need another hole in my head? Perhaps.
 
-We moved to Kentucky from Oklahoma in early 2022 with my in-laws coming with. I started this series in anticipation that we might not find a local church instantly (Note: despite the published date, I am writing this on October 15, 2022. In short, God provided quickly. Praise be to God. - Ed.) and wanted to be prepared from the jump not going to church for a long while. Keeping it all the way real with you: I knew my in-laws would be slow going to church (Note: they still haven't gone. Pray for them. - Also, Ed.) and wanted to provide the word of God to them.
+We moved to Kentucky from Oklahoma in early 2022 with my in-laws coming with. I started this series in anticipation that we might not find a local church instantly (Note: despite the published date, I am writing this on October 15, 2022. In short, God provided quickly. Praise be to God. - Ed.) and wanted to be prepared from the jump not going to church for a long while. Keeping it all the way real with you: I knew my in-laws would be slow going to church and wanted to provide the word of God to them. [^prayer]
 
 We did end up finding a church April and have been faithfully attending. It was God's grace I started this series and his grace, I will finish it.
+
+## An Update
+
+I need y'all to look at God! What he started, he will finish!
+
+I just finished teaching my [first series](../ruth/) at my church, [Reforming Truth (Lexington, KY)](https://theologic.us/) and was giving some thought on what my next series will be. 
+
+Matthew seems as natural as the next step because:
+
+- The end of Ruth is the beginning of Matthew. That is, the genealogy of Jesus.
+- Still building on and running with what the elders were teaching through: Chad Bird's [The Christ Key](https://www.goodreads.com/book/show/58373755-the-christ-key).
+- I have a truckload of resources on Matthew. (See below.)
+- Lastly, I prepped the entire book of Matthew already. I just need to write it out.
 
 ## It Goes Without Say
 
@@ -77,6 +90,15 @@ Baker. 2009.
 
 <hr style="clear:both;">
 
+<img src="/images/book-christ-key-bird.jpg">The Christ Key  
+Chad Bird.  
+1517 Publishing. July 30, 2021.  
+[Goodreads](https://www.goodreads.com/book/show/58373755-the-christ-key)
+
+This book should not have been as controversial in my local church as you would think. But it was. I will spare you the details but suffice to say, our little church became quickly aware of terms like and the astute differences between historical-grammatical and redemptive-historical hermeneutics. I became Calvinistic just a few months after God saved me so I have always had this understanding because I sat under Reformed or Calvinist teachers. But imagine if you did not grow up in church learning that all of Scripture is about Jesus. Then all of sudden, all of the Scripture is about Christ. That type of revelation could be a shock to the system. If you are not familiar with redemptive-historical hermeneutics, I recommend this book as an excellent primer.
+
+<hr style="clear:both;">
+
 <img src="/images/commentary-matthew-sproul.jpg">Matthew: An Expositional Commentary  
 R.C. Sproul.  
 Ligonier Ministries. October 29, 2019.
@@ -112,3 +134,7 @@ The authors are top notch. This will be referenced for sure.
 Charles L. Quarles.  
 Lexham Academic. 2023.  
 [Goodreads](https://www.goodreads.com/book/show/62157376-matthew?from_search=true&from_srp=true&qid=dbeLIqrV0q&rank=4)
+
+<hr style="clear:both;">
+
+[^prayer]: As of writing this, my in-laws have not found a church. But I do want to praise my God because for the last two weeks, they have been popping out of bed to get to church. Praise be to God!
