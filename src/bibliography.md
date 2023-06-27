@@ -55,7 +55,7 @@ Zondervan. 2011.
 
 <img src="/images/book-christ-key-bird.jpg">The Christ Key  
 Chad Bird.  
-1517 Publishing. July 30, 2021 .
+1517 Publishing. July 30, 2021.  
 [Goodreads](https://www.goodreads.com/book/show/58373755-the-christ-key)
 
 <hr style="clear:both;">
