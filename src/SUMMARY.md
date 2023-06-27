@@ -547,7 +547,7 @@
 - [Haggai]()
 - [Zechariah]()
 - [Malachi]()
-- [Matthew](matthew/index.md)
+- [▶Matthew](matthew/index.md)
   - [Matthew 1:1 Jesus Christ is Our Gospel](matthew/matthew01-01-jesus-christ-is-our-gospel.md)
   - [Matthew 1:1-6 Jesus Christ is Our Perfection](matthew/matthew01-01-06-jesus-christ-is-our-perfection.md)
   - [Matthew 1:7-11 Jesus Christ is Our Lineage](matthew/matthew01-07-11-jesus-christ-is-our-lineage.md)
