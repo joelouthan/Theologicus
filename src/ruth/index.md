@@ -30,7 +30,7 @@ Join us for the story of Ruth.
 
 ## It Goes Without Say
 
-<img src="/images/bible-csb-study.jpg">Christian Standard Bible  
+<img src="/images/art-ruth-naomi.jpg" hidden><img src="/images/bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
 [Goodreads](https://www.goodreads.com/book/show/30746885-csb-study-bible)
 
