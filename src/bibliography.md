@@ -53,6 +53,13 @@ Zondervan. 2011.
 
 ## Books
 
+<img src="/images/book-the-christ-key-bird.jpg">The Christ Key  
+Chad Bird.  
+1517 Publishing. July 30, 2021 .
+[Goodreads](https://www.goodreads.com/book/show/58373755-the-christ-key)
+
+<hr style="clear:both;">
+
 <img src="/images/book-all-that-is-God-dolezal.jpg">All That Is in God: Evangelical Theology and the Challenge of Classical Christian Theism.  
 James E. Dolezal.  
 Reformation Heritage Books. 2017.  
