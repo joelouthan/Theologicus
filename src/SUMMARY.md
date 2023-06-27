@@ -1,13 +1,13 @@
 # Summary
 
-[Introduction](introduction.md)
+[Introduction](index.md)
 
 -----------
 
 # Creeds
 
-- [Apostles](creed-apostles/apostles.md)
-  - [An Introduction & Resources](creed-apostles/apostles00.md)
+- [Apostles](creed-apostles/index.md)
+  - [An Introduction & Resources](creed-apostles/apostles00-intro.md)
   - [God the Father Almighty](creed-apostles/apostles01-God-the-Father.md)
   - [God the Creator of Heaven and Earth](creed-apostles/apostles02-Creator.md)
   - [Jesus Christ, His Only Son, Our Lord](creed-apostles/apostles03-Jesus-Christ-only-Son.md)
@@ -31,8 +31,8 @@
 
 # Confessions
 
-- [Second London Baptist Confession of Faith](confession-1689/1689-0.md)
-  - [Introduction & Recommended Resources](confession-1689/1689-00.md)
+- [Second London Baptist Confession of Faith](confession-1689/index.md)
+  - [Introduction & Recommended Resources](confession-1689/1689-00-intro.md)
   - [I. Of The Holy Scriptures](confession-1689/1689-01-1-on-holy-scripture.md)
     - [The Old and New Testaments of Holy Scripture](confession-1689/1689-01-2-old-and-new-testaments.md)
     - [The Apocrypha of Holy Scripture](confession-1689/1689-01-3-the-apocrypha-of-holy-scripture.md)
@@ -140,7 +140,7 @@
 
 # Commentaries
 
-- [Genesis](genesis/genesis00.md)
+- [Genesis](genesis/index.md)
   - [Genesis 1:1 Our Forever Love](genesis/genesis01-1.md)
   - [Genesis 1:1-5 Our Forever Wisdom](genesis/genesis01-1-5.md)
   - [Genesis 1:6-13 Our Forever Home](genesis/genesis01-6-13.md)
@@ -223,7 +223,7 @@
 - [Deuteronomy]()
 - [Joshua]()
 - [Judges]()
-- [Ruth](ruth/ruth00.md)
+- [Ruth](ruth/index.md)
   - [Ruth 1:1-7 By God's Goodness, He Predestined Us](ruth/ruth1-1-7.md)
   - [Ruth 1:16-22 By God's Goodness and Loving-Kindness, He Saved Us](ruth/ruth1-16-22.md)
   - [Ruth 1:8-15 By God's Kindness, He Predestined Us](ruth/ruth1-8-15.md)
@@ -244,7 +244,7 @@
 - [Nehemiah]()
 - [Esther]()
 - [Job]()
-- [Psalms](psalms/psalm00.md)
+- [Psalms](psalms/index.md)
   - [Psalm 1](psalms/psalm001.md)
   - [Psalm 2](psalms/psalm002.md)
   - [Psalm 3](psalms/psalm003.md)
@@ -547,7 +547,7 @@
 - [Haggai]()
 - [Zechariah]()
 - [Malachi]()
-- [Matthew](matthew/matthew00.md)
+- [Matthew](matthew/index.md)
   - [Matthew 1:1 Jesus Christ is the Good News](matthew/matthew01-01.md)
   - [Matthew 1:1-6 Jesus Christ is Our Perfection](matthew/matthew01-06.md)
   - [Matthew 1:7–12 Jesus Christ is Our Lineage](matthew/matthew01-07-12.md)
@@ -579,7 +579,7 @@
   - [Matthew 6:12,14-15 Pray Like This: Forgive Us--Help Us to Forgive](matthew/matthew06-12_14-15-the-lords-prayer-forgive-us.md)
   - [Matthew 6:13 Pray Like This: Deliver Us From Evil](matthew/matthew06-13-the-lords-prayer-deliver-us-from-evil.md)
   - [Matthew 6:13b Pray Like This: Yours is The Kingdom, O Lord](matthew/matthew06-13b-the-lords-prayer-yours-is-the-kingdom.md)
-- [Mark](mark/mark00.md)
+- [Mark](mark/index.md)
   - [Mark 1:1 Jesus is the Good News](mark/mark01-01.md)
   - [Mark 1:2-6 Jesus is the Center of Our Lives](mark/mark01-02-6.md)
   - [Mark 1:7-8 Jesus Baptizes Us in the Holy Spirit](mark/mark01-07-8.md)
@@ -684,7 +684,7 @@
   - [Mark 16:9-12 Every Step Is Joy: Christ Has Defeated Satan, Demons, Sin, Hell, And Death For Us](mark/mark16-09-12.md)
   - [Mark 16:12-13 Every Step Is Joy: Christ Has Saved His People From Their Sins](mark/mark16-12-13.md)
   - [Mark 16:14-20 Go And Do Likewise](mark/mark16-14-20.md)
-- [Luke](luke/luke00.md)
+- [Luke](luke/index.md)
   - [Luke 1-2:21 The Incarnation of the Word of God](luke/luke01-01-02-21.md)
   - [Luke 2:22-52 Jesus Christ Grew in Wisdom and Stature](luke/luke02-22-52.md)
   - [Luke 3:1–20 Who Heralds The Kingdom of God?](luke/luke03-20.md)
@@ -716,7 +716,7 @@
   - [Luke 24 Christ Lives](luke/luke24.md)
 - [John]()
 - [Acts]()
-- [Romans](romans/romans00.md)
+- [Romans](romans/index.md)
   - [Romans 1:1 God Alone Saves](romans/romans01-01-.md)
   - [Romans 1:1-7 God Alone Fulfills His Promises](romans/romans01-01-07.md)
   - [Romans 1:8-12 God Alone Reigns](romans/romans01-08-12.md)
@@ -797,7 +797,7 @@
 - [Colossians]()
 - [1 Thessalonians]()
 - [2 Thessalonians]()
-- [1 Timothy](pastorals/0pastorals00.md)
+- [1 Timothy](pastorals/index.md)
   - [1 Timothy 1:1-11 Christ Our Grace](pastorals/1-timothy1-1-11.md)
   - [1 Timothy 1:12-17 Christ Our Salvation](pastorals/1-timothy1-12-17.md)
   - [1 Timothy 1:18-20 Christ Our All](pastorals/1-timothy1-18-20.md)
@@ -816,7 +816,7 @@
   - [1 Timothy 6:11-16 Contend in Christ](pastorals/1-timothy6-11-16.md)
   - [1 Timothy 6:17-19 Hope in Christ](pastorals/1-timothy6-17-19.md)
   - [1 Timothy 6:20-21 Be With Christ](pastorals/1-timothy6-20-21.md)
-- [2 Timothy](pastorals/0pastorals00.md)
+- [2 Timothy](pastorals/index.md)
   - [2 Timothy 1:1-7 Thanks Be To God!](pastorals/2-timothy1-1-7.md)
   - [2 Timothy 1:8-12 Saved by God](pastorals/2-timothy1-8-12.md)
   - [2 Timothy 1:13-2:2 Taught By God](pastorals/2-timothy1-13-2-2.md)
@@ -827,7 +827,7 @@
   - [2 Timothy 3:13-17 Called by God](pastorals/2-timothy3-13-17.md)
   - [2 Timothy 4:1-5 Charged by God](pastorals/2-timothy4-1-5.md)
   - [2 Timothy 4:6-22 Glorified by God](pastorals/2-timothy4-6-22.md)
-- [Titus](pastorals/0pastorals00.md)
+- [Titus](pastorals/index.md)
   - [Titus 1:1-4 Minister Like This: Know God](pastorals/titus1-1-4.md)
   - [Titus 1:10-16 Minister Like This: Fear God](pastorals/titus1-10-16.md)
   - [Titus 1:5-9 Minister Like This: Love God](pastorals/titus1-5-9.md)
