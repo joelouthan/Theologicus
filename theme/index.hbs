@@ -60,28 +60,23 @@
         <!-- MathJax -->
         <script async src="https://cdnjs.cloudflare.com/ajax/libs/mathjax/2.7.1/MathJax.js?config=TeX-AMS-MML_HTMLorMML"></script>
         {{/if}}
-
-        <!-- Make the first image is the og:image and twitter:image-->
-        <script>
-          document.addEventListener('DOMContentLoaded', function () {
-            var images = document.querySelectorAll('img');
-            var firstImage = images[0];
-            var headTag = document.getElementsByTagName('head')[0];
-
-            if (firstImage) {
-              var ogImageMetaTag = document.createElement('meta');
-              ogImageMetaTag.setAttribute('property', 'og:image');
-              ogImageMetaTag.setAttribute('content', firstImage.src);
-              headTag.appendChild(ogImageMetaTag);
-
-              var twitterImageMetaTag = document.createElement('meta');
-              twitterImageMetaTag.setAttribute('name', 'twitter:image');
-              twitterImageMetaTag.setAttribute('content', firstImage.src);
-              headTag.appendChild(twitterImageMetaTag);
-            }
-          });
-        </script>
-
+        
+        <!-- Facebook Meta Tags -->
+        <meta property="og:type" content="website">
+        <meta property="og:title" content="{{ title }}">
+        <meta property="og:description"
+          content="{{ description }}">
+        <meta property="og:image" content="/images/social-og-book-theologicus3.png">
+        
+        <!-- Twitter Meta Tags -->
+        <meta name="twitter:card" content="summary_large_image">
+        <meta property="twitter:domain" content="theologic.us">
+        <meta name="twitter:title" content="{{ title }}">
+        <meta name="twitter:description"
+          content="{{ description }}">
+        <meta name="twitter:image" content="/images/social-twitter-book-theologicus3.png">
+        
+        <!-- Meta Tags Generated via https://www.opengraph.xyz -->
 
     </head>
     <body>
