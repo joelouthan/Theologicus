@@ -61,6 +61,10 @@
         <!-- MathJax -->
         <script async src="https://cdnjs.cloudflare.com/ajax/libs/mathjax/2.7.1/MathJax.js?config=TeX-AMS-MML_HTMLorMML"></script>
         {{/if}}
+        
+        <!-- Make the first image the og:image -->
+        <head id="dynamic-meta">
+
     </head>
     <body>
     <div id="body-container">
@@ -322,5 +326,19 @@
         {{/if}}
 
     </div>
+
+    <!-- Make the first image the og:image -->
+    <script>
+      document.addEventListener('DOMContentLoaded', function () {
+        var firstImage = document.querySelector('img');
+        var headTag = document.getElementById('dynamic-meta');
+        var metaTag = document.createElement('meta');
+
+        metaTag.setAttribute('property', 'og:image');
+        metaTag.setAttribute('content', firstImage.src);
+        headTag.appendChild(metaTag);
+      });
+    </script>
+
     </body>
 </html>
