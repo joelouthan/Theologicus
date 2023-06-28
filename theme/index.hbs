@@ -320,31 +320,25 @@
         </script>
         {{/if}}
         {{/if}}
-        <!-- Make the first image the og:image -->
+        <!-- Make the first image is the og:image and twitter:image-->
         <script>
           document.addEventListener('DOMContentLoaded', function () {
-            var firstImage = document.querySelector('img');
-            var headTag = document.getElementById('dynamic-meta');
-            var metaTag = document.createElement('meta');
-
-            metaTag.setAttribute('property', 'og:image');
-            metaTag.setAttribute('content', firstImage.src);
-            headTag.appendChild(metaTag);
-          });
-        </script>
-        
-        <!-- Make the first image the twitter:image -->
-        <script>
-          document.addEventListener('DOMContentLoaded', function () {
-            var firstImage = document.querySelector('img');
+            var images = document.querySelectorAll('img');
+            var firstImage = images[0];
             var headTag = document.getElementById('dynamic-meta');
 
-            var metaTag = document.createElement('meta');
-            metaTag.setAttribute('name', 'twitter:image');
-            metaTag.setAttribute('content', firstImage.src);
-            headTag.appendChild(metaTag);
+            var ogImageMetaTag = document.createElement('meta');
+            ogImageMetaTag.setAttribute('property', 'og:image');
+            ogImageMetaTag.setAttribute('content', firstImage.src);
+            headTag.appendChild(ogImageMetaTag);
+
+            var twitterImageMetaTag = document.createElement('meta');
+            twitterImageMetaTag.setAttribute('name', 'twitter:image');
+            twitterImageMetaTag.setAttribute('content', firstImage.src);
+            headTag.appendChild(twitterImageMetaTag);
           });
         </script>
+
     </div>
 
     </body>
