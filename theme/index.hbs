@@ -1,6 +1,6 @@
 <!DOCTYPE HTML>
 <html lang="{{ language }}" class="sidebar-visible no-js {{ default_theme }}">
-    <head>
+    <head id="dynamic-meta">
         <!-- Book generated using mdBook -->
         <meta charset="UTF-8">
         <title>{{ title }}</title>
@@ -10,7 +10,6 @@
         {{#if base_url}}
         <base href="{{ base_url }}">
         {{/if}}
-
 
         <!-- Custom HTML head -->
         {{> head}}
@@ -61,9 +60,6 @@
         <!-- MathJax -->
         <script async src="https://cdnjs.cloudflare.com/ajax/libs/mathjax/2.7.1/MathJax.js?config=TeX-AMS-MML_HTMLorMML"></script>
         {{/if}}
-        
-        <!-- Make the first image the og:image -->
-        <head id="dynamic-meta">
 
     </head>
     <body>
