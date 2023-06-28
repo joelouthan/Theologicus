@@ -340,5 +340,18 @@
       });
     </script>
 
+    <!-- Make the first image the twitter:image -->
+    <script>
+      document.addEventListener('DOMContentLoaded', function () {
+        var firstImage = document.querySelector('img');
+        var headTag = document.getElementById('dynamic-meta');
+
+        var metaTag = document.createElement('meta');
+        metaTag.setAttribute('name', 'twitter:image');
+        metaTag.setAttribute('content', firstImage.src);
+        headTag.appendChild(metaTag);
+      });
+    </script>
+
     </body>
 </html>
