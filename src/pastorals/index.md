@@ -12,7 +12,7 @@ And then, just have breakfast with a mentor, he suggested journaling my thoughts
 
 ## It Goes Without Say
 
-<img src="/images/art-timothy-titus-portrait.png" hidden><img src="/images/bible-csb-study.jpg">Christian Standard Bible  
+<img src="/images/art-timothy-titus-portrait.jpg" hidden><img src="/images/bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
 [Goodreads](https://www.goodreads.com/book/show/30746885-csb-study-bible)
 

@@ -10,7 +10,7 @@ I hope to write a commentary on the Psalms. In the meantime, I will pray through
 
 ## It Goes Without Say
 
-<img src="/images/art-david-portrait.png" hidden><img src="/images/bible-csb-study.jpg">Christian Standard Bible  
+<img src="/images/art-david-portrait.jpg" hidden><img src="/images/bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
 [Goodreads](https://www.goodreads.com/book/show/30746885-csb-study-bible)
 
