@@ -66,19 +66,22 @@
           document.addEventListener('DOMContentLoaded', function () {
             var images = document.querySelectorAll('img');
             var firstImage = images[0];
-            var headTag = document.getElementById('dynamic-meta');
+            var headTag = document.getElementsByTagName('head')[0];
 
-            var ogImageMetaTag = document.createElement('meta');
-            ogImageMetaTag.setAttribute('property', 'og:image');
-            ogImageMetaTag.setAttribute('content', firstImage.src);
-            headTag.appendChild(ogImageMetaTag);
+            if (firstImage) {
+              var ogImageMetaTag = document.createElement('meta');
+              ogImageMetaTag.setAttribute('property', 'og:image');
+              ogImageMetaTag.setAttribute('content', firstImage.src);
+              headTag.appendChild(ogImageMetaTag);
 
-            var twitterImageMetaTag = document.createElement('meta');
-            twitterImageMetaTag.setAttribute('name', 'twitter:image');
-            twitterImageMetaTag.setAttribute('content', firstImage.src);
-            headTag.appendChild(twitterImageMetaTag);
+              var twitterImageMetaTag = document.createElement('meta');
+              twitterImageMetaTag.setAttribute('name', 'twitter:image');
+              twitterImageMetaTag.setAttribute('content', firstImage.src);
+              headTag.appendChild(twitterImageMetaTag);
+            }
           });
         </script>
+
 
     </head>
     <body>
