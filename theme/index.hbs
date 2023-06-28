@@ -1,6 +1,6 @@
 <!DOCTYPE HTML>
 <html lang="{{ language }}" class="sidebar-visible no-js {{ default_theme }}">
-    <head id="dynamic-meta">
+    <head>
         <!-- Book generated using mdBook -->
         <meta charset="UTF-8">
         <title>{{ title }}</title>
@@ -60,6 +60,25 @@
         <!-- MathJax -->
         <script async src="https://cdnjs.cloudflare.com/ajax/libs/mathjax/2.7.1/MathJax.js?config=TeX-AMS-MML_HTMLorMML"></script>
         {{/if}}
+
+        <!-- Make the first image is the og:image and twitter:image-->
+        <script>
+          document.addEventListener('DOMContentLoaded', function () {
+            var images = document.querySelectorAll('img');
+            var firstImage = images[0];
+            var headTag = document.getElementById('dynamic-meta');
+
+            var ogImageMetaTag = document.createElement('meta');
+            ogImageMetaTag.setAttribute('property', 'og:image');
+            ogImageMetaTag.setAttribute('content', firstImage.src);
+            headTag.appendChild(ogImageMetaTag);
+
+            var twitterImageMetaTag = document.createElement('meta');
+            twitterImageMetaTag.setAttribute('name', 'twitter:image');
+            twitterImageMetaTag.setAttribute('content', firstImage.src);
+            headTag.appendChild(twitterImageMetaTag);
+          });
+        </script>
 
     </head>
     <body>
@@ -320,24 +339,6 @@
         </script>
         {{/if}}
         {{/if}}
-        <!-- Make the first image is the og:image and twitter:image-->
-        <script>
-          document.addEventListener('DOMContentLoaded', function () {
-            var images = document.querySelectorAll('img');
-            var firstImage = images[0];
-            var headTag = document.getElementById('dynamic-meta');
-
-            var ogImageMetaTag = document.createElement('meta');
-            ogImageMetaTag.setAttribute('property', 'og:image');
-            ogImageMetaTag.setAttribute('content', firstImage.src);
-            headTag.appendChild(ogImageMetaTag);
-
-            var twitterImageMetaTag = document.createElement('meta');
-            twitterImageMetaTag.setAttribute('name', 'twitter:image');
-            twitterImageMetaTag.setAttribute('content', firstImage.src);
-            headTag.appendChild(twitterImageMetaTag);
-          });
-        </script>
 
     </div>
 
