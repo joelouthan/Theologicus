@@ -54,7 +54,7 @@
 ><sup>25</sup> Now to him who is able to strengthen you according to my gospel and the proclamation about Jesus Christ, according to the revelation of the mystery kept silent for long ages 
 >
 ><sup>26</sup> but now revealed and made known through the prophetic Scriptures, according to the command of the eternal God to advance the obedience of faith among all the Gentiles—
-
+>
 ><sup>27</sup> to the only wise God, through Jesus Christ—to him be the glory forever! Amen.
 
 ## Our God
