@@ -76,13 +76,13 @@ But now that we are righteous before God, we get to be pure and holy.
 
 >1 Corinthians 13:4 (CSB)  
 ><sup> 4 </sup> Love is patient, love is kind. Love does not envy, is not boastful, is not arrogant,
-
+>
 >Ephesians 4:32 (CSB)  
 ><sup> 32 </sup> And be kind and compassionate to one another, forgiving one another, just as God also forgave you in Christ.
-
+>
 >Luke 6:35 (CSB)  
 ><sup> 35 </sup> But love your enemies, do what is good, and lend, expecting nothing in return. Then your reward will be great, and you will be children of the Most High. For he is gracious to the ungrateful and evil.
-
+>
 >Colossians 3:12–13 (CSB)  
 ><sup> 12 </sup> Therefore, as God’s chosen ones, holy and dearly loved, put on compassion, kindness, humility, gentleness, and patience, 
 >
@@ -100,10 +100,7 @@ But now that we are righteous before God, we get to be pure and holy.
 >1 John 3:18 (CSB)  
 ><sup> 18 </sup> Little children, let us not love in word or speech, but in action and in truth.
 
->1 Peter 3:8–9 (CSB)  
-><sup> 8 </sup> Finally, all of you be like-minded and sympathetic, love one another, and be compassionate and humble, 
->
-><sup> 9 </sup> not paying back evil for evil or insult for insult but, on the contrary, giving a blessing, since you were called for this, so that you may inherit a blessing.
+>1 Peter 3:8–9 (CSB)  Finally, all of you be like-minded and sympathetic, love one another, and be compassionate and humble, not paying back evil for evil or insult for insult but, on the contrary, giving a blessing, since you were called for this, so that you may inherit a blessing.
 
 Being kind is its own reward. If that is not enough, it is a clear command from God.
 
@@ -139,10 +136,11 @@ The ESV rightly calls this atoning sacrifice, "the propitiation for our sins." I
 
 ## The Discussion
 
->1. Who can define self-control and kindness and gentleness?
+1. Who can define self-control and kindness and gentleness?
 
->2. Who can define how to love one another?
+2. Who can define how to love one another?
 
->3. Where does love come from?
+3. Where does love come from?
 
->4. What is greatest example of everything that God command us to do?
+4. What is greatest example of everything that God command us to do?
+

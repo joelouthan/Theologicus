@@ -10,7 +10,7 @@
 ><sup> 7 </sup> I have fought the good fight, I have finished the race, I have kept the faith. 
 >
 ><sup> 8 </sup> There is reserved for me the crown of righteousness, which the Lord, the righteous Judge, will give me on that day, and not only to me, but to all those who have loved his appearing.
-
+>
 ><sup> 9 </sup> Make every effort to come to me soon, 
 >
 ><sup> 10 </sup> because Demas has deserted me, since he loved this present world, and has gone to Thessalonica. Crescens has gone to Galatia, Titus to Dalmatia. 
@@ -187,10 +187,10 @@ Amen.
 
 ## The Discussion
 
->1. Have you thought about your last years on earth?
+1. Have you thought about your last years on earth?
 
->2. What do you think you want to do in ministry to God and to others?
+2. What do you think you want to do in ministry to God and to others?
 
->3. What is stopping you from starting?
+3. What is stopping you from starting?
 
->4. Why can't you start now?
+4. Why can't you start now?
