@@ -49,11 +49,11 @@ You have to have God first before you can pray to him. How do you pray to God wh
 >Matthew 6:5-9
 
 ><sup>5</sup> Whenever you pray...
-
+>
 ><sup>6</sup> But when you pray...
-
+>
 ><sup>7</sup> When you pray....
-
+>
 ><sup>9</sup>Therefore, you should pray like this...
 
 >Matthew 9:35-38 (CSB) Jesus continued going around to all the towns and villages, teaching in their synagogues, preaching the good news of the kingdom, and healing every disease and every sickness. When he saw the crowds, he felt compassion for them, because they were distressed and dejected, like sheep without a shepherd. Then he said to his disciples, “The harvest is abundant, but the workers are few. Therefore, pray to the Lord of the harvest to send out workers into his harvest.”
