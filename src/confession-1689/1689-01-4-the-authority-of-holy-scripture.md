@@ -68,11 +68,11 @@ We could say that the Bible is about anything. And for the most part, we would b
 Or let David sing of these truths:
 
 ><sup> 7  </sup>The instruction of the LORD is perfect, renewing one’s life; the testimony of the LORD is trustworthy, making the inexperienced wise.
-
+>
 ><sup> 8  </sup>The precepts of the LORD are right, making the heart glad; the command of the LORD is radiant, making the eyes light up.
-
+>
 ><sup> 9  </sup>The fear of the LORD is pure, enduring forever; the ordinances of the LORD are reliable and altogether righteous.
-
+>
 ><sup> 10  </sup>They are more desirable than gold— than an abundance of pure gold; and sweeter than honey dripping from a honeycomb.
 
 Let me speak to one thing: acknowledging the authority of Scripture is one thing. But receiving and believing it is another. In the day and age where we can look back in history all the way to Adam, where Satan continuously makes war against the word of God and will continue to send false teachers and false prophets to keep twisting the Bible for their own ill-gotten gains.

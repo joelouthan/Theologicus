@@ -36,7 +36,7 @@
 ><sup> 44 </sup> No one can come to me unless the Father who sent me draws him, and I will raise him up on the last day. 
 >
 ><sup> 45 </sup> It is written in the Prophets: And they will all be taught by God. Everyone who has listened to and learned from the Father comes to me—
-
+>
 ><sup> 46 </sup> not that anyone has seen the Father except the one who is from God. He has seen the Father.
 
 ## The Chapter
