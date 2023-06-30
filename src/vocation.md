@@ -3,8 +3,8 @@
 ## Summary
 
 <div class="container-resume">
-  <div class="profile-pic">
-    <img src="/images/jlouthan-ai-starry-back-500-01.png">
+  <div class="about">
+    <img class="profile-pic" src="/images/jlouthan-ai-starry-back-500-01.png">
   </div>
   <div class="text-resume">
     Nearly 30 years IT experience<br>

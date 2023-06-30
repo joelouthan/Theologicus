@@ -148,7 +148,7 @@ bgy {
   float: right !important;
 }
 
-.profile-pic {
+.about {
   display: flex;
   align-items: flex-start;
   vertical-align: top;
@@ -158,7 +158,7 @@ bgy {
   text-align: center;
 }
 
-.profile-pic img{
+.profile-pic {
   float: left;
   padding-right: 20px !important;
   padding-left: 20px !important;
