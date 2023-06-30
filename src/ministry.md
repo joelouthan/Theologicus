@@ -1,6 +1,17 @@
 # Joseph Louthan
 
-<img class="profile-pic" src="/images/jlouthan-ai-starry-back-500-01.png">
+## About
+
+<img class="profile-pic" style="width:179px" src="/images/jlouthan-ai-starry-back-500-01.png">
+Trying to waste my time with God. Preacher of the Gospel. Writing at Theologicus. StarCraft 2 Elderly.
+
+>No pen, no words, no image can express to you the loveliness of my only, only Lord Jesus.
+>
+>Samuel Rutherford.
+
+<p style="clear:both;">
+
+## Contact
 
 <div class="contact-info">
 
@@ -8,16 +19,6 @@
   [![StarCraft 2](https://img.shields.io/badge/StarCraft%202-Nachoz-80A6C6?style=for-the-badge)](https://starcraft2.com/en-us/profile/1/1/9753175)
 
 </div>
-
-<p style="clear:both;">
-
-## About
-
-Trying to waste my time with God. Preacher of the Gospel. Writing at Theologicus. StarCraft 2 Elderly.
-
->No pen, no words, no image can express to you the loveliness of my only, only Lord Jesus.
->
->Samuel Rutherford.
 
 <p style="clear:both;">
 

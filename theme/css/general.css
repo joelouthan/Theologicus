@@ -149,6 +149,16 @@ bgy {
 }
 
 .profile-pic {
+  display: flex;
+  align-items: flex-start;
+  vertical-align: top;
+  flex-direction: column;
+  margin: auto;
+  padding: 0px;
+  text-align: center;
+}
+
+.profile-pic img{
   float: left;
   padding-right: 20px !important;
   padding-left: 20px !important;
@@ -186,7 +196,7 @@ bgy {
 
 .text-resume {
   flex: 1;
-  margin-left: 20px;
+  margin-left: 0px;
 }
 
 .contact-info img {

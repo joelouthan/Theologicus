@@ -1,6 +1,14 @@
 # Joseph Louthan
 
-<img class="profile-pic" src="/images/jlouthan-ai-starry-back-500-01.png">
+## About
+
+<img class="profile-pic" src="/images/jlouthan-ai-starry-back-500-01.png">Trying to spend all of days with God. Belong to my Beloved and my Beloved is mine forevermore. Also, Sarah's husband and papa to a few. Residing in Versailles, KY. Member at [Reforming Truth Church](https://reformingtruth.church). Joyfully ex-Evangelical turned Reformed Baptist--[1689 Confessional](confession-1689/1689-0-0.md).
+
+All of my life to live all of my days to express just how much he loves us. Hope to preach the goodness of God. Therefore, everything I do now is to prepare me so that I can preach for the rest of my life--every day and twice on Sunday.
+
+And with 15 to 30 minutes to spare, [pretty mediocre at StarCraft 2](https://starcraft2.com/en-us/profile/1/1/9753175).
+
+## Contact
 
 <div class="contact-info">
 
@@ -10,11 +18,3 @@
 </div>
 
 <p style="clear:both;">
-
-## About
-
-Trying to spend all of days with God. Belong to my Beloved and my Beloved is mine forevermore. Also, Sarah's husband and papa to a few. Residing in Versailles, KY. Member at [Reforming Truth Church](https://reformingtruth.church). Joyfully ex-Evangelical turned Reformed Baptist--[1689 Confessional](confession-1689/1689-0-0.md).
-
-All of my life to live all of my days to express just how much he loves us. Hope to preach the goodness of God. Therefore, everything I do now is to prepare me so that I can preach for the rest of my life--every day and twice on Sunday.
-
-And with 15 to 30 minutes to spare, [pretty mediocre at StarCraft 2](https://starcraft2.com/en-us/profile/1/1/9753175).
