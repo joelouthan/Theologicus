@@ -1,1 +1,0 @@
-# Behold Our God
