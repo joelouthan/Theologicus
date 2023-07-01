@@ -11,3 +11,7 @@
 <div style="font-variant: small-caps;">
 Lord
 </div>
+
+You are God alone
+  before all time
+  //TODO: 
