@@ -73,7 +73,7 @@ We pilgrims
   and aliens  
   sojourning  
   and wandering  
-  through this earht  
+  through this earth  
   just like all of our forefathers before us  
   Our days here  
   are like a shadow  
@@ -97,8 +97,8 @@ I know you
   with you.
 
 Lord God  
-  of Abraham, Isaac, and Israel,
-  my fathers,
+  of Abraham, Isaac, and Israel,  
+  my fathers,  
   make your home in me  
   and your Spirit to dwell in me  
   because Christ lives in me  
