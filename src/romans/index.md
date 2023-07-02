@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-paul.jpg">
 
-# The Epistle to the Romans: An Introduction & Recommendations
+# The Epistle to the Romans: An Introduction & Resources
 
 ## The Introduction
 
@@ -24,11 +24,11 @@ I keep going back to the books written by the really old. The ones who have seen
 
 And at the moment, Theologicus is not it. Like Calvin's Institutes, it will always be a work in progress as long as Christ keeps me here.
 
-## The Recommendations
+## The Resources
 
 Here just the very small list of resources on Romans that I have found most helpful.
 
-## It Goes Without Say
+### It Goes Without Say
 
 <img src="/images/bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
@@ -82,7 +82,7 @@ Zondervan. 2011.
 
 <hr style="clear:both;">
 
-## Commentaries & Books
+### Commentaries & Books
 
 <img src="/images/commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
 John Calvin.  

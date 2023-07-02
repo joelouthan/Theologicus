@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-ruth-naomi.jpg">
 
-# Ruth: An Introduction & Recommendations
+# Ruth: An Introduction & Resources
 
 ## The Introduction
 
@@ -28,7 +28,9 @@ Her sister, Orpah, made her choice. She went back into familarity and certainity
 
 Join us for the story of Ruth.
 
-## It Goes Without Say
+## The Resources
+
+### It Goes Without Say
 
 <img src="/images/art-ruth-naomi-portrait.jpg" hidden><img src="/images/bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
@@ -82,7 +84,7 @@ Zondervan. 2011.
 
 <hr style="clear:both;">
 
-## Commentaries & Books
+### Commentaries & Books
 
 <img src="/images/commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
 by John Calvin.  

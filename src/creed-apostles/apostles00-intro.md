@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-apostles-creed.png">
 
-# The Apostles' Creed: An Introduction & Recommendations
+# The Apostles' Creed: An Introduction & Resources
 
 <p style="clear:both;">
 
@@ -113,7 +113,7 @@ And with this creed, declare what they declared: that Jesus Christ is Lord.
 
 >Hosea 4:6 (CSB) My people are destroyed for lack of knowledge. Because you have rejected knowledge, I will reject you from serving as my priest. Since you have forgotten the law of your God, I will also forget your sons.
 
-## Recommended Resources
+## The Resources
 
 ### Books
 

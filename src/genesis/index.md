@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-creation.png">
 
-# Genesis: An Introduction & Recommendations
+# Genesis: An Introduction & Resources
 
 ## The Introduction
 
@@ -10,7 +10,9 @@ The real answer is that this is a sincere challenge and I want to walk through i
 
 Here just the very small list of resources on Genesis that I have found most helpful.
 
-## It Goes Without Say
+## The Resources
+
+### It Goes Without Say
 
 <img src="/images/art-creation-portrait.png" hidden><img src="/images/bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
@@ -64,7 +66,7 @@ Zondervan. 2011.
 
 <hr style="clear:both;">
 
-## Commentaries & Books
+### Commentaries & Books
 
 I don't have a personal insightful recommendation on the following. I just wanted to have a stack of resources that I can check by and draw from if I need to.
 

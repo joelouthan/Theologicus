@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-matthew.jpg">
 
-# Matthew: An Introduction & Recommendations
+# Matthew: An Introduction & Resources
 
 ## The Introduction
 
@@ -23,7 +23,9 @@ Matthew seems as natural as the next step because:
 - I have a truckload of resources on Matthew. (See below.)
 - Lastly, I prepped the entire book of Matthew already. I just need to write it out.
 
-## It Goes Without Say
+## The Resources
+
+### It Goes Without Say
 
 <img src="/images/art-matthew-portrait.jpg" hidden><img src="/images/bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
@@ -77,7 +79,7 @@ Zondervan. 2011.
 
 <hr style="clear:both;">
 
-## Commentaries & Books
+### Commentaries & Books
 
 I don't have a personal insightful recommendation on the following. I just wanted to have a stack of resources that I can check and draw from if I need to.
 

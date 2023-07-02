@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
-# Praying Through Psalms, An Introduction & Recommendations
+# Praying Through Psalms, An Introduction & Resources
 
 ## The Introduction
 
@@ -8,7 +8,9 @@ I hope to write a commentary on the Psalms. In the meantime, I will pray through
 
 <hr style="clear:both;">
 
-## It Goes Without Say
+## The Resources
+
+### It Goes Without Say
 
 <img src="/images/art-david-portrait.jpg" hidden><img src="/images/bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
@@ -62,7 +64,7 @@ Zondervan. 2011.
 
 <hr style="clear:both;">
 
-## Commentaries & Books
+### Commentaries & Books
 
 <img src="/images/commentary-calvin-set-portrait.jpg" >Calvin's Commentaries.  
 by John Calvin.  

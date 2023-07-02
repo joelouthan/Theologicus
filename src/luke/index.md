@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-luke.jpg">
 
-# Luke: An Introduction & A Few Resources
+# Luke: An Introduction & Resources
 
 ## The Introduction
 
@@ -14,7 +14,9 @@ The fruit has been outstanding. And not to go all pragmatic, but my children, no
 
 After finishing the catechism, I will start to integrate this, other catechism, and confessions into my devotional writing. I suspect I will move back into Luke after Milk for Little Ones.
 
-## It Goes Without Say
+## The Resources
+
+### It Goes Without Say
 
 <img src="/images/art-luke-portrait.jpg" hidden><img src="/images/bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
@@ -68,7 +70,7 @@ Zondervan. 2011.
 
 <hr style="clear:both;">
 
-## Commentaries & Books
+### Commentaries & Books
 
 <img src="/images/commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
 by John Calvin.  

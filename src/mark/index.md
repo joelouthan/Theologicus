@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-mark.jpg">
 
-# The Gospel of Mark: An Introduction & Recommendations
+# The Gospel of Mark: An Introduction & Resources
 
 ## The Introduction
 
@@ -26,7 +26,7 @@ As for leading your family through devotions, don't think of outright preaching 
 >
 >Sinclair Ferguson. [What Kind of Instrument Are You (in Relationship to Young People)?](http://www.sermonaudio.com/playpopup.asp?SID=3912953483). (_formerly Sin: A Dominion Ended: Romans_). Audio.
 
-## The Recommendations
+## The Resources
 
 ### It Goes Without Say
 

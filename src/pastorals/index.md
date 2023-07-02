@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-timothy-titus.jpg">
 
-# The Pastoral Epistles: An Introduction & Recommendations
+# The Pastoral Epistles: An Introduction & Resources
 
 ## The Introduction
 
@@ -10,7 +10,9 @@ I was saved by Christ in April of 2007. Six months later, I wanted to preach the
 
 And then, just have breakfast with a mentor, he suggested journaling my thoughts on the Pastoral Epistles. These are those thoughts.
 
-## It Goes Without Say
+## The Resources
+
+### It Goes Without Say
 
 <img src="/images/art-timothy-titus-portrait.jpg" hidden><img src="/images/bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
@@ -64,7 +66,7 @@ Zondervan. 2011.
 
 <hr style="clear:both;">
 
-## Commentaries & Books
+### Commentaries & Books
 
 <img src="/images/commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
 by John Calvin.  

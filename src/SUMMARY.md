@@ -32,7 +32,7 @@
 # Confessions
 
 - [Second London Baptist Confession of Faith](confession-1689/index.md)
-  - [Introduction & Recommended Resources](confession-1689/1689-00-intro.md)
+  - [Introduction & Resources](confession-1689/1689-00-intro.md)
   - [I. Of The Holy Scriptures](confession-1689/1689-01-1-on-holy-scripture.md)
     - [The Old and New Testaments of Holy Scripture](confession-1689/1689-01-2-old-and-new-testaments.md)
     - [The Apocrypha of Holy Scripture](confession-1689/1689-01-3-the-apocrypha-of-holy-scripture.md)
