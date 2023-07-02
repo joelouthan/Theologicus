@@ -12,6 +12,8 @@
 
 ## The Resources
 
+<img class="intro-right" src="/images/art-darkness-crucifixion-dore.jpg" hidden>
+
 - No Condemnation
 - Cross of Christ
 - Knowing God
