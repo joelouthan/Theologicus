@@ -135,7 +135,6 @@
 # Doctrine
 
 - [Christ Came To Save Sinners](doctrine-christ-saves/index.md)
-  - [Christ Came To Save Sinners](doctrine-god-saves/01-christ-came-to-save-sinners.md)
   - [Behold Our God](doctrine-god-saves/02-behold-our-god.md)
   - [The Weight of Our Sin](doctrine-god-saves/03-the-weight-of-our-sin.md)
   - [The Perfection of His Word](doctrine-god-saves/04-the-perfection-of-his-word.md)
