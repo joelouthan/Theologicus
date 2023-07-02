@@ -21,7 +21,7 @@ In a way, if the Bible is a love letter from God to me, then Theologicus is my l
 
 ## The Text
 
-In essence, Theologicus is my exposition of Psalms 17:15.
+In essence, Theologicus--all of my completed works, sermons, commentaries and study notes--is my exposition of Psalms 17:15.
 
 >Psalms 17:15 (CSB) But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
 
