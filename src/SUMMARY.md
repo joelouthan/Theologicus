@@ -19,7 +19,7 @@
   - [The Holy Catholic Church](creed-apostles/apostles09-the-holy-catholic-church.md)
   - [The Communion of Saints](creed-apostles/apostles10-communion-of-saints.md)
   - [The Forgiveness of Sins](creed-apostles/apostles11-forgiveness-of-sins.md)
-  - [The Resurrection of the Body]()
+  - [The Resurrection of the Body](creed-apostles/apostles12-resurrection-of-body.md)
   - [Life Everlasting]()
   - [Amen]()
 
