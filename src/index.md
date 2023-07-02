@@ -2,6 +2,8 @@
 
 # Theologicus: The Complete Works in Progress
 
+## The Thought
+
 >No pen, no words, no image can express to you the loveliness of my only, only Lord Jesus.  
 >\- Samuel Rutherford
 
@@ -17,4 +19,10 @@ I know that is absolutely true. I know I don't have enough time left on this ear
 
 In a way, if the Bible is a love letter from God to me, then Theologicus is my love letter right back at God. This is my little way of telling my Christ, "When I finally see you, I will hold your face and kiss your face with a thousand kisses because you are so beautiful to me and you have loved me the best."
 
+## The Text
+
+In essence, Theologicus is my exposition of Psalms 17:15.
+
 >Psalms 17:15 (CSB) But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
+
+Corem Deo. I will live before the face of my God. And I know that one day, I will behold my God.
