@@ -456,7 +456,7 @@
   - [Psalm 100 Goodness](psalms/psalm100.md)
   - [Psalm 101 Worthy](psalms/psalm101.md)
   - [Psalm 102 Forever](psalms/psalm102.md)
-  - [Psalm 103](psalms/psalms103.md)
+  - [Psalm 103](psalms/psalm103.md)
   - [Psalm 104]()
   - [Psalm 105]()
   - [Psalm 106]()
