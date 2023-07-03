@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
-# Praying Through: Psalm 103 I Will Bless My Lord Forever
+# Praying Through: Psalm 103 Forgiving
 
 ## The Psalm
 
