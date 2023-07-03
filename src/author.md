@@ -6,7 +6,7 @@
 
 All of my life to live all of my days to express just how much he loves us. Hope to preach the goodness of God. Therefore, everything I do now is to prepare me so that I can preach for the rest of my life--every day and twice on Sunday.
 
-And with 15 to 30 minutes to spare, [pretty mediocre at StarCraft 2](https://starcraft2.com/en-us/profile/1/1/9753175).
+And with any 15 to 30 minutes to spare in my day, I'm [pretty mediocre at StarCraft 2](https://starcraft2.com/en-us/profile/1/1/9753175).
 
 ## Contact
 
