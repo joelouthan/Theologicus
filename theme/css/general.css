@@ -132,7 +132,7 @@ bgy {
 }
 
 .intro-left {
-  width: 100px !important;
+  width: 90px !important;
   margin-left: 0px !important;
   margin-right: 10px !important;
   border-radius: 10px;
@@ -141,7 +141,7 @@ bgy {
 }
 
 .intro-right {
-  width: 100px !important;
+  width: 90px !important;
   border-radius: 10px !important;
   margin-left: 15px !important;
   margin-right: 0px !important;
