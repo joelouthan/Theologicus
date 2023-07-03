@@ -10,7 +10,7 @@ We moved to Kentucky from Oklahoma in early 2022 with my in-laws coming with. I 
 
 We did end up finding a church April and have been faithfully attending. It was God's grace I started this series and his grace, I will finish it.
 
-## An Update
+### An Update
 
 I need y'all to look at God! What he started, he will finish!
 
