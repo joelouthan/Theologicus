@@ -2,8 +2,6 @@
 
 # The Apostles' Creed: An Introduction & Resources
 
-<p style="clear:both;">
-
 ## The Introduction
 
 Why exposit the Apostles' Creed or any creed whatsoever?
@@ -117,7 +115,7 @@ And with this creed, declare what they declared: that Jesus Christ is Lord.
 
 ### Books
 
-<img src="/images/art-apostles-creed-portrait.png" hidden><img src="/images/book-all-that-is-God-dolezal.jpg">All That Is in God: Evangelical Theology and the Challenge of Classical Christian Theism.  
+<img src="/images/art-apostles-creed-portrait.png" hidden><img src="/images/theology-all-that-is-God-dolezal.jpg">All That Is in God: Evangelical Theology and the Challenge of Classical Christian Theism.  
 James E. Dolezal.  
 Reformation Heritage Books. 2017.  
 [Goodreads](https://www.goodreads.com/book/show/35783848-all-that-is-in-god?from_search=true&from_srp=true&qid=HZn57Z1Qqc&rank=3)
