@@ -2,6 +2,8 @@
 
 # The Apostles' Creed
 
+## The Creed
+
 >I believe in God, the Father Almighty,  
 >the Creator of heaven and earth,  
 >and in Jesus Christ, His only Son, our Lord:  
