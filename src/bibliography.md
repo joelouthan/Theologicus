@@ -67,6 +67,13 @@ Crossway, 2012.
 
 <hr style="clear:both;">
 
+<img src="images/book-cross-of-christ-stott.jpg">.  
+The Cross of Christ.  
+John R.W. Stott. 2006.  
+[Goodreads](https://www.goodreads.com/book/show/73188.The_Cross_of_Christ)
+
+<hr style="clear:both;">
+
 <img src="images/book-no-condemnation-winslow.jpg">No Condemnation in Christ Jesus: As Unfolded in the Eighth Chapter of the Epistle to the Romans  
 Octavius Winslow.  
 Banner of Trust. 1991.  
