@@ -81,6 +81,13 @@ Banner of Trust. 1991.
 
 <hr style="clear:both;">
 
+<img src="images/book-on-the-incarnation-athanasius.jpg">  
+Athanasius of Alexandria.  
+St. Vladimir's Seminary Press. 1977.  
+[Goodreads](https://www.goodreads.com/book/show/673655.On_the_Incarnation)
+
+<hr style="clear:both;">
+
 ## Expositions
 
 <img src="images/confession-1689-judacious-reader-renihan.png">To the Judicious and Impartial Reader: Baptist Symbolics Volume 2.  
