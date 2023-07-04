@@ -1024,7 +1024,6 @@
 - [Reviews](reviews/index.md)
   - [Cur Deus Homo by Anselm of Canterbury](reviews/cur-deus-homo.md)
   - [The Death of Death in the Death of Christ by John Owen](reviews/the-death-of-death-in-the-death-of-christ.md)
-  - [Delighting in the Trinity by Michael Reeves](reviews/delighting-in-the-trinity.md)
   - [Eccentric Preachers by Charles Spurgeon](reviews/eccentric-preachers.md)
   - [Finally Alive by John Piper](reviews/finally-alive.md)
   - [In Christ Alone: Living the Gospel-Centered Life by Sinclair B. Ferguson](reviews/in-christ-alone-living-the-gospel-centered-life.md)
