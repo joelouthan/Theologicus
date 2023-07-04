@@ -409,7 +409,10 @@ Lexham Press. 2021.
 
 ## Preaching
 
-[![The Supremacy of God in Preaching by John Piper](images/preaching-supremacy-of-God-in-preaching-piper.jpg)]
+[<img src="images/preaching-supremacy-of-God-in-preaching-piper.jpg">The Supremacy of God in Preaching](reviews/the-supremacy-of-god-in-preaching.md).  
+John Piper.  
+Baker Books. 2004.  
+[Goodreads](https://www.goodreads.com/book/show/210220.The_Supremacy_of_God_in_Preaching)
 
 ## Sermons
 
@@ -485,7 +488,7 @@ Crossway. 2022.
 
 <hr style="clear:both;">
 
-<img src="images/theology-knowing-god-packer.jpg">Knowing God.  
+[<img src="images/theology-knowing-god-packer.jpg">Knowing God](reviews/knowing-god.md).  
 J.I. Packer.  
 Crossway. 2023.  
 [Goodreads](https://www.goodreads.com/book/show/65685346-knowing-god)
