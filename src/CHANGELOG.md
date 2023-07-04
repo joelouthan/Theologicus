@@ -2,10 +2,15 @@
 
 All notable changes to this project will be documented in this file.
 
+## 3.2 (2023-07-04)
+
+- [Reviews](reviews/index.md)
+- Wordcount: 680499[^wordcount]
+
 ## 3.1 (2023-06-14)
 
-- [The Story of Ruth](ruth/ruth00.md)
-- Wordcount: 659293[^wordcount]
+- [The Story of Ruth](ruth/index.md)
+- Wordcount: 659293
 
 ## 3.0 (2023-06-09)
 
@@ -18,19 +23,19 @@ All notable changes to this project will be documented in this file.
 
 ## 2.4 (2023-04-13)
 
-- [The Epistle to the Romans](romans/romans00.md)
+- [The Epistle to the Romans](romans/index.md)
 
 ## 2.3 (2023-02-08)
 
-- [The Gospel of Mark](mark/mark00.md)
+- [The Gospel of Mark](mark/index.md)
 
 ## 2.2 (2022-09-08)
 
-- [The Pastoral Epistles](pastorals/0-pastorals.md)
+- [The Pastoral Epistles](pastorals/index.md)
 
 ## 2.1 (2021-04-29)
 
-- [The Gospel of Luke](luke/luke00.md)
+- [The Gospel of Luke](luke/index.md)
 
 ## 2.0 (2020-04-20)
 
@@ -41,7 +46,7 @@ All notable changes to this project will be documented in this file.
 ## 1.3 (2019-11-28)
 
 - Doctrine: The Lord's Prayer
-  - *merged with [Matthew](matthew/matthew00.md)*
+  - *merged with [Matthew](matthew/index.md)*
 
 ## 1.2 (2018-07-05)
 
