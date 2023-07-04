@@ -2,17 +2,19 @@
 
 ## upcoming
 
-- [Apostles' Creed](creed-apostles/apostles00.md)  
-- [1689 Second London Baptist Confession](confession-1689/1689-00.md)  
+- [Apostles' Creed](creed-apostles/index.md)
+- [1689 Second London Baptist Confession](confession-1689/index.md)
+- [Christ Came to Save Sinners](doctrine-christ-saves/index.md)
 
 ## releases
 
-- v3.1 (2023-06-14) [Ruth](ruth/ruth00.md)
+- v3.2 (2023-07-04) [Book Reviews](reviews/index.md)
+- v3.1 (2023-06-14) [Ruth](ruth/index.md)
 - v3.0 (2023-06-09) [Hugo to mdBook](https://theologic.us)
-- v2.4 (2023-04-13) [The Epistle to the Romans](romans/romans00.md)
-- v2.3 (2023-02-08) [The Gospel of Mark](mark/mark00.md)
-- v2.2 (2022-09-08) [The Pastoral Epistles](pastorals/pastorals00.md)
-- v2.1 (2021-04-29) [The Gospel of Luke](luke/luke00.md)
+- v2.4 (2023-04-13) [The Epistle to the Romans](romans/index.md)
+- v2.3 (2023-02-08) [The Gospel of Mark](mark/index.md)
+- v2.2 (2022-09-08) [The Pastoral Epistles](pastorals/index.md)
+- v2.1 (2021-04-29) [The Gospel of Luke](luke/index.md)
 - v2.0 (2020-04-20) [Migrated from Wordpress to Hugo](https://github.com/joelouthan/theologic.us)
 
 ## using
