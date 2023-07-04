@@ -1,3 +1,7 @@
+<img class="intro-right" src="/images/">
+
 # Reviews, An Introduction
 
-TODO: Write an introduction to the reviews section.
+Since the books I have read and the reviews I have written were such the catalyst to all of Theologicus, I have included them here.
+
+Enjoy.
