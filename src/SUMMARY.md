@@ -1021,7 +1021,10 @@
 
 -----------
 
-[Bibliography](bibliography.md)
+- [Bibliography](bibliography.md)
+
+- [Reviews](reviews/index.md)
+  - [Cur Deus Homo by Anselm of Canterbury](reviews/cur-deus-homo.md)
 
 -----------
 
