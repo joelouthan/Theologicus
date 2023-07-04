@@ -154,8 +154,6 @@
   - [Spirit Gives Us Growth](doctrine-christ-saves/17-spirit-gives-us-growth.md)
   - [Spirit Gives Us Life Forever](doctrine-christ-saves/18-spirit-gives-us-life-forever.md)
 
------------
-
 # Commentaries
 
 - [Genesis](genesis/index.md)
@@ -1019,14 +1017,25 @@
 - [Jude]()
 - [Revelation]()
 
------------
+# Books
 
 - [Bibliography](bibliography.md)
 
 - [Reviews](reviews/index.md)
   - [Cur Deus Homo by Anselm of Canterbury](reviews/cur-deus-homo.md)
+  - [The Death of Death in the Death of Christ by John Owen](reviews/the-death-of-death-in-the-death-of-christ.md)
+  - [Delighting in the Trinity by Michael Reeves](reviews/delighting-in-the-trinity.md)
+  - [Eccentric Preachers by Charles Spurgeon](reviews/eccentric-preachers.md)
+  - [Finally Alive by John Piper](reviews/finally-alive.md)
+  - [In Christ Alone: Living the Gospel-Centered Life by Sinclair B. Ferguson](reviews/in-christ-alone-living-the-gospel-centered-life.md)
+  - [Knowing God by J.I. Packer](reviews/knowing-god.md)
+  - [The Mortification of Sin by John Owen](reviews/the-mortification-of-sin.md)
+  - [No Condemnation in Christ Jesus by Octavius Winslow](reviews/no-condemnation-in-christ-jesus.md)
+  - [On The Incarnation by Athanasius of Alexandria](reviews/on-the-incarnation.md)
+  - [Pastrix by Nadia Bolz-Weber](reviews/pastrix.md)
+  - [The Supremacy of God in Preaching by John Piper](reviews/the-supremacy-of-god-in-preaching.md)
 
------------
+# About
 
 [Author](author.md)
 
