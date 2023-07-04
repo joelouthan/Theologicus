@@ -74,6 +74,15 @@ John R.W. Stott. 2006.
 
 <hr style="clear:both;">
 
+[<img src="images/book-death-of-death-owen.jpg">The Death of Death in the Death of Christ](reviews/the-death-of-death-in-the-death-of-christ.md).  
+John Owen.  
+Banner of Truth. 2007.  
+[Goodreads](https://www.goodreads.com/book/show/14061614-the-death-of-death-in-the-death-of-christ)
+
+<hr style="clear:both;">
+
+
+
 [<img src="images/book-no-condemnation-winslow.jpg">No Condemnation in Christ Jesus: As Unfolded in the Eighth Chapter of the Epistle to the Romans](reviews/no-condemnation-in-christ-jesus.md).  
 Octavius Winslow.  
 Banner of Trust. 1991.  
