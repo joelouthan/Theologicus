@@ -1029,10 +1029,9 @@
   - [Finally Alive by John Piper](reviews/finally-alive.md)
   - [In Christ Alone: Living the Gospel-Centered Life by Sinclair B. Ferguson](reviews/in-christ-alone-living-the-gospel-centered-life.md)
   - [Knowing God by J.I. Packer](reviews/knowing-god.md)
-  - [The Mortification of Sin by John Owen](reviews/the-mortification-of-sin.md)
   - [No Condemnation in Christ Jesus by Octavius Winslow](reviews/no-condemnation-in-christ-jesus.md)
   - [On The Incarnation by Athanasius of Alexandria](reviews/on-the-incarnation.md)
-  - [Pastrix by Nadia Bolz-Weber](reviews/pastrix.md)
+  - [Pastrix: The Cranky, Beautiful Faith of a Sinner & Saint by Nadia Bolz-Weber](reviews/pastrix.md)
   - [The Supremacy of God in Preaching by John Piper](reviews/the-supremacy-of-god-in-preaching.md)
 
 # About
