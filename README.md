@@ -3,7 +3,7 @@
 ## upcoming
 
 - [Apostles' Creed](src/creed-apostles/index.md)
-- [Matthew](matthew/index.md)
+- [Matthew](src/matthew/index.md)
 - [1689 Second London Baptist Confession](src/confession-1689/index.md)
 - [Christ Came to Save Sinners](src/doctrine-christ-saves/index.md)
 
