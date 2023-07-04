@@ -391,6 +391,10 @@ Lexham Press. 2021.
 
 <hr style="clear:both;">
 
+## Preaching
+
+[![The Supremacy of God in Preaching by John Piper](images/preaching-supremacy-of-God-in-preaching-piper.jpg)]
+
 ## Sermons
 
 <img src="images/sermons-complete-luther.jpg">The Complete Sermons.  
