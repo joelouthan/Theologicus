@@ -74,14 +74,14 @@ John R.W. Stott. 2006.
 
 <hr style="clear:both;">
 
-<img src="images/book-no-condemnation-winslow.jpg">No Condemnation in Christ Jesus: As Unfolded in the Eighth Chapter of the Epistle to the Romans  
+[<img src="images/book-no-condemnation-winslow.jpg">No Condemnation in Christ Jesus: As Unfolded in the Eighth Chapter of the Epistle to the Romans](reviews/no-condemnation-in-christ-jesus.md).  
 Octavius Winslow.  
 Banner of Trust. 1991.  
 [Goodreads](https://www.goodreads.com/book/show/4011534-no-condemnation-in-christ-jesus?ac=1&from_search=true&qid=K1waoHAVw7&rank=1)
 
 <hr style="clear:both;">
 
-<img src="images/book-on-the-incarnation-athanasius.jpg">  
+[<img src="images/book-on-the-incarnation-athanasius.jpg">On the Incarnation](reviews/on-the-incarnation.md).  
 Athanasius of Alexandria.  
 St. Vladimir's Seminary Press. 1977.  
 [Goodreads](https://www.goodreads.com/book/show/673655.On_the_Incarnation)
