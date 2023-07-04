@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/">
+<img class="intro-right" src="/images/book-in-christ-alone-ferguson.jpg">
 
 # In Christ Alone: Living the Gospel-Centered Life by Sinclair B. Ferguson
 
