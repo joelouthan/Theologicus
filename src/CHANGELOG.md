@@ -1,10 +1,10 @@
-# Change Log
+# Changelog
 
 All notable changes to this project will be documented in this file.
 
 ## 3.2 (2023-07-04)
 
-- [Reviews](reviews/index.md)
+- [Book Reviews](reviews/index.md)
 - Wordcount: 680499[^wordcount]
 
 ## 3.1 (2023-06-14)
