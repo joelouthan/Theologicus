@@ -140,6 +140,8 @@ God is not above ordaining the worst kinds of evil if it means that his people a
 
 >1 John 2:16 (CSB) For everything in the world—the lust of the flesh, the lust of the eyes, and the pride in one’s possessions—is not from the Father, but is from the world.
 
+>Ecclesiastes 7:29 (CSB) Only see this: I have discovered that God made people upright, but they pursued many schemes.”
+
 And if any of this does not make sense for your life or my life, consider this.
 
 It pleased God to ordain the sins of Judas Iscariot to betray his perfect and only begotten Jesus Christ who is always perfect innocent.  Just as he rose the Pharaoh to power and crushed in order to save Moses and his people, so to he rose his son and was pleased to crush him in order all who looked upon his Son would be saved.
