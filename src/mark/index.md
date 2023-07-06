@@ -96,7 +96,7 @@ Baker. 2009.
 <img src="/images/commentary-mark-sproul.jpg">Mark: An Expositional Commentary  
 by R.C. Sproul.  
 Reformation Trust Publisher. 2011.  
-[Goodreads](https://www.goodreads.com/book/show/13329901-mark?ac=1&from_search=true&qid=AjPCOwNAXj&rank=1)
+[Goodreads](https://www.goodreads.com/book/show/13329901-mark)
 
 If you had to get just one commentary series to collect, get this one. There are just seven in the series with [Luke](https://amzn.to/3cCPxYr) was just released.
 
