@@ -32,6 +32,8 @@ git-repository-icon = "fa-github"
 no-section-label = true
 edit-url-template = "https://github.com/joelouthan/theologicus/edit/main/{path}"
 
+#[output.linkcheck]
+
 [output.html.search]
 enable = true            # enables the search feature
 limit-results = 30       # maximum number of search results
