@@ -4,7 +4,7 @@
 
 ## The Introduction
 
-I finished up [The Gospel of Mark](/mark/mark00.md) with my stepkids. Now I have little bitty kids.
+I finished up [The Gospel of Mark](/mark/index.md) with my stepkids. Now I have little bitty kids.
 
 This started out as a mere outline for Luke's Gospel. But because of the youth of my kids (pre-kindergarten whenw e started), I wanted to fold in some catechism. So I integrated the Westminster Shorter Catechism into the readings of Luke.
 
@@ -82,7 +82,7 @@ Baker. 2009.
 <img src="/images/commentary-luke-sproul.jpg" >Luke: An Expositional Commentary  
 R.C. Sproul.  
 Reformation Trust Publisher. 2020.  
-[Goodreads](https://www.goodreads.com/book/show/55161506-luke?ac=1&from_search=true&qid=K4nUVlQD4D&rank=1)
+[Goodreads](https://www.goodreads.com/book/show/55161506-luke)
 
 This is fresh off the presses. I have read [Romans, John, Mark, Acts, 1 & 2 Peter, and Matthew](https://amzn.to/3jc5I02) from this set. I can easily recommend every single one of them.
 
@@ -101,7 +101,7 @@ When I started up this series, I was hard up for good Luke resources. God's pure
 
 <hr style="clear:both;">
 
-<img src="https://images-na.ssl-images-amazon.com/images/I/514L+mWU6kL._SX331_BO1,204,203,200_.jpg" />Luke (NIVAC).  
+<img src="/images/commentary-luke-bock.jpg" />Luke (NIVAC).  
 Darrell L. Bock.  
 Zondervan. 1996.
 
