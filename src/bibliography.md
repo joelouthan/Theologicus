@@ -8,6 +8,8 @@
 
 </style>
 
+<!-- toc -->
+
 ## Bibles
 
 {{#include bibliography/biblio-bibles.md}}
