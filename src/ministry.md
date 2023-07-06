@@ -114,7 +114,7 @@ It is like I ask my kids, "Does God have T-Rex arms?" Of course He doesn't. He i
 
 I am Creedal and abide in the [Apostles' Creed](/creed-apostles/apostles.md), Nicene, Chalcedonian, and Athanasian Creed.
 
-I am Confessional and confess the 1689 Second London Baptist Confession. My exposition of the 1689 Confession is [here](/confession-1689/1689-00.md).
+I am Confessional and confess the 1689 Second London Baptist Confession. My exposition of the 1689 Confession is [here](/confession-1689/1689-00-intro.md).
 
 To that end, I am a Reformed Baptist and therefore, credobaptist. My local church, [Reforming Truth Church](https://reformingtruth.church/), will be a part of the [Grace Reformed Network](https://gracereformednetwork.org/).
 
