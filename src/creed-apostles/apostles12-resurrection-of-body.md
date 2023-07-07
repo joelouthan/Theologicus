@@ -43,7 +43,7 @@
 >
 >Martha, the dead man’s sister, told him, “Lord, there is already a stench because he has been dead four days.”
 >Jesus said to her, “Didn’t I tell you that if you believed you would see the glory of God? ”
->So they removed the stone. Then Jesus raised his eyes and said, “Father, I thank you that you heard me. I know that you always hear me, but because of the crowd standing here I said this, so that they may believe you sent me.” After he said this, he shouted with a loud voice, <bgy>“Lazarus, come out! ”</bgy> The dead man came out bound hand and foot with linen strips and with his face wrapped in a cloth. Jesus said to them, “Unwrap him and let him go.”
+>So they removed the stone. Then Jesus raised his eyes and said, “Father, I thank you that you heard me. I know that you always hear me, but because of the crowd standing here I said this, so that they may believe you sent me.” After he said this, he shouted with a loud voice, <bgy>“Lazarus, come out!”</bgy> The dead man came out bound hand and foot with linen strips and with his face wrapped in a cloth. Jesus said to them, “Unwrap him and let him go.”
 
 >Romans 8:10-11 (CSB) Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness. And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
 
