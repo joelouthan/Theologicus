@@ -1,4 +1,4 @@
-# Psalm 104 Creator
+# Psalm 104 Providing
 
 ## The Psalm
 
