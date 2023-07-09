@@ -79,3 +79,35 @@
 Lord
 </div>
 
+You have been  
+  throughout my life  
+  my only source  
+  only provision  
+  for all my needs  
+  my wants  
+  and my desires
+
+I know  
+  that I need many things  
+  in order to survive  
+  till the next day
+
+But you O Lord  
+  have provided  
+  what I truly need  
+  is you  
+  and that is why  
+  you have given me  
+  your only begotten Son  
+  that is why  
+  you have made your home in me  
+  that is why  
+  your Almigthy Spirit  
+  dwells in me  
+  for all times
+
+I love you, Lord  
+  and all that is within me  
+  I will be bless your holy name
+
+Amen.
