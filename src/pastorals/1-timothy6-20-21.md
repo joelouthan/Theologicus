@@ -48,8 +48,6 @@
 >
 >"What's the matter, don't you believe in miracles," replied CSM.[^xfiles]
 
-[^xfiles]: THE CIGARETTE SMOKING MAN REVEALS WHY BILLS LOST FOUR SUPER BOWLS. Alan Pergament. November 19, 1996. The Buffalo News.
-
 - This fictional sci-fi drama suggested that was one man responsible for the outcome of all major sporting events including the Buffalo Bills football team never winning a Super Bowl
 - As a young impressionable 21 year old, I ate this up. It was so much fun.
 - But that wasn't real
@@ -117,3 +115,5 @@ Life everlasting, joy, satisfaction, peace, and pleasures forever can only be fo
 Listen to him. Pray and seek him. Listen to his word more so than anything else the world is trying to tell you.
 
 >Grace be with you all.
+
+[^xfiles]: THE CIGARETTE SMOKING MAN REVEALS WHY BILLS LOST FOUR SUPER BOWLS. Alan Pergament. November 19, 1996. The Buffalo News.
