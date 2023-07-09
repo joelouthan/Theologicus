@@ -42,7 +42,7 @@
 >
 >An aide responded: "It is going to be tough, sir. Buffalo wants it bad."
 >
->"So did the Soviets in '80," replied the CSM (who is called Cancer Man by >Agent Mulder).
+>"So did the Soviets in '80," replied the CSM (who is called Cancer Man by Agent Mulder).
 >
 >"Are you saying you rigged the Olympic hockey game?" asks an aide.
 >
