@@ -38,7 +38,7 @@
 - 1996. A time before social media--it would be another 7 years before MySpace came online. The internet was just in its infancy. X Files show. Two FBI agents that investigated the paranormal. One major character, whom we didn't know the name of, was simply called the Cigarette Smoking Man.
 - Tell you how far the conspiracy theories on this show went:
 
->"What I don't want to see is the Bills winning a Super Bowl. As long as >I'm alive, that doesn't happen."
+>"What I don't want to see is the Bills winning a Super Bowl. As long as I'm alive, that doesn't happen."
 >
 >An aide responded: "It is going to be tough, sir. Buffalo wants it bad."
 >
