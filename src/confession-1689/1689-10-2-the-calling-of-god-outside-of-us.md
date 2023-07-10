@@ -18,6 +18,8 @@
 
 >Ephesians 2:8 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—
 
+TODO:
+
 ### being wholly passive therein, being dead in sins and trespasses, until being quickened and renewed by the Holy Spirit;
 
 >1 Corinthians 2:14 (CSB) But the person without the Spirit does not receive what comes from God’s Spirit, because it is foolishness to him; he is not able to understand it since it is evaluated spiritually.
