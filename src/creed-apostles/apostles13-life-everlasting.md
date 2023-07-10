@@ -19,12 +19,16 @@
 >  
 >I believe in the Holy Spirit, the holy catholic church,  
 >the communion of saints, the forgiveness of sins,  
->the resurrection of the body, and life everlasting.  
+>the resurrection of the body, and <bgy>life everlasting</bgy>.  
 >  
 >Amen.
 
 ## The Word
 
+>John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+
 ## The Belief
+
+TODO: 
 
 ### 

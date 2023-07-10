@@ -13,9 +13,9 @@
 >was crucified, died, and was buried.  
 >He descended into hell.  
 >  
-><bgy> **The third day He arose again from the dead.** </bgy>  
-><bgy> **He ascended into heaven and sits at the right hand of God the Father Almighty,** </bgy>  
-><bgy> **whence He shall come to judge the living and the dead.** </bgy>  
+><bgy>The third day He arose again from the dead.</bgy>  
+><bgy>He ascended into heaven and sits at the right hand of God the Father Almighty,</bgy>  
+><bgy>whence He shall come to judge the living and the dead.</bgy>  
 >  
 >I believe in the Holy Spirit, the holy catholic church,  
 >the communion of saints, the forgiveness of sins,  

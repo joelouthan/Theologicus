@@ -10,8 +10,8 @@
 >Who was conceived of the Holy Spirit,  
 >born of the Virgin Mary,  
 >suffered under Pontius Pilate,  
-><bgy> **was crucified, died, and was buried.** </bgy>  
-><bgy> **He descended into hell.** </bgy>  
+><bgy>was crucified, died, and was buried</bgy>.  
+><bgy>He descended into hell</bgy>.  
 >  
 >The third day He arose again from the dead.  
 >He ascended into heaven and sits at the right hand of God the Father Almighty,  

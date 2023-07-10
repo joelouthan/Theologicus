@@ -122,6 +122,8 @@ bgy {
   background-color: yellow;
   color: black;
   font-weight: bold;
+  padding-left: 3px;
+  padding-right: 3px;
 }
 
 .contact-info img {

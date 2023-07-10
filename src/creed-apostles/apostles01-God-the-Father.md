@@ -4,7 +4,7 @@
 
 ## The Creed
 
-><bgy> **I believe in God, the Father Almighty,** </bgy>  
+><bgy>I believe in God, the Father Almighty</bgy>,  
 >the Creator of heaven and earth,  
 >and in Jesus Christ, His only Son, our Lord:  
 >Who was conceived of the Holy Spirit,  

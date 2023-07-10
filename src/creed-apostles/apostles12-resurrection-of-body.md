@@ -19,7 +19,7 @@
 >  
 >I believe in the Holy Spirit, the holy catholic church,  
 >the communion of saints, the forgiveness of sins,  
-><bgy> the resurrection of the body </bgy>, and life everlasting.  
+><bgy>the resurrection of the body</bgy>, and life everlasting.  
 >  
 >Amen.
 

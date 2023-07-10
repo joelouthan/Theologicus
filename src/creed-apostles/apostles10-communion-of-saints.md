@@ -18,7 +18,7 @@
 >whence He shall come to judge the living and the dead.  
 >  
 >I believe in the Holy Spirit, the holy catholic church,  
-><bgy> **the communion of saints** </bgy>, the forgiveness of sins,  
+><bgy>the communion of saints</bgy>, the forgiveness of sins,  
 >the resurrection of the body, and life everlasting.  
 >  
 >Amen.

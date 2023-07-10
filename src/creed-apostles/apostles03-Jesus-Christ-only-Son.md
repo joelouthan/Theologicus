@@ -6,7 +6,7 @@
 
 >I believe in God, the Father Almighty,  
 >the Creator of heaven and earth,  
-><bgy> **and in Jesus Christ, His only Son, our Lord** </bgy>:  
+><bgy>and in Jesus Christ, His only Son, our Lord</bgy>:  
 >Who was conceived of the Holy Spirit,  
 >born of the Virgin Mary,  
 >suffered under Pontius Pilate,  

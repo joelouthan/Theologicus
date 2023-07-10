@@ -17,7 +17,7 @@
 >He ascended into heaven and sits at the right hand of God the Father Almighty,  
 >whence He shall come to judge the living and the dead.  
 >  
-><bgy> **I believe in the Holy Spirit** </bgy>, the holy catholic church,  
+><bgy>I believe in the Holy Spirit</bgy>, the holy catholic church,  
 >the communion of saints, the forgiveness of sins,  
 >the resurrection of the body, and life everlasting.  
 >  

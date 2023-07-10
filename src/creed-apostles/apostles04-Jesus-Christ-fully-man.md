@@ -7,9 +7,9 @@
 >I believe in God, the Father Almighty,  
 >the Creator of heaven and earth,  
 >and in Jesus Christ, His only Son, our Lord:  
-><bgy> **Who was conceived of the Holy Spirit,** </bgy>  
-><bgy> **born of the Virgin Mary,** </bgy>  
-><bgy> **suffered under Pontius Pilate,** </bgy>  
+><bgy>Who was conceived of the Holy Spirit</bgy>,  
+><bgy>born of the Virgin Mary</bgy>,  
+><bgy>suffered under Pontius Pilate</bgy>,  
 >was crucified, died, and was buried.  
 >He descended into hell.  
 >  
