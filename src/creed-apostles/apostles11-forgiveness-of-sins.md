@@ -63,7 +63,7 @@ Yet, at the same time, he must rescue his people.
 
 Since his people have no chance in heaven to get to him on their own, the Father sent his Son to dwell in the flesh, to be the Second Adam, perfectly obeying the covenant of works so that we will all be saved.
 
-### We Are Forgiven: Christ Has Saved
+### We Are Forgiven: Christ Has Saved Us
 
 >Romans 10:8-13 (CSB) On the contrary, what does it say? The message is near you, in your mouth and in your heart. This is the message of faith that we proclaim: If you confess with your mouth, “Jesus is Lord,” and believe in your heart that God raised him from the dead, you will be saved. One believes with the heart, resulting in righteousness, and one confesses with the mouth, resulting in salvation. For the Scripture says, Everyone who believes on him will not be put to shame, since there is no distinction between Jew and Greek, because the same Lord of all richly blesses all who call on him. For everyone who calls on the name of the Lord will be saved.
 
