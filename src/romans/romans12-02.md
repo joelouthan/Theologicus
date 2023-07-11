@@ -119,8 +119,6 @@ Who is doing the act of transforming? Remember, our righteousness is outside of 
 
 Who is doing the act of renewing? Does a car change it's own oil? Does a software writes its own code? [^AI] If we do not prepare grow or prepare or manufacture our own food, will our stomach feed itself? Absolutely not.
 
-[^AI]: At the sake of making this publication dated, I stand by this statement. AI cannot writes its own code--it has been programmed by a human author to pull the necessary data to piecemeal a functioning bit of code.
-
 Renewing your mind is thankfully not dependent on you but rather on the One who has called you his own. Praise be to God.
 
 Now, are you telling me that if I don't read my Bible, don't pray, don't sit under the word of God, don't give praise to his name, only listen to the world, and think like the world, that somehow God will still renew my mind.
@@ -158,3 +156,5 @@ Trust in the Lord and in his work in you. And his work in you to change your min
 Now, we a mind by God, you can discern what is good, pleasing and the perfect will of God. And then you get to go do those things.
 
 Praise be to God. He has it all figured out. Just be in him and worship him today.
+
+[^AI]: At the sake of making this publication dated, I stand by this statement. AI cannot writes its own code--it has been programmed by a human author to pull the necessary data to piecemeal a functioning bit of code.

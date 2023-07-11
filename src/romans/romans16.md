@@ -186,8 +186,6 @@ That's all fine and great except in the case of Apple, it is just a myth.
 
 >“The garage is a bit of a myth. It’s overblown,” Wozniak told [Bloomberg BusinessWeek on Thursday](http://www.bloomberg.com/video/steve-wozniak-on-steve-jobs-geekiness-and-starting-apple-GVS_jUoTQtGYj9fwLg8dbQ.html). “The garage represents us better than anything else, but we did no designs there. We would drive the finished products to the garage, make them work and then we’d drive them down to the store that paid us cash.” [^wp20141205]
 
-[^wp20141205]: [Washington Post: Steve Wozniak refutes Apple’s creation story: ‘The garage is a bit of a myth’](https://www.washingtonpost.com/news/morning-mix/wp/2014/12/05/steve-wozniak-refutes-apples-creation-story-the-garage-is-a-bit-of-a-myth/)
-
 Much like successful business, every large, seemingly success church started in the living room of the church planter. Too often, the full story never really gets told. Sure, we hear stories that spin into sometimes myths about the charismatic leader but what about the not-as-charismatic people around that leader.
 
 Here Paul is saying, "It is not me but whom God has put around me."
@@ -216,3 +214,5 @@ Take the moment right now to thank the people who have ministered with you over 
 >As it was in the beginning, is now, and ever shall be world without end. Amen.
 
 Peace to you. Amen.
+
+[^wp20141205]: [Washington Post: Steve Wozniak refutes Apple’s creation story: ‘The garage is a bit of a myth’](https://www.washingtonpost.com/news/morning-mix/wp/2014/12/05/steve-wozniak-refutes-apples-creation-story-the-garage-is-a-bit-of-a-myth/)

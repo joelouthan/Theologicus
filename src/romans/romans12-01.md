@@ -274,8 +274,6 @@ Call upon the name of the Lord. Be saved by God! Worship his Majesty!
 >Majesty, worship His Majesty;  
 >Jesus who died, now glorified, King of all kings! [^hayford]
 
-[^hayford]: Jack Hayford. Majesty.
-
 If you have heard the preaching of the gospel, the feebleness and weakness of the preacher who preached it, yet in the insurmountable and unstoppable power of God that is his gospel, you believe?
 
 What can you do but sing His praises!
@@ -285,8 +283,6 @@ Count yourself, dear saint, among the chosen and remnant of the Almighty God, Cr
 God alone has opened our eyes. renewed our minds, quickened our tongues, restores our ears, swapped our dead hearts for his, and indwelling of the Spirit. We get to worship God right now!
 
 God has made us a part of the greatest plan of redemption. We have sin much but God is mightier. We have dug a grave that reaches all the way to hell but Christ is deeper still! [^tenboom]
-
-[^tenboom]: "No pit is so deep that He is not deeper still; with Jesus even in our darkest moments, the best remains and the very best is yet to be." Corrie Ten Boom.
 
 Adopted children of God, worship His holy name!
 
@@ -300,8 +296,6 @@ Adopted children of God, worship His holy name!
 >Heaven and Earth  
 >Rejoice in His holy name  
 >He is exalted the King is exalted on high [^paris]
-
-[^paris]: Twila Paris. He is Exalted.
 
 Our Deliverer have comes from Zion! He has separated our godlessness away from the sons of Abraham! God has fulfilled his promise that he has taken away all of our sins.
 
@@ -530,8 +524,6 @@ the Lord Jesus Christ.
 
 No pen, no words, no images can express to you the loveliness of our only, only Lord Jesus Christ. [^rutherford]
 
-[^rutherford]: Samuel Rutherford
-
 But with every bit of our soul,  
 body,  
 strength,  
@@ -541,3 +533,8 @@ heart,
 forever
 
 Amen
+
+[^hayford]: Jack Hayford. Majesty.
+[^tenboom]: "No pit is so deep that He is not deeper still; with Jesus even in our darkest moments, the best remains and the very best is yet to be." Corrie Ten Boom.
+[^paris]: Twila Paris. He is Exalted.
+[^rutherford]: Samuel Rutherford

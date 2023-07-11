@@ -52,11 +52,7 @@ We say believe but did God die for the possibility of saving everybody? If we ha
 
 But reading 1 John as a whole especially starting with chapter 2 verse 1, we can see that John's intention was not to say “the whole world is saved” but rather that all brothers and sisters for all around the world are saved because of the the propitiating work of Jesus Christ who is our advocate with the Father when and if we do sin. To even suggest that the whole world would be saved would directly contradict Matthew’s witness account of Jesus: “Enter by the narrow gate. For the gate is wide and the way is easy that leads to destruction, and those who enter by it are many.”[^1]
 
-[^1]: Matthew 7:13-14
-
 And I would say that John would be contradicting himself in his own gospel account in the aforementioned John 3:16. But look closely: John did not write, “that whoever believes and doesn’t believe in him should not perish” but “that whoever believes in him should not perish but have eternal life.”[^2]
-
-[^2]: John 3:16
 
 Yes, John did write in verse 17 “For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him.” but see how he ends the chapter with verse 36 “Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him.” (John 3:36)
 
@@ -65,8 +61,6 @@ Both John, Matthew and the writers of the Bible are not mincing words when we sp
 So we know that God is powerful to save. We know it wasn’t our “good works” or right decision that attracted the grace and favor of God upon us. We have established that God didn’t send his Son to die in mere hopes that we would make the right decision. Think about this:.
 
 We must always remember that, unlike Christ, we came into this world “foolish, disobedient, led astray, slaves to various passions and pleasures, passing our days in malice and envy, hated by others and hating one another.”[^3]
-
-[^3]: Titus 3:3
 
 We were all born sinners who have fallen short of the glory of God — remembering that this is the same glory that God spoke about by which he would save His people.
 
@@ -79,8 +73,6 @@ Without God, we are blind and cannot see. We are deaf and cannot hear. We have m
 In other words, we are completely dead in our trespasses.
 
 But open your eyes and see this good news: Just as Moses lifted the serpent up in the wilderness that the Israelites might look upon it and be saved[^4], God appeared:
-
-[^4]: John 3:15
 
 >Titus 3:4-7 But when the goodness and loving kindness of God our Savior appeared, he saved us, not because of works done by us in righteousness, but according to his own mercy, by the washing of regeneration and renewal of the Holy Spirit, whom he poured out on us richly through Jesus Christ our Savior, so that being justified by his grace we might become heirs according to the hope of eternal life.
 
@@ -144,3 +136,8 @@ As a dad, I delight in my children but I cannot do so perfectly nor continuously
 God can and does because He is unlimited, infinite and compassionate. Forever and ever.
 
 Amen.
+
+[^1]: Matthew 7:13-14
+[^2]: John 3:16
+[^3]: Titus 3:3
+[^4]: John 3:15

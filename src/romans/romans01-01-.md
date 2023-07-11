@@ -73,8 +73,6 @@ Don't wait another second.
 
 "But, I have to clean myself before I can go to God." - That's crap. For "All of have sinned and fallen short of the glory of God."[^1]
 
-[^1]: Romans 3:23
-
 "But, can't I just wait until I am on my deathbed to believe in God?" Simply stating a fact and living that fact out are two different things. For God numbers our days:
 
 >Psalm 139:16 (CSB) Your eyes saw me when I was formless; all my days were written in your book and planned before a single one of them began.
@@ -92,26 +90,4 @@ My friends, God is not a "Escape From Hell" fire insurance card that you keep in
 
 Don't be insane. Choose real life, fullness of joy and pleasures forevermore. Trust in God. Your circumstances might not change. God does not promise that. You might have to go through a lot of healing of your mind and heart. Hey, God promises that we will be conformed to the image of His Son. Trust in him. Don't wait. Right now. Trust in him.
 
-## Pray
-
-<div style='font-variant: small-caps;'>
-Lord God Almighty
-</div>
-&nbsp;
-
-Do what you need to do  
-  in order for us to trust in you alone.
-
-Swap my heart for yours.
-
-Give me your Spirit.
-
-Make your home in me.
-
-Make me look like your Son.
-
-Give me repentance.
-
-Give me your power to murder my sin.
-
-Amen.
+[^1]: Romans 3:23

@@ -63,8 +63,6 @@ We are to always point people away from ourselves and to the Christ who alone sa
 
 >John 1:19–23 (CSB) This was John’s testimony when the Jews from Jerusalem sent priests and Levites to ask him, “Who are you?” 20 He didn’t deny it but confessed, “I am not the Messiah.” 21 “What then?” they asked him. “Are you Elijah?” “I am not,” he said. “Are you the Prophet?”[^Deut 18:15]  “No,” he answered. 22 “Who are you, then?” they asked. “We need to give an answer to those who sent us. What can you tell us about yourself?” 23 He said, “I am a voice of one crying out in the wilderness: Make straight the way of the Lord—just as Isaiah the prophet said.”
 
-[^Deut 18:15]: Deuteronomy 18:15 (CSB) “The LORD your God will raise up for you a prophet like me from among your own brothers. You must listen to him.
-
 >John 1:27 (CSB) He is the one coming after me, whose sandal strap I’m not worthy to untie.”
 
 ### Compared himself only to Christ
@@ -88,3 +86,5 @@ And found himself wanting-falling short of the glory of Christ.
 >John 3:30 (CSB) He must increase, but I must decrease.”
 
 When Christ is exalted, we are made low. When we are exalted and garner and demand attention and talk about ourselves, Christ is made low.
+
+[^Deut 18:15]: Deuteronomy 18:15 (CSB) “The LORD your God will raise up for you a prophet like me from among your own brothers. You must listen to him.

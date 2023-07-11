@@ -20,8 +20,6 @@ As an American, I live in the wealthiest land not only now but of all time. But 
 
 And we even know that God “makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust.” [^1]
 
-[^1]: Matthew 5:45
-
 There is a disparaging difference between the rich and the poor or how we are finding out now, depending on which zip code you were born and lived. Never mind the fact that God alone determines what time you would be born but what socio-economical status aka your zip code you would be born into just so that you would seek God.
 
 Now, I remembered being homeless just in the last 18 months. But I now live in the most beautiful home I have ever seen in my life. I also remember when I made minimum wage. But I also remember when one year God doubled my take-home pay the proceeded to steadily increase my salary by 20% on average for seven years straight.
@@ -72,8 +70,9 @@ and pray this for always:
 
 >In Christ, you have given me so much that heaven and earth can give me no more.[^2]
 
-[^2]: Valley of Vision
-
 I hope and pray that we would be content with having everything because we have Christ. And because we have Him, we shall not want.
 
 God has provided all because He is a perfect Father who loves his children.
+
+[^1]: Matthew 5:45
+[^2]: From the Valley of Vision, a collection of Puritan prayers and devotions.

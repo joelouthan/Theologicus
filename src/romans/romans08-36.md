@@ -8,8 +8,6 @@
 
 So what if a little “tribulation, or distress, or persecution, or famine, or nakedness, or danger, or sword?”[^1] comes our way? God promises suffering for his saints. There is no way around it.
 
-[^1]:Romans 8:35
-
 Just in case you are at odds with the rest of the authors of the Bible and only want the “red letter edition”, let us consider the words of Christ himself:
 
 >Matthew 10:34–39 (CSB) Don’t assume that I came to bring peace on the earth. I did not come to bring peace, but a sword. For I came to turn a man against his father, a daughter against her mother, a daughter-in-law against her mother-in-law; and a man’s enemies will be the members of his household. The one who loves a father or mother more than me is not worthy of me; the one who loves a son or daughter more than me is not worthy of me. And whoever doesn’t take up his cross and follow me is not worthy of me. Anyone who finds his life will lose it, and anyone who loses his life because of me will find it.
@@ -107,3 +105,5 @@ His persecution and death and burial rescued us! His work saved his people from 
 Can we do it perfectly? No. We can't. We are not perfect. We are still in need of sanctification because we are still being conformed to the image of the Son. But we are saved. We are completely saved. We are saved by God to worship and love him and to love others.
 
 Rest in that, beloved. Rest and dwell in that. Suffering is certain. Persecution is near. But the Triune God has made his home in you. Rest in him today.
+
+[^1]:Romans 8:35

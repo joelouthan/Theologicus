@@ -8,8 +8,6 @@
 
 I am not here to try to define for you what each of these circumstances means. I am 43 years old who lives in the Bible Belt of the United States and have been a believer for a quarter of my life. Because of God’s goodness and sovereignty, He determined when I lived and where I lived[^1]. So my life experiences and the full range of possible circumstances are so different compared to someone living in China or Sudan or someone who had lived 50 years ago or even 50,000 years ago that I cannot possibly sit here and define what each of these things means because they might say something different to you.
 
-[^1]: Acts 17:24-28
-
 And you know what, the author Paul didn’t get bogged down in those definitions either. The Apostle Paul, who went from arresting and executing Christians because they were Christians to becoming a man being called by God to be an apostle to the Gentiles (non-Jewish) and oh yes, write a few books for the Bible. But because of his faith and his fervency for doing what the Lord Jesus Christ told him (and you and me) to do, Paul was stoned (and left for dead), arrested, imprisoned, shipwrecked (consequently bitten by a snake), under house arrest and finally beheaded at the execution of the Roman government.
 
 So tribulation and distress and persecution and famine and nakedness and danger and sword look very different to him than it does to you or me. And yet just the same as Paul, we are all commissioned by Christ to go and proclaim the gospel to the end of the earth. And because we Christians do believe in God and trust in God, and proclaim His gospel, we might experience tribulation and distress—not exactly like him for most of us but distress just the same.
@@ -39,9 +37,6 @@ You might say, “What about the ones who said the sinner’s prayer when they w
 
 Let me contend one possibility: is it possible that even though they experienced God but their hearts was not changed by God. It happened to Nebuchadnezzar. Daniel had the power of God to not only know what Nebuchadnezzar's dream but actually interpret it. Nebuchadnezzar has a falling out acknowledging logically who God is but then immediately and blasphemously erects a golden statue to be worshipped.[^2] “*But I saw them speak in tongues and give prophecies and cast out demons*.” The author of Hebrews states that one can taste the power of the Holy Spirit and yet fall away from God.[^3] We know this to be true because Christ himself declared those who would defend themselves by the works they did in his name as “workers of lawlessness” and they would not even enter the kingdom of God.
 
-[^2]: Daniel 2-3
-[^3]: Hebrews 6:4-6
-
 And I cannot begin to judge the heart for only God can see and judge the heart.
 
 ## Our Response
@@ -52,22 +47,15 @@ What if you and I just took one minute to dwell and thought through would my hea
 
 God has this power of seeing our hearts[^4]. And God is real. And God continually sees your heart and mind. He cannot stop knowing your heart, and he cannot stop paying attention to your heart. God only actively knows our hearts, not passively. To do otherwise makes Him not God because He is all-knowing. He is omniscient.
 
-[^4]: Romans 8:26-27
-
 What’s your heart reaction? What’s your feeling about what I just said?
 
 There will be some who disbelieve: you might wall up, go invulnerable, and try to shield your heart away from these hard truths. You might have contempt for these words here and give a thousand excuses trying in a feeble attempt to suppress your knowledge of the just and holy God—just as the Bible said you would do[^4]. Yet, there is a cure for your hard heart, and it is not doing better, or start going to church or start reading the Bible or not cheat on your taxes or not scream at your spouse. It is putting your faith and trust in Jesus Christ. Trusting Him and trusting his words which are the Bible[^5].
-
-[^5]: Romans 1:18-23
 
 There will be some who do believe but who might have doubt about God: You might say things “I believe in God, but some of the things I read are hard to believe.” My friend, you might be in good company. Let us look at what Peter says about the writings of Paul in 2 Peter 3:
 
 >2 Peter 3:14–18 (CSB) Therefore, dear friends, while you wait for these things, make every effort to be found without spot or blemish in his sight, at peace. Also, regard the patience of our Lord as salvation, just as our dear brother Paul has written to you according to the wisdom given to him. He speaks about these things in all his letters. There are some things hard to understand in them. The untaught and unstable will twist them to their own destruction, as they also do with the rest of the Scriptures. Therefore, dear friends, since you know this in advance, be on your guard, so that you are not led away by the error of lawless people and fall from your own stable position. But grow in the grace and knowledge of our Lord and Savior Jesus Christ. To him be the glory both now and to the day of eternity.
 
 Peter even says that Scripture is hard to understand, so the leader of the Apostles of Christ gets what you are saying. But the solution is not to dismiss the word of God and not ever to engage with the Scriptures again nor should we "make it up" as we go along but rather do as the Apostle Peter instructs us, “**grow in grace and knowledge of our Lord and Savior Jesus Christ**.” How do we do that? Start by praying to God because when you believed, God the Father has given you the Holy Spirit, who is God himself, of whom Jesus said, “**will bring to remembrance of everything I have said**.”[^8] and of whom Paul said, “**Now we have received not the spirit of the world, but the Spirit who is from God, that we might understand the things freely given us by God**.”[^9]
-
-[^8]: John 14:25-26
-[^9]: 1 Corinthians 2:12
 
 And there are some of you who feel your faith is so little. You even know the words of Jesus when he keeps telling his disciples “Oh, ye of little faith.” But do you not know that even the saints with the tiniest faiths can move a mountain, see people healed and saved and made whole. For you see, it is not size nor depth nor quantity of the faith that you possess but rather the *object* of your faith that is Christ Jesus, who alone is mighty to save. Nineteenth-century Baptist pastor, Charles Spurgeon once said:
 
@@ -77,13 +65,9 @@ And there are some of you who feel your faith is so little. You even know the wo
 
 See how Christ did not correct nor rebuked the father who cried out, “**I believe! Help my unbelief!**”. Christ only responded in love and healed his son.[^10]
 
-[^10]: Mark 9:24-25
-
 Now, to all the children of God--to those with any amount of faith will do: God has captured your hearts! The Triune God-—Father, Son, and Holy Ghost—now dwells in you. Because of this, you are now able to walk in his statutes and obey his commands. Now, because of everything Christ has done from the sovereign grace of the Father by the power of the Holy Spirit, you get to go out and proclaim the amazingly good news that there is the God who loves mightily and is the only ones to save you from your sins and torment. Christians, we get to live by faith in the Son of God who loved us and gave himself up for us.
 
 And it is to you, the saints living right now who Jesus adamantly proclaims that you are greater than John the Baptist[^11] because you believe and know these things:
-
-[^11]: Matthew 11:11
 
 One, you know that you were born a sinner and your sins abound.
 
@@ -101,12 +85,9 @@ To deny Christ is a sin. Christ said it himself:
 
 >Matthew 10:32–33 (CSB) “Therefore, everyone who will acknowledge me before others, I will also acknowledge him before my Father in heaven. But whoever denies me before others, I will also deny him before my Father in heaven.
 
-
 How do we reconcile this?
 
 There are some who give up once and fall away until their last breath. It can be confirmed then that they only tasted the power of the Holy Spirit as a religious or emotional conversion and nothing more.[^12]
-
-[^12]: Hebrews 6:4-6
 
 Alongside of all the testimonies of the martyrs of our faith, we must also read the accounts of those Christians who, under the heaviest persecution, buckled, gave in, denied Christ to save their lives or the life of someone they love. But what the world would count as a failure, their hearts grieved, kept their faith in God and turn back to the community they once loved.
 
@@ -125,3 +106,14 @@ Listen to what I just said: I wanted to turn away from God. It was like God gave
 If you think for one moment that it would be far more loving of God to allow me to bury myself into the depths of sin, then repent of your wrong thinking. That is not love and that is not who God is for God is love.
 
 Instead, know that God sees the heart and welcomes only those who come humbly and lowly back to him. We know this because God is love.
+
+[^1]: Acts 17:24-28
+[^2]: Daniel 2-3
+[^3]: Hebrews 6:4-6
+[^4]: Romans 8:26-27
+[^5]: Romans 1:18-23
+[^8]: John 14:25-26
+[^9]: 1 Corinthians 2:12
+[^10]: Mark 9:24-25
+[^11]: Matthew 11:11
+[^12]: Hebrews 6:4-6

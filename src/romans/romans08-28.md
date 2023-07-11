@@ -17,8 +17,6 @@ While we cannot assume the opposite is true in some cases, we can actually make 
 
 Paul is saying nothing new. There is a distinction between those who love God and do not love God. We just got done reading at the beginning of Romans 8: “For those who live according to the flesh, set their minds on things of the flesh… Those who are in the flesh cannot please God.”[^1]
 
-[^1]: Romans 8:5-8
-
 Perhaps you might think Paul is too harsh. Let's think through things for just a moment:
 
 There are always talks about harmonizing the Gospels of the New Testament but when you study the teachings of Christ and the writings of Paul, what I think is happening that Paul is simply giving a theological explanation to the words and deeds of Christ.
@@ -78,3 +76,5 @@ we are counted as sheep to be slaughtered.
 No, in all these things we are more than conquerors through him who loved us.
 
 All the bad. All the good. Everything in between that has happened in your life--God will absolutely use to draw closer to Him.
+
+[^1]: Romans 8:5-8

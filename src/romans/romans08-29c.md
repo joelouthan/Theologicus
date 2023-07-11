@@ -17,8 +17,6 @@ When we speak of Romans 8, most Christians rightfully cling to the verse 1: **Th
 
 Seem familiar? Don’t we hear the same desperation in anyone, who by the grace of God, see their own sins as an affront and treason against holy and loving God? It is the great cry of the tax collector, “standing far off, would not even lift up his eyes to heaven, but beat his breast, saying, ‘God, be merciful to me, a sinner!’” [^1]
 
-[^1]: Luke 18:13
-
 Even more than that, it seems to be the same question Isaiah asked:
 
 >Isaiah 64:5–6 (CSB)
@@ -40,8 +38,6 @@ I know that Paul answers all the cries of all the saints who clearly see their o
 Let that be one of the many banners over our souls and hearts: **“THERE IS NO CONDEMNATION BECAUSE I AM IN CHRIST AND HE IS IN ME FOREVER!”**
 
 But this is not some standalone “theory” that we have to do doctrinal gymnastics in order to arrive at this point. The world wants to make the Bible more difficult than it needs to be. By either claiming to be nonsense, or it is a book filled with fantasy, or that God is an angry god or there are just too many contradictions. To such counters I will say two things: One, you cannot understand any gift of God without the Holy Spirit of God[^2]. Two, once you have the Holy Spirit and by his will, power and wisdom alone, you can now begin to grasp the Bible for it really is—the word of God.  All of a sudden, when we read passages like Luke 24 when Jesus taught his disciples about all the Scriptures, we realize that the Bible is really all about Him.
-
-[^2]: 1 Corinthians 2:12
 
 If the Bible is all about Jesus, then logic and reason dictate that salvation comes through Christ alone.
 
@@ -73,21 +69,15 @@ Numbers - the progressive sanctification of his people or to put it into other w
 
 But how do we know that Christ was the Savior of those in the Old Testament when they didn't even know His name? Paul says that in Romans 3 that God put Jesus Christ forward as a propitiation with Christ’s own blood to be received by faith. Not only with us the New Testament saints but the Old Testaments as well. God was passing over their sins in divine forbearance because those saints believed in Christ Jesus.[^3]
 
-[^3]: see Romans 3:21-26
-
 Saints of old and saints of new were all perfectly saved by Christ alone.
 
 We know that those old saints were under the burden of the law with sacrifices and shedding of blood. But the shedding of the blood of ox and goats or even following the law perfect never intended to save God’s people.[^4]
-
-[^4]: Hebrews 9:1-28 Cf. Romans 8:1-4
 
 Jesus Christ was born, lived, died, rose again, and ascended to the right hand of the Father to rule and reign over everyone, everywhere, and everything.
 
 And Christ rules, reigns and saved his people because He went to the cross in humility and joy.
 
 Jesus Christ is the literal crux where God’s steadfast love and God’s faithfulness meet and He is where His righteousness and His perfect peace kiss each other.[^5]
-
-[^5]: Psalm 85:10
 
 ## Our Response
 
@@ -102,3 +92,9 @@ And upon that declarative state, Christ descends from his rightful throne, lifts
 NO CONDEMNATION! Come and enter in the joy of your master.
 
 It is then and only then that I will have a chance to hold my lovely Saviour’s face, look deeply into his eyes and kiss him a thousand kisses all because of what He has done for me.
+
+[^1]: Luke 18:13
+[^2]: 1 Corinthians 2:12
+[^3]: see Romans 3:21-26
+[^4]: Hebrews 9:1-28 Cf. Romans 8:1-4
+[^5]: Psalm 85:10

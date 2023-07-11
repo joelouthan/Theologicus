@@ -24,8 +24,6 @@ Now, some of you who know Christian history know for every martyr burned at the 
 
 and further prophecies that Peter himself would not just deny Christ once but three times[^2], but it was the same Christ in John 21 who called and confirmed Peter not once but three times.
 
-[^2]:John 13:38; 18:25-27
-
 So what about now? We have so many people who grew up in churches who then decide to turn away and live their lives as their own.
 
 And we would say, “I have seen them move in the power of the Spirit. How can they be not saved before?” To which I would state that the author of Hebrews already addressed this:
@@ -56,8 +54,6 @@ My friends, we do not wage war against flesh and blood, but against the rulers, 
 
 >Genesis 3:15 I will put enmity between you and the woman, and between your offspring and her offspring; he shall bruise your head, and you shall bruise his heel.”
 
-[^3]:Ephesians 6:12
-
 And when the saints of God, after going 400 years without hearing a prophet of God, heard the voice of John the Baptist crying out in the wilderness, “Make the straight the way of the Lord!”
 
 And then the final battle cry that is the gospel of Jesus Christ, who commanded and marched toward the final decisive battle, to the place, Golgotha, the place of skulls, where the fate of the world rested on the outcome.
@@ -79,3 +75,6 @@ It is not because we are strong that makes us more than conquerors.
 It is only because of God sovereignly and graciously calls us by the power of the Holy Spirit through the bloodshed body of Jesus Christ our Lord that we behold the title, “Far more and exceeding conquerors through Christ who loved us!”
 
 Amen!
+
+[^2]:John 13:38; 18:25-27
+[^3]:Ephesians 6:12
