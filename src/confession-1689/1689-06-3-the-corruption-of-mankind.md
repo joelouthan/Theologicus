@@ -38,13 +38,9 @@ Ligonier Ministries quotes Dr. James M. Boice. He:
 
 >argues that it was because the people of the pre-law age had sinned “in Adam.” Because he was the God-appointed representative for all humanity, God counted his sin as their sin and imposed on them the guilt and penalty he incurred.[^ligboice]
 
-[^ligboice]: James M. Boice, Romans: An Exposition of Chapter 5:12–21 (Wheaton, IL: Crossway Books, 1991). As taken from [Our First Federal Head](https://www.ligonier.org/learn/devotionals/our-first-federal-head)
-
 Furthermore:
 
 >Federalism, Boice says, is “a proof of God’s grace,” for while the failure of our first federalhead brought terrible results, federalism “was the only way it would later be possible forGod to save us once we had sinned.” This is a difficult subject, and we must pray for graceto trust God’s wisdom and the testimony of His Word as we study it. [^ligboice2]
-
-[^ligboice2]: Ibid.
 
 ### being now conceived in sin
 
@@ -111,3 +107,6 @@ There are not multiple ways out this life. There is no two gospels. There is not
 >Romans 1:16 (CSB) For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek.
 
 There is just one good news and that is God saves sinners through Jesus Christ our Lord and Savior. Believe on him and trust in him and you will be saved.
+
+[^ligboice]: James M. Boice, Romans: An Exposition of Chapter 5:12–21 (Wheaton, IL: Crossway Books, 1991). As taken from [Our First Federal Head](https://www.ligonier.org/learn/devotionals/our-first-federal-head)
+[^ligboice2]: Ibid.

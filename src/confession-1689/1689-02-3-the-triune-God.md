@@ -54,8 +54,6 @@ So many people don't want to know or can't stand knowing. Don't be ignorant of t
 
 However and whatever means you use to preach and teach the doctrine of the Trinity, you must not forget the attributes of God [^1689.2.1]
 
-[^1689.2.1]: see [1689 Baptist Confession of Faith, Chapter 2.1 The Attributes of God](/posts/confession-1689/1689-2-1-the-attributes-of-god/)
-
 We know that God is eternal:
 
 >Psalm 90:2 (CSB) Before the mountains were born, before you gave birth to the earth and the world, from eternity to eternity, you are God.
@@ -90,8 +88,6 @@ I think the best way of describing this is loosely quoting Augustine:
 That description alone transcends God from us. God is so unlike us--that even when we are like God in that we love, give, serve, and create and we can do all of these things that reflects his image, what makes God apart from everything else in all of creation is the fact that God is three persons yet with one undivided essence.
 
 The Doctrine of the Trinity is such a mystery. The moment we try to demystify it is the moment we are declaring outright *historical* heresy.  [^heresy]
-
-[^heresy]: For the record, there are no new heresy. All heresies are historical. In other words, the church before us have already done the heavy lifting of hearing the false teaching, examining the Scriptures by the power of the Spirit, and put that heresy to death. There are no new errors and heresies. If you hear a false teacher or a Christian who says something in error, 100% of the time, it was already declared heresy--and more than millennium ago. Like the words says in Ecclesiastes 1:9, "What has been is what will be, and what has been done is what will be done; **there is nothing new under the sun.**" Sometimes, the modern mind will war against, not the idea we cannot come up with new heresies, but the fact that we cannot come up with new theologies and doctrines. But mankind will always try to come up with new ways to lower God to man or elevate man to God. And filed under "fact is sometimes stranger than fiction", when man comes up with a new theology and therefore a new religion, they never give their followers more license to sin but more laws and rules to follow. Imagine that.
 
 ### the Father is of none, neither begotten nor proceeding
 
@@ -154,8 +150,6 @@ Christ, by being man during his ministry, was indeed limited by time and space (
 
 We have not seen glory like this in our lives. We do get a tiny glimpse of the glory of God in Christ Jesus because the Father has revealed the Son to us.[^revealedChrist]
 
-[^revealedChrist]: John 1:18; Titus 3:3-7
-
 ### all infinite, without beginning, therefore but one God
 
 You might suggest, "Oh since Christ took on flesh, he had made himself limited like us." He was limited like us in certain ways--especially when it comes to the limits of time and space. But this is where the Covenants of Works and Redemption meet. Christ perfectly born of woman and perfectly obeyed and fulfilled the law. Because Christ has done this and then died, he was perfectly glorified by the Father.
@@ -179,8 +173,6 @@ Now, I hope you can tell from reading the last paragraph, that I have zero grace
 *Selah*
 
 Call it Western thinking. Call it whatever you want: just because the Father is usually mentioned first does not give him more ranking than the Son nor Spirit. I know, I know mankind has been so futilely obsessed with power and influence and we have been so since the Fall of Mankind. [^Gen6-1-7]
-
-[^Gen6-1-7]: Read Genesis 6:1-7. Stay put on verse 4. For my own exposition on this passage, see [Genesis 6:1-7 The Gospel Certainty: The Wickedness of Man](https://theologic.us/posts/study-genesis/study-genesis06-1-7/)
 
 So, because of being born of Adam, indwelling of sin, and the fact we cannot help but be nurtured by the philosophies of our time, we read *into* passages like 1 Corinthians 11:3 and we put our own spin and interpretation on it. Go back to all of chapter in the context of 1 Corinthians and look me dead in the eye and tell me that is how you would interpret verse 3? Nah, I didn't think so.
 
@@ -214,3 +206,8 @@ And upon that glory, we can rest assure that our salvation permanently and etern
 To the great and mighty God, his promises are yes and amen. Our promises are easily broken. We are faithless, he remains faithful. Great is his faithfulness!
 
 >Romans 8:14–17 (CSB) For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
+
+[^1689.2.1]: see [1689 Baptist Confession of Faith, Chapter 2.1 The Attributes of God](/posts/confession-1689/1689-2-1-the-attributes-of-god/)
+[^heresy]: For the record, there are no new heresy. All heresies are historical. In other words, the church before us have already done the heavy lifting of hearing the false teaching, examining the Scriptures by the power of the Spirit, and put that heresy to death. There are no new errors and heresies. If you hear a false teacher or a Christian who says something in error, 100% of the time, it was already declared heresy--and more than millennium ago. Like the words says in Ecclesiastes 1:9, "What has been is what will be, and what has been done is what will be done; **there is nothing new under the sun.**" Sometimes, the modern mind will war against, not the idea we cannot come up with new heresies, but the fact that we cannot come up with new theologies and doctrines. But mankind will always try to come up with new ways to lower God to man or elevate man to God. And filed under "fact is sometimes stranger than fiction", when man comes up with a new theology and therefore a new religion, they never give their followers more license to sin but more laws and rules to follow. Imagine that.
+[^revealedChrist]: John 1:18; Titus 3:3-7
+[^Gen6-1-7]: Read Genesis 6:1-7. Stay put on verse 4. For my own exposition on this passage, see [Genesis 6:1-7 The Gospel Certainty: The Wickedness of Man](https://theologic.us/posts/study-genesis/study-genesis06-1-7/)

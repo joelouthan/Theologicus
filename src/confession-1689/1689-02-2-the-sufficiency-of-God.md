@@ -139,8 +139,6 @@ What is shocking and disturbing is Hezekiah's response to God's cursing and decl
 
 >2 Kings 20:19 (CSB) Then Hezekiah said to Isaiah, “The word of the LORD that you have spoken is good,” for he thought, “Why not, if there will be peace and security during my lifetime? ” [^matt5-9]
 
-[^matt5-9]: The quintessential difference between peacekeeping and peacemaking. See Matthew 5:9. But I digress. 
-
 So why rehash King Hezekiah's folly? This historical account from 2nd Kings is not a prooftext for the heresy of open theism. This does not prove that God changes his mind and that God does change and he can change. But we have learn thus far in the 1689 that God is the fullness of goodness, blessedness, mercy, glory and life. He extended the life of Hezekiah knowing full well that Hezekiah will sin more.
 
 We know this because Paul wraps up the sins of all the Old Testament saints in this one passage:
@@ -176,8 +174,6 @@ The world and philosophies of this world and certain theologies like Open Theism
 But true, historical, orthodox, right, and proper Christian theology is this:
 
 >The Son of God became man so that men might become sons of God. [^packer-deathofdeath]
-
-[^packer-deathofdeath]: J.I. Packer. Essay, Introduction to John Owen's The Death of Death in the Death of Christ.
 
 God is clearly not like us in so many ways. Because by the grace of God for all of mankind, we can do some of the things he does: love, and create, and give. But only because of the Lord Jesus Christ, the Son of God who is God, it is his people alone who are saved to Him and can truly worship and obey him.
 
@@ -290,3 +286,6 @@ He saved me.
 In his holiness and loveliness, he saved me.
 
 Therefore, I will forever praise his holy name. Amen.
+
+[^matt5-9]: The quintessential difference between peacekeeping and peacemaking. See Matthew 5:9. But I digress. 
+[^packer-deathofdeath]: J.I. Packer. Essay, Introduction to John Owen's The Death of Death in the Death of Christ.

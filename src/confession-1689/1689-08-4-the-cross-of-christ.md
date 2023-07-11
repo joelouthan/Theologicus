@@ -46,8 +46,6 @@ This protoevagelion is just that: the first instance of the preached gospel. Thi
 
 Before Christ, one can read the Old Testament or even the Apocrypha [^Apocrypha], the people of God experienced mighty and good rescuers from God--but they all came up way short of being the Chosen One whom was the begotten Son of God. Not only did they fall short, they knew they were not the Christ. For:
 
-[^Apocrypha]: See [Chapter 1.3 On the Apocrypha of the Holy Scriptures](https://theologic.us/posts/confession-1689/1689-1-3-the-apocrypha-of-holy-scripture/)
-
 >John 1:20 (CSB) He didn’t deny it but confessed, “I am not the Messiah.”
 
 Not only that, the saints of old rejoiced in seeing the day of Christ arrived:
@@ -221,3 +219,5 @@ We give over our sin to him, the bearer of all of our sin and the author and fin
 This is the office Christ most willingly undertook. And never forget, he undertook in saving you not in despair, or fear, or regret, or anger, or frustration, or annoyance, or impatience, or sadness. He undertook all of it with joy.
 
 >**For the joy that lay before him, he endured the cross, despising the shame, and sat down at the right hand of the throne of God.**
+
+[^Apocrypha]: See [Chapter 1.3 On the Apocrypha of the Holy Scriptures](https://theologic.us/posts/confession-1689/1689-1-3-the-apocrypha-of-holy-scripture/)

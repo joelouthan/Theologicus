@@ -58,8 +58,6 @@ If God alone has to exchange your heart, deposit his Spirit, give you his only b
 
 And you might think to yourself, "Just how wicked must someone be for God to do that?!" In the previous subchapter, I mentioned of King Manasseh of his unadulterated wicked against the only good God for God not to turn him over to his sins but that save him from his sins. [^1689-5-5]
 
-[^1689-5-5]: Aforementioned in [1689 5.5 The Discipline of God](https://theologic.us/posts/confession-1689/1689-5-5-the-discipline-of-god/#and-to-raise-them-to-a-more-close-and-constant-dependence-for-their-support-upon-himself)
-
 I think is question is not "how much can we sin before God will turn us over to our sin?" but rather, "Who is like our God and who can compare to him?" For:
 
 >Isaiah 55:8–9 (CSB) “For my thoughts are not your thoughts, and your ways are not my ways.” This is the LORD’s declaration. “For as heaven is higher than earth, so my ways are higher than your ways, and my thoughts than your thoughts.
@@ -197,3 +195,5 @@ And:
 The Pharaoh was a king who was low as a baby, brought high by God and then brought low unto for his own sins in order the name of God would be glorified and the salvation of his people would be made known.
 
 Jesus is the Son of God who is God was always in glory with the Father and the Spirit. He was low as a baby, lived the perfect life that the people of God should have lived. But he too was brought low unto death on the cross not for his own sins but rather the sins of his people in order the name of God would be glorified and the salvation of his people not only be made known but also be perfectly, eternally, completely, and fully accomplished. And now Jesus is glorified by the Father as King of kings and Lord of lords forever and ever. Amen.
+
+[^1689-5-5]: Aforementioned in [1689 5.5 The Discipline of God](https://theologic.us/posts/confession-1689/1689-5-5-the-discipline-of-god/#and-to-raise-them-to-a-more-close-and-constant-dependence-for-their-support-upon-himself)

@@ -120,8 +120,6 @@ Know that God knows all of that. He knew that you were too weak. He knows life i
 
 This is complete conjuncture because the Scriptures are not explicit and I certainly was not there. But I always thought that before anything, the Father and the Son were in perfection expressing their love for one another and then the conversation took a turn: [^conjecture]
 
-[^conjecture]: Let me acknowledge that God does not have passions. But tapping into the times when he grieved, disappointed, jealous and sad because of the sins of his people, I took some literary liberties here.
-
 Father: I love you  
 Son: I love you  
 Father: I love you so much  
@@ -155,3 +153,5 @@ Son: Let’s do this!
 >Genesis 1:1 (CSB) In the beginning God created the heavens and the earth.
 
 Beloved, you were always loved by God and he will never stop loving you. Praise be to his glorious grace forever.
+
+[^conjecture]: Let me acknowledge that God does not have passions. But tapping into the times when he grieved, disappointed, jealous and sad because of the sins of his people, I took some literary liberties here.

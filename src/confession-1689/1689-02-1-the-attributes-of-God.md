@@ -48,9 +48,6 @@ And
 
 There is only one response to this absolute and blessed truth: praise be to God! We get to worship the the Lord *our* God all because of what his Son has done for us. Today is the day we give thanks to him for he alone is good and his steadfast love endures forever.
 
-[^renihan-ours]: Renihan. Baptist Symbolics Volume 2. 167
-[^songs216]: Song of Songs 2:16
-
 ### is but one 
 
 >1 Corinthians 8:4–6 (CSB) About eating food sacrificed to idols, then, we know that “an idol is nothing in the world,” and that “there is no God but one.” For even if there are so-called gods, whether in heaven or on earth—as there are many “gods” and many “lords”—yet for us there is one God, the Father. All things are from him, and we exist for him. And there is one Lord, Jesus Christ. All things are through him, and we exist through him.
@@ -114,8 +111,6 @@ If God the one true living God, within the immortality of God, not only will he 
 >John 1:1-5 (CSB) In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created. **In him was life, and that life was the light of men. That light shines in the darkness, and yet the darkness did not overcome it.**
 
 Because we have been born into and choose to sin, we cannot approach God. We cannot come to him on our own. John Stott in his book, *The Cross of Christ*, gave five descriptions on how God is far from our sin. One of those descriptions: God is light. God shines brightest and in our wickedness and sin, we cannot dare approach him just in the light of his glory and goodness.[^stott-brightest]
-
-[^stott-brightest]: John Stott. The Cross of Christ. 109. 
 
 >I am in sweet communion with Christ as a poor sinner can be; and am only pained that he hath much beauty and fairness, and I little love; he great power and mercy, and I little faith; he much light and I bleared eyes.
 >
@@ -192,9 +187,6 @@ Nothing created him and he is before all created things. There wasn't a moment i
 What is even more amazing, within those temporal terms, when the Son of God took on flesh, he subjected himself not only to his material plane and the effects of the corruption of sin but he subjected himself to the constraints of time like we are.
 
 Jesus Christ, the Son of God who is God, "grew in stature and wisdom"[^luke240] and preached the gospel [^mark114] and minister to others with the same constraints of time and space as we do. In other words, Christ did not commission us with something he did not do himself.
-
-[^luke240]: Luke 2:40
-[^mark114]: Mark 1:14
 
 ### incomprehensible
 
@@ -302,8 +294,6 @@ Holiness of God is revealed by God in one of two ways. One, our sinfulness and f
 
 >“That attribution of greatness and goodness to God can be summed up as “He is holy,” because holiness incorporates both greatness and goodness.” [^sproul-truths-holy-goodness]
 
-[^sproul-truths-holy-goodness]: R.C. Sproul. Truths We Confess. 46.
-
 It is the infinite, perfect greatness and goodness that God revealed to Isaiah and caused him to cry out, "Woe is me, for I am a man of unclean lips!" It is this holiness that cause the persecutor Saul declare Christ as Lord. It is this perfection that the heavenly beings continue to sing, "Holy, holy, holy."
 
 It is this same holiness that caused the tax collector to stand in the back of the tabernacle, who would not dare lift his eyes towards heavens, but instead shout out, "Lord, have mercy on me, a sinner!"
@@ -357,8 +347,6 @@ More so than that, he has the infinite wisdom to handle it and discern it all. T
 In his three volume Systematic Theology, theologian Charles Hodge explained that there were two attributes that worked out of the omnipotence or the almighty of God: his sovereignty and his freedom.
 
 The popularity and the rise of Calvinism has given way to the acceptance of God's sovereignty without the wisdom nor the emotional maturity to handle it. When something bad happens, I have heard too many new Calvinists simply shrug their shoulders and sigh, "whelp, God is sovereign." Which it is not an untrue statement but are we not going grieve this moment? Are we not going "weep with those who weep?" [^romans1215]
-
-[^romans1215]: Romans 12:15
 
 But that is another chapter for another book.
 
@@ -633,14 +621,10 @@ For:
 
 In continue in the holiness of God in comparison to our sin, John Stott gives these additional descriptors in addition to God being most glorious and shines the brightest: [^stott-light]
 
-[^stott-light]: Stott. 109.
-
 - God is high above our sin and idolatry
 - God is far from our wickedness and depravity
 - He is all-consuming - In other words, he will perfectly eradicate all sin from everywhere
 - He is rejects all sin from his presence - He has no toleration for sin, God does not have to live with sin; God vomits it out of his being [^stott-five]
-
-[^stott-five]: Stott. 104-111.
 
 These are metaphors--uses of the English language to try to get us to simply realize that one fact that God hates sin.
 
@@ -673,3 +657,13 @@ But for his people--just his people--he will take them under his protective almi
 >Matthew 23:37-39 (CSB) “Jerusalem, Jerusalem, who kills the prophets and stones those who are sent to her. How often I wanted to gather your children together, as a hen gathers her chicks under her wings, but you were not willing! See, your house is left to you desolate. For I tell you, you will not see me again until you say, ‘Blessed is he who comes in the name of the Lord’! ”
 
 Choose on this day whom you will serve.
+
+[^renihan-ours]: Renihan. Baptist Symbolics Volume 2. 167
+[^songs216]: Song of Songs 2:16
+[^stott-brightest]: John Stott. The Cross of Christ. 109. 
+[^luke240]: Luke 2:40
+[^mark114]: Mark 1:14
+[^sproul-truths-holy-goodness]: R.C. Sproul. Truths We Confess. 46.
+[^romans1215]: Romans 12:15
+[^stott-light]: Stott. 109.
+[^stott-five]: Stott. 104-111.
