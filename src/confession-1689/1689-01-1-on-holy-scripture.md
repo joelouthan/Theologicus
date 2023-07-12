@@ -41,7 +41,7 @@ Which is a bit peculiar, to say the least. But that bit of banter with the Holy 
 >
 > Richard Dawkins. CNN Red Chair Interview. September 5, 2012. [CNN](https://www.cnn.com/videos/living/2012/09/05/orig-red-chair-richard-dawkins.cnn)
 
-But God didn't. Not even close. I would even give Mr. Dawkins a fair shake if Christ came in as a nobody and left as a nobody and then all of sudden myth after myths started coming up about some son of a carpenter in Palestinian Middle East some 2000 years aog.
+But God didn't. Not even close. I would even give Mr. Dawkins a fair shake if Christ came in as a nobody and left as a nobody and then all of sudden myth after myths started coming up about some son of a carpenter in Palestinian Middle East some 2000 years ago.
 
 Christ came in as a nobody yet, the entire basis of the Jewish faith prophesied that this was to be start. Starting with Genesis and ending with Malachi. Over 200 prophecies about the upcoming Messiah.
 
