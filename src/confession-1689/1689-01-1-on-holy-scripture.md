@@ -162,3 +162,5 @@ Let me state this for the record: You and I cannot add to the word of God, the B
 Yes, I am Charismatic. Full-on. But I know that I know that I cannot add to the word of God. I don't care if you are Joseph Smith. The word of God is the word of God. And here are some fun facts: every time humans, in our own wickedness and depravity, tries to add on to the word of God, you never ever get more grace as too try to override a bit of God's law. What you always get more and more legalistic.
 
 The word of God is beyond "without error". It is perfect. Is it easy to understand? Is it easy to believe? No, it is not. Well, not on your own. You will need the Holy Spirit to open your mind and your heart so you can receive and believe the good news that Jesus Christ is Lord of all.
+
+TODO: Matthew 4:4 
