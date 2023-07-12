@@ -1046,8 +1046,6 @@
 
 [Vocation](vocation.md)
 
-# Development
-
 -----------
 
 [Changelog](CHANGELOG.md)
