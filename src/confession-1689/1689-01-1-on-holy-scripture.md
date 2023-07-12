@@ -21,11 +21,11 @@ Lets walk through the points:
 
 ### The Holy Scripture is the only sufficient, certain, and infallible rule of all saving knowledge, faith, and obedience, although the light of nature, and the works of creation and providence do so far manifest the goodness, wisdom, and power of God, as to leave men inexcusable
 
->Romans 2:14–15 (CSB) So, when Gentiles, who do not by nature have the law, do what the law demands, they are a law to themselves even though they do not have the law. 15 They show that the work of the law is written on their hearts. Their consciences confirm this. Their competing thoughts either accuse or even excuse them
+>Romans 2:14–15 (CSB) So, when Gentiles, who do not by nature have the law, do what the law demands, they are a law to themselves even though they do not have the law. They show that the work of the law is written on their hearts. Their consciences confirm this. Their competing thoughts either accuse or even excuse them
 
 >Romans 1:18-20 (CSB) For God’s wrath is revealed from heaven against all godlessness and unrighteousness of people who by their unrighteousness suppress the truth, since what can be known about God is evident among them, because God has shown it to them. For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse.
 
->Psalm 19:1–3 (CSB) The heavens declare the glory of God, and the expanse proclaims the work of his hands. 2 Day after day they pour out speech; night after night they communicate knowledge. 3 There is no speech; there are no words; their voice is not heard.
+>Psalm 19:1–3 (CSB) The heavens declare the glory of God, and the expanse proclaims the work of his hands. Day after day they pour out speech; night after night they communicate knowledge. There is no speech; there are no words; their voice is not heard.
 
 >Romans 1:32 (CSB) Although they know God’s just sentence—that those who practice such things deserve to die—they not only do them, but even applaud others who practice them.
 
@@ -71,7 +71,7 @@ We are without excuse
 
 >1 Corinthians 1:21 (CSB) For since, in God’s wisdom, the world did not know God through wisdom, God was pleased to save those who believe through the foolishness of what is preached.
 
->1 Corinthians 2:12–14 (CSB) Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God. 13 We also speak these things, not in words taught by human wisdom, but in those taught by the Spirit, explaining spiritual things to spiritual people. 14 But the person without the Spirit does not receive what comes from God’s Spirit, because it is foolishness to him; he is not able to understand it since it is evaluated spiritually.
+>1 Corinthians 2:12–14 (CSB) Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God. We also speak these things, not in words taught by human wisdom, but in those taught by the Spirit, explaining spiritual things to spiritual people. But the person without the Spirit does not receive what comes from God’s Spirit, because it is foolishness to him; he is not able to understand it since it is evaluated spiritually.
 
 Think of all the things that God has freely given us: life, provision, his word, his Son, his Spirit.
 
@@ -109,15 +109,15 @@ And you might think that stinks. But hold on. Keep your britches on. I got some 
 
 ### and afterward for the better preserving and propagating of the truth, and for the more sure establishment and comfort of the church against the corruption of the flesh, and the malice of Satan, and of the world, to commit the same wholly unto writing
 
->Proverbs 22:19–21 (CSB) I have instructed you today—even you— so that your confidence may be in the LORD. 20 Haven’t I written for you thirty sayings about counsel and knowledge, 21 in order to teach you true and reliable words, so that you may give a dependable report to those who sent you?
+>Proverbs 22:19–21 (CSB) I have instructed you today—even you— so that your confidence may be in the LORD. Haven’t I written for you thirty sayings about counsel and knowledge, in order to teach you true and reliable words, so that you may give a dependable report to those who sent you?
 
->Luke 1:3–4 (CSB) So it also seemed good to me, since I have carefully investigated everything from the very first, to write to you in an orderly sequence, most honorable Theophilus, 4 so that you may know the certainty of the things about which you have been instructed.
+>Luke 1:3–4 (CSB) So it also seemed good to me, since I have carefully investigated everything from the very first, to write to you in an orderly sequence, most honorable Theophilus, so that you may know the certainty of the things about which you have been instructed.
 
 >Romans 15:4 (CSB) For whatever was written in the past was written for our instruction, so that we may have hope through endurance and through the encouragement from the Scriptures.
 
->Matthew 4:4–10 (CSB) He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.” 5 Then the devil took him to the holy city, had him stand on the pinnacle of the temple, 6 and said to him, “If you are the Son of God, throw yourself down. For it is written: He will give his angels orders concerning you, and they will support you with their hands so that you will not strike your foot against a stone.” 7 Jesus told him, “It is also written: Do not test the Lord your God.” 8 Again, the devil took him to a very high mountain and showed him all the kingdoms of the world and their splendor. 9 And he said to him, “I will give you all these things if you will fall down and worship me.” 10 Then Jesus told him, “Go away, Satan! For it is written: Worship the Lord your God, and serve only him.”
+>Matthew 4:4–10 (CSB) He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.” Then the devil took him to the holy city, had him stand on the pinnacle of the temple, and said to him, “If you are the Son of God, throw yourself down. For it is written: He will give his angels orders concerning you, and they will support you with their hands so that you will not strike your foot against a stone.” Jesus told him, “It is also written: Do not test the Lord your God.” Again, the devil took him to a very high mountain and showed him all the kingdoms of the world and their splendor. And he said to him, “I will give you all these things if you will fall down and worship me.” Then Jesus told him, “Go away, Satan! For it is written: Worship the Lord your God, and serve only him.”
 
->Isaiah 8:19–20 (CSB) When they say to you, “Inquire of the mediums and the spiritists who chirp and mutter,” shouldn’t a people inquire of their God? Should they inquire of the dead on behalf of the living? 20 Go to God’s instruction and testimony! If they do not speak according to this word, there will be no dawn for them.
+>Isaiah 8:19–20 (CSB) When they say to you, “Inquire of the mediums and the spiritists who chirp and mutter,” shouldn’t a people inquire of their God? Should they inquire of the dead on behalf of the living? Go to God’s instruction and testimony! If they do not speak according to this word, there will be no dawn for them.
 
 You want to know something that should blow your mind?
 
