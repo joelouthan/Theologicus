@@ -18,7 +18,14 @@
 
 >Ephesians 2:8 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—
 
-TODO:
+TODO: 
+
+- Calling of Isaac
+- Calling returns not void
+- not irrevocable
+- not looking down the corridors of time
+- Eph 2:8 D-all of the above
+- 
 
 ### being wholly passive therein, being dead in sins and trespasses, until being quickened and renewed by the Holy Spirit;
 
@@ -28,6 +35,12 @@ TODO:
 
 >John 5:25 (CSB) “Truly I tell you, an hour is coming, and is now here, when the dead will hear the voice of the Son of God, and those who hear will live.
 
+TODO: Expound John 11 The Calling of Lazarus
+
 ### he is thereby enabled to answer this call, and to embrace the grace offered and conveyed in it, and that by no less power than that which raised up Christ from the dead.
 
 >Ephesians 1:19–20 (CSB) and what is the immeasurable greatness of his power toward us who believe, according to the mighty working of his strength. He exercised this power in Christ by raising him from the dead and seating him at his right hand in the heavens—
+
+TODO: The response of being raised from the dead
+
+I tell you these things so that you joy may be complete. (John 15:11)
