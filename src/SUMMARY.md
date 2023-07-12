@@ -2,9 +2,9 @@
 
 [Introduction](index.md)
 
------------
-
 # Creeds
+
+-----------
 
 - [Apostles](creed-apostles/index.md)
   - [An Introduction & Resources](creed-apostles/apostles00-intro.md)
@@ -27,9 +27,9 @@
 - [Chalcedonian](creeds/chalcedonian.md)
 - [Athanasian](creeds/athanasian.md)
 
------------
-
 # Confessions
+
+-----------
 
 - [Second London Baptist Confession of Faith](confession-1689/index.md)
   - [Introduction & Resources](confession-1689/1689-00-intro.md)
@@ -118,9 +118,9 @@
 - [Westminster Confession of Faith]()
 - [The Savoy Declaration]()
 
------------
-
 # Catechisms
+
+-----------
 
 - [The Baptist Catechism]()
 - [Milk for Little Ones]()
@@ -130,9 +130,9 @@
 - [To Be A Christian]()
 - [The New City Catechism]()
 
------------
-
 # Doctrine
+
+-----------
 
 - [Christ Came To Save Sinners](doctrine-christ-saves/index.md)
   - [Behold Our God](doctrine-christ-saves/01-behold-our-god.md)
@@ -155,6 +155,8 @@
   - [Spirit Gives Us Life Forever](doctrine-christ-saves/18-spirit-gives-us-life-forever.md)
 
 # Commentaries
+
+-----------
 
 - [Genesis](genesis/index.md)
   - [Genesis 1:1 Our Forever Love](genesis/genesis01-1.md)
@@ -1017,10 +1019,11 @@
 - [Jude]()
 - [Revelation]()
 
-# Books
+# Bibliography
+
+-----------
 
 - [Bibliography](bibliography.md)
-
 - [Reviews](reviews/index.md)
   - [Cur Deus Homo by Anselm of Canterbury](reviews/cur-deus-homo.md)
   - [The Death of Death in the Death of Christ by John Owen](reviews/the-death-of-death-in-the-death-of-christ.md)
@@ -1035,11 +1038,15 @@
 
 # About
 
+-----------
+
 [Author](author.md)
 
 [Ministry](ministry.md)
 
 [Vocation](vocation.md)
+
+# Development
 
 -----------
 
