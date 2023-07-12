@@ -112,7 +112,7 @@ But here is the flaming hot red flag: because of the incarnation of Christ, that
 
 Proponents of the ESS would insist that Christ does not change because Christ is God and does not change. But because he took on flesh, the incarnation of Christ makes Christ subordinate to the Father.
 
-Why the confusion when [the Bible is so clear especially on matters concerning salvation](https://theologic.us/posts/confession-1689/1689-1-7-the-clarity-of-scripture-for-salvation/)? Defenders of this heresy is trying to overlay the Doctrine of the Trinity onto gender roles based on an eisegesis of 1 Corinthians 11:3 and Ephesians 5:21-33 which was inspired by the work of John Piper and Wayne Grudem in their book, *Recovering Biblical Manhood and Womanhood*.
+Why the confusion when [the Bible is so clear especially on matters concerning salvation](https://theologic.us/confession-1689/1689-1-7-the-clarity-of-scripture-for-salvation/)? Defenders of this heresy is trying to overlay the Doctrine of the Trinity onto gender roles based on an eisegesis of 1 Corinthians 11:3 and Ephesians 5:21-33 which was inspired by the work of John Piper and Wayne Grudem in their book, *Recovering Biblical Manhood and Womanhood*.
 
 I don't need to tell you that superimposing the a view of gender roles onto the Doctrine of the Trinity is most unhelpful and unwise. If you are doing this, please stop.
 

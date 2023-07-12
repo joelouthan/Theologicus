@@ -196,4 +196,4 @@ The Pharaoh was a king who was low as a baby, brought high by God and then broug
 
 Jesus is the Son of God who is God was always in glory with the Father and the Spirit. He was low as a baby, lived the perfect life that the people of God should have lived. But he too was brought low unto death on the cross not for his own sins but rather the sins of his people in order the name of God would be glorified and the salvation of his people not only be made known but also be perfectly, eternally, completely, and fully accomplished. And now Jesus is glorified by the Father as King of kings and Lord of lords forever and ever. Amen.
 
-[^1689-5-5]: Aforementioned in [1689 5.5 The Discipline of God](https://theologic.us/posts/confession-1689/1689-5-5-the-discipline-of-god/#and-to-raise-them-to-a-more-close-and-constant-dependence-for-their-support-upon-himself)
+[^1689-5-5]: Aforementioned in [1689 5.5 The Discipline of God](https://theologic.us/confession-1689/1689-5-5-the-discipline-of-god/#and-to-raise-them-to-a-more-close-and-constant-dependence-for-their-support-upon-himself)

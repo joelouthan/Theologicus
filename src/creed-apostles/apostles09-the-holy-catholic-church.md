@@ -31,7 +31,7 @@
 
 >The catholic or universal church, which (with respect to the internal work of the Spirit and truth of grace) may be called invisible, consists of the whole number of the elect, that have been, are, or shall be gathered into one, under Christ, the head thereof; and is the spouse, the body, the fulness of him that filleth all in all.
 >
->[1689.26.1 Of the Church](/posts/confession-1689/1689-0-working/#chapter-26-of-the-church)
+>[1689.26.1 Of the Church](/confession-1689/index.md#chapter-26-of-the-church)
 
 ### The Holy Catholic Church is invisible
 

@@ -22,9 +22,14 @@ If you have the time: [Philosophy as taught by R.C. Sproul at Ligonier Ministrie
 
 If you don't have the time and like to read, highest recommendation:
 
-[<img src="https://images-na.ssl-images-amazon.com/images/I/41sAKIAP1oL._SX331_BO1,204,203,200_.jpg">The Consequences of Ideas](https://amzn.to/3Gi6KCl).  
-by R.C. Sproul.  
+<hr style="clear:both;">
+
+<img src="/images/book-consequences-of-ideas-sproul.jpg">The Consequences of Ideas: Understanding the Concepts that Shaped Our World  
+R.C. Sproul.  
 Crossway. 2018.  
+[Goodreads](https://www.goodreads.com/book/show/6616365-the-consequences-of-ideas)
+
+<hr style="clear:both;">
 
 If you don't have the time and you don't like to read, then let me brutally and tragically summarize modern philosophy. Among of all the schools of thought, the greatest and loudest voices that the Western world is hearing right now from the world and not from God are really three voices:
 
@@ -158,7 +163,10 @@ But when the kindness of God our Savior and his love for mankind appeared, he sa
 
 The world already rejects this notion. It's supernatural, divine, and robs us of our glory. Christians balk at this because it is "the easy way out". But I wonder, if some Christians or ex-Evangelicals has seen the blasphemous use of the gospel and the name of God to promote all kinds of evil--especially in the name of hatred and bigotry and racism.
 
-![KKK Rally - Jesus Saves](/images/kkk-jesus-saves.jpeg "KKK Rally but Jesus Saves")
+<figure style="text-align: center;">
+    <img src="/images/kkk-jesus-saves.jpg" alt="Image" style="display: block; float: none; margin: auto; width: 400px;" alt="Ku Klux Klan in a church sanctuary with a banner in the background that reads Jesus Saves">
+    <figcaption style="font-style: italic; text-align: center;">Total Depravity and Wickedness on Display, Romans 1:18-32</figcaption>
+</figure>
 
 They would argue that Christianity and the gospel doesn't work because it doesn't do enough to protect people from the evils of the world.
 

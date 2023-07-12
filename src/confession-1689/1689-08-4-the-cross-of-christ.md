@@ -220,4 +220,4 @@ This is the office Christ most willingly undertook. And never forget, he underto
 
 >**For the joy that lay before him, he endured the cross, despising the shame, and sat down at the right hand of the throne of God.**
 
-[^Apocrypha]: See [Chapter 1.3 On the Apocrypha of the Holy Scriptures](https://theologic.us/posts/confession-1689/1689-1-3-the-apocrypha-of-holy-scripture/)
+[^Apocrypha]: See [Chapter 1.3 On the Apocrypha of the Holy Scriptures](https://theologic.us/confession-1689/1689-1-3-the-apocrypha-of-holy-scripture/)

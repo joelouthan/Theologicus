@@ -20,7 +20,7 @@
 
 I am writing this particular exposition on 1689 Chapter 9 Paragraph 2 on April 21, 2023. Why is that important?
 
-Back on February 9, 2023, I posted my expositing on the [1689 2.3 Of The Triune God](https://theologic.us/posts/confession-1689/1689-2-3-the-triune-god/#who-is-not-to-be-divided-in-nature-and-being-but-distinguished-by-several-peculiar-relative-properties-and-personal-relations). In that exposition, I wrote:
+Back on February 9, 2023, I posted my expositing on the [1689 2.3 Of The Triune God](https://theologic.us/confession-1689/1689-2-3-the-triune-god/#who-is-not-to-be-divided-in-nature-and-being-but-distinguished-by-several-peculiar-relative-properties-and-personal-relations). In that exposition, I wrote:
 
 >There is a new-old heresy being circulated around that fired up about ten years ago then sort of fizzled like a fart in church, called the Eternal Submission of the Son (ESS). Those who are spouting out such nonsense are always those who fall so far into hard **Complementarianism** camp (those who believe genders of mankind are different but equal) that they are indistinguishable from Patriarchy (men are always right and women need to shut up and stay quiet.) There one verse that they have built their house of cards upon is 1 Corinthians 11:3.
 >

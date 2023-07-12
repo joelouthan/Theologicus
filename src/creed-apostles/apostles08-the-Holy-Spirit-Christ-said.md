@@ -73,7 +73,7 @@ When Christ said, "You must be born again," make no mistake: you must be born ag
 
 >our full persuasion and assurance of the infallible truth, and divine authority thereof, is from the inward work of the Holy Spirit bearing witness by and with the Word in our hearts.
 >
->[1689.1.5 Inward Work of the Holy Spirit Concerning the Scriptures](https://theologic.us/posts/confession-1689/1689-1-5-the-inward-work-of-holy-spirit-concerning-scripture/)
+>[1689.1.5 Inward Work of the Holy Spirit Concerning the Scriptures](https://theologic.us/confession-1689/1689-1-5-the-inward-work-of-holy-spirit-concerning-scripture/)
 
 #### On Christ: The Spirit glorifies Christ
 
