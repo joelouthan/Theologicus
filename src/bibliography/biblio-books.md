@@ -12,6 +12,13 @@ Chad Bird.
 
 <hr style="clear:both;">
 
+<img src="/images/book-consequences-of-ideas-sproul.jpg">The Consequences of Ideas: Understanding the Concepts that Shaped Our World  
+R.C. Sproul.  
+Crossway. 2018.  
+[Goodreads](https://www.goodreads.com/book/show/6616365-the-consequences-of-ideas)
+
+<hr style="clear:both;">
+
 <img src="images/book-creedal-imperative-trueman.jpg">The Creedal Imperative.  
 Carl R. Trueman  
 Crossway, 2012.  
