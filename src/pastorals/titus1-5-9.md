@@ -111,7 +111,7 @@ This is a hill I am certainly not willing to die upon.  I have bigger hills to d
 
 ### with faithful children who are not accused of wildness or rebellion.
 
-From my [commentary](/gospel-nt/2021-03-17-gospel-nt-1-timothy/#the-husband-of-one-wife/#must-manage-his-own-household-competently-and-have-his-children-under-control-with-all-dignity-if-anyone-does-not-know-how-to-manage-his-own-household-how-will-he-take-care-of-gods-church) on 1 Timothy 3:4:
+From my [commentary](/pastorals/1-timothy3-1-7.md#must-manage-his-own-household-competently-and-have-his-children-under-control-with-all-dignity-if-anyone-does-not-know-how-to-manage-his-own-household-how-will-he-take-care-of-gods-churchh) on 1 Timothy 3:4:
 
 > Take a walk through your home, budget, and the general "adulting" things that need to get done: are they getting done?
 

@@ -111,7 +111,7 @@ by William Hendriksen.
 Baker. 1981.  
 [Goodreads](https://www.goodreads.com/book/show/2365098.Mark)
 
-Sheer luck (aka sheer blessing from God) that I ran into a small incomplete set of Hendriksen's Commentaries at my local [Half Priced Books](https://www.hpb.com/). I have never heard of this guy and the only facts I could find out about him was from [Wikipedia](william hendriksen commentary online).
+Sheer luck (aka sheer blessing from God) that I ran into a small incomplete set of Hendriksen's Commentaries at my local [Half Priced Books](https://www.hpb.com/). I have never heard of this guy and the only facts I could find out about him was from [Wikipedia](https://en.wikipedia.org/wiki/William_Hendriksen).
 
 From the article:
 

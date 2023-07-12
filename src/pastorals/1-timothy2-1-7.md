@@ -66,7 +66,7 @@ Now you might think, "Isn't the prayers of the wicked worthless to God?"
 
 Let me ask you this, if you have the wisdom, gumption, smarts, strength, grace, wherewithal, motivation to go to God, where do you think you get that power from? Not on earth. Not from yourself. 
 
-I encourage you all to study [Ordo Salutis](/series/ordo-salutis/), the order of how God saves his people from their sins. You will see, for someone to even approach God, they could not as a son of Adam, but God, rich in mercy and love, has to swoop down into us, pull our wicked, concrete hearts out, replaces it with his own heart, and then gives us his Almighty Spirit so that you and I will now have new desires and passions.
+I encourage you all to study [Ordo Salutis](/doctrine-christ-saves/index.md), the order of how God saves his people from their sins. You will see, for someone to even approach God, they could not as a son of Adam, but God, rich in mercy and love, has to swoop down into us, pull our wicked, concrete hearts out, replaces it with his own heart, and then gives us his Almighty Spirit so that you and I will now have new desires and passions.
 
 The unbeliever and worthless man cannot go to God. Not until God changes that man. Only then can mankind know that they are in desperate need of the only Savior who is able, willing, and power to save them from the death and sin.
 

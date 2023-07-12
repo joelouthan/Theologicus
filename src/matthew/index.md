@@ -14,7 +14,7 @@ We did end up finding a church April and have been faithfully attending. It was 
 
 I need y'all to look at God! What he started, he will finish!
 
-I just finished teaching my [first series](../ruth/) at my church, [Reforming Truth (Lexington, KY)](https://theologic.us/) and was giving some thought on what my next series will be. 
+I just finished teaching my [first series](../ruth/index.md) at my church, [Reforming Truth (Lexington, KY)](https://theologic.us/) and was giving some thought on what my next series will be. 
 
 Matthew seems as natural as the next step because:
 

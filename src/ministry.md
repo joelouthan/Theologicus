@@ -112,7 +112,7 @@ It is like I ask my kids, "Does God have T-Rex arms?" Of course He doesn't. He i
 
 ## DOCTRINAL STATEMENT
 
-I am Creedal and abide in the [Apostles' Creed](/creed-apostles/apostles.md), Nicene, Chalcedonian, and Athanasian Creed.
+I am Creedal and abide in the [Apostles' Creed](/creed-apostles/index.md), Nicene, Chalcedonian, and Athanasian Creed.
 
 I am Confessional and confess the 1689 Second London Baptist Confession. My exposition of the 1689 Confession is [here](/confession-1689/1689-00-intro.md).
 

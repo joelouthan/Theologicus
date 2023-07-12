@@ -1257,7 +1257,7 @@ Galatians 3:21; Ezekiel 36:27
 
 ### 
 
-The covenant of works being broken by sin, and made unprofitable unto life, God was pleased to give forth the promise of Christ, the seed of the woman, as the means of calling the elect, and begetting in them faith and repentance; in this promise the gospel, as to the substance of it, was revealed, and [is] therein effectual for the conversion and salvation of sinners.
+The covenant of works being broken by sin, and made unprofitable unto life, God was pleased to give forth the promise of Christ, the seed of the woman, as the means of calling the elect, and begetting in them faith and repentance; in this promise the gospel, as to the substance of it, was revealed, and is therein effectual for the conversion and salvation of sinners.
 
 Genesis 3:15; Revelation 13:8
 
