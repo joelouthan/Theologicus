@@ -2,6 +2,8 @@
 
 # 1689 Second London Baptist Confession of Faith With Scripture Proofs
 
+<!-- toc -->
+
 ## Prelude
 
 Adopted by the Ministers and Messengers of the general assembly which met in London in 1689
