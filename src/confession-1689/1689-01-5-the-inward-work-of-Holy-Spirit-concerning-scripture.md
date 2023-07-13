@@ -24,7 +24,10 @@ About ten years ago, around 2010, pop-neo-atheism really became popular. Names l
 
 I remember that this graphic made its way into Evangelical blogosphere and some discussion was generated from it:
 
-![The Reason Project: Bible Contradictions](/images/the-reason-project-bible-contradictions.jpg)
+<figure style="text-align: center;">
+   <img src="/images/the-reason-project-bible-contradictions.jpg " style="display: block; float: none; margin: auto; width: 600px;" alt="The Reason Project: Bible Contradictions">
+   <figcaption style="font-style: italic; text-align: center;">The Reason Project: Bible Contradictions</figcaption>
+</figure>
 
 Without taking the painstaking task of diffusing and unraveling each of these apparent contradictions, I was struck at this one thought:
 
