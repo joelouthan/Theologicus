@@ -5,6 +5,13 @@ Nabu Press. 2010.
 
 <hr style="clear:both;">
 
+<img src="images/preaching-between-two-worlds-stott.jpg">Between Two Worlds.  
+John R.W. Stott.  
+Eerdmans. 2017.  
+[Goodreads](https://www.goodreads.com/book/show/34153596-between-two-worlds)
+
+<hr style="clear:both;">
+
 [<img src="images/preaching-supremacy-of-God-in-preaching-piper.jpg">The Supremacy of God in Preaching](reviews/the-supremacy-of-god-in-preaching.md).  
 John Piper.  
 Baker Books. 2004.  
