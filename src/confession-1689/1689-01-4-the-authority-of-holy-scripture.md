@@ -43,7 +43,7 @@
 
 >John 1:4–5 (CSB) In him was life, and that life was the light of men. That light shines in the darkness, and yet the darkness did not overcome it.
 
-In reading John Stott's *Between Two Worlds*, I was moved by his compassion towards the theological liberal. Stott suggested that they were trying to make sense of the rational world in which they lived and what the Bible said. In other words, does an ancient text like the Bible, or for that matter, the religion of Christianity, have any place in today's modern world.
+In reading John Stott's *[Between Two Worlds](https://www.goodreads.com/book/show/34153596-between-two-worlds)*, I was moved by his compassion towards the theological liberal. Stott suggested that they were trying to make sense of the rational world in which they lived and what the Bible said. In other words, does an ancient text like the Bible, or for that matter, the religion of Christianity, have any place in today's modern world.
 
 But this is where we see and receive the authority given by God to us for us. God did not give supreme authority to kings and rulers of this age (although he did give governing authority as stated in Romans 13). God did not give supreme authority to the philosophical thought of this age. (It must be noted that Paul warns us to guard against philosophy and empty deceit based on human tradition, which is based on the elements of the world, rather than Christ. Colossians 2:8)
 
