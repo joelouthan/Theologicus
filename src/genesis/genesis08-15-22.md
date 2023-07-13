@@ -58,7 +58,7 @@ Through judgment and wrath and righteousness and the holiness of God and his rig
 
 ### Promise of God: God will deliver you through the world
 
->James 4:13-17 (CSB) Come now, you who say, “Today or tomorrow we will travel to such and such a city and spend a year there and do business and make a profit.” 14 Yet you do not know what tomorrow will bring—what your life will be! For you are like vapor that appears for a little while, then vanishes. 15 Instead, you should say, “If the Lord wills, we will live and do this or that.” 16 But as it is, you boast in your arrogance. All such boasting is evil. 17 So it is sin to know the good and yet not do it.
+>James 4:13-17 (CSB) Come now, you who say, “Today or tomorrow we will travel to such and such a city and spend a year there and do business and make a profit.”Yet you do not know what tomorrow will bring—what your life will be! For you are like vapor that appears for a little while, then vanishes.Instead, you should say, “If the Lord wills, we will live and do this or that.”But as it is, you boast in your arrogance. All such boasting is evil.So it is sin to know the good and yet not do it.
 
 I am not trying to preach your best life now. Because you if you think you believe there is a God and don't obey him, this is the best that life gets. Because your way is straight to a place where there is weeping and gnashing of teeth.
 
@@ -90,7 +90,7 @@ Tell me when you get bored of the good news.
 
 >Ephesians 2:8-9 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast.
 
->Romans 5:8-9 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us. 9 How much more then, since we have now been justified by his blood, will we be saved through him from wrath.
+>Romans 5:8-9 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us.How much more then, since we have now been justified by his blood, will we be saved through him from wrath.
 
 >Acts 2:21 (CSB) Then everyone who calls on the name of the Lord will be saved.
 
@@ -104,7 +104,7 @@ Who alone is righteous? Who alone calls for repentance of sin? Who is the only o
 
 Jesus Christ is his name!
 
->Matthew 23:37-39 (CSB) Jerusalem, Jerusalem, who kills the prophets and stones those who are sent to her. How often I wanted to gather your children together, as a hen gathers her chicks under her wings, but you were not willing! 38 See, your house is left to you desolate. 39 For I tell you, you will not see me again until you say, ‘Blessed is he who comes in the name of the Lord’!”
+>Matthew 23:37-39 (CSB) Jerusalem, Jerusalem, who kills the prophets and stones those who are sent to her. How often I wanted to gather your children together, as a hen gathers her chicks under her wings, but you were not willing!See, your house is left to you desolate.For I tell you, you will not see me again until you say, ‘Blessed is he who comes in the name of the Lord’!”
 
 ## Our Response
 

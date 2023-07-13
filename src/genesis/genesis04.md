@@ -8,9 +8,9 @@
 
 ## The Text
 
->Genesis 4 (CSB) The man was intimate with his wife Eve, and she conceived and gave birth to Cain. She said, “I have had a male child with the LORD’s help.” 2 She also gave birth to his brother Abel. Now Abel became a shepherd of flocks, but Cain worked the ground. 3 In the course of time Cain presented some of the land’s produce as an offering to the LORD. 4 And Abel also presented an offering—some of the firstborn of his flock and their fat portions. The LORD had regard for Abel and his offering, 5 but he did not have regard for Cain and his offering. Cain was furious, and he looked despondent.
+>Genesis 4 (CSB) The man was intimate with his wife Eve, and she conceived and gave birth to Cain. She said, “I have had a male child with the LORD’s help.”She also gave birth to his brother Abel. Now Abel became a shepherd of flocks, but Cain worked the ground.In the course of time Cain presented some of the land’s produce as an offering to the LORD.And Abel also presented an offering—some of the firstborn of his flock and their fat portions. The LORD had regard for Abel and his offering,but he did not have regard for Cain and his offering. Cain was furious, and he looked despondent.
 >
->6 Then the LORD said to Cain, “Why are you furious? And why do you look despondent? 7 If you do what is right, won’t you be accepted? But if you do not do what is right, sin is crouching at the door. Its desire is for you, but you must rule over it.”
+>6 Then the LORD said to Cain, “Why are you furious? And why do you look despondent?If you do what is right, won’t you be accepted? But if you do not do what is right, sin is crouching at the door. Its desire is for you, but you must rule over it.”
 >
 >8 Cain said to his brother Abel, “Let’s go out to the field.” And while they were in the field, Cain attacked his brother Abel and killed him.
 >
@@ -18,13 +18,13 @@
 >
 >“I don’t know,” he replied. “Am I my brother’s guardian?”
 >
->10 Then he said, “What have you done? Your brother’s blood cries out to me from the ground! 11 So now you are cursed, alienated from the ground that opened its mouth to receive your brother’s blood you have shed. 12 If you work the ground, it will never again give you its yield. You will be a restless wanderer on the earth.”
+>10 Then he said, “What have you done? Your brother’s blood cries out to me from the ground!So now you are cursed, alienated from the ground that opened its mouth to receive your brother’s blood you have shed.If you work the ground, it will never again give you its yield. You will be a restless wanderer on the earth.”
 >
->13 But Cain answered the LORD, “My punishment is too great to bear! 14 Since you are banishing me today from the face of the earth, and I must hide from your presence and become a restless wanderer on the earth, whoever finds me will kill me.”
+>13 But Cain answered the LORD, “My punishment is too great to bear!Since you are banishing me today from the face of the earth, and I must hide from your presence and become a restless wanderer on the earth, whoever finds me will kill me.”
 >
->15 Then the LORD replied to him, “In that case, whoever kills Cain will suffer vengeance seven times over.” And he placed a mark on Cain so that whoever found him would not kill him. 16 Then Cain went out from the LORD’s presence and lived in the land of Nod, east of Eden.
+>15 Then the LORD replied to him, “In that case, whoever kills Cain will suffer vengeance seven times over.” And he placed a mark on Cain so that whoever found him would not kill him.Then Cain went out from the LORD’s presence and lived in the land of Nod, east of Eden.
 >
->17 Cain was intimate with his wife, and she conceived and gave birth to Enoch. Then Cain became the builder of a city, and he named the city Enoch after his son. 18 Irad was born to Enoch, Irad fathered Mehujael (May-who-sha-el), Mehujael fathered Methushael (Meh-thu-sha-el), and Methushael fathered Lamech. 19 Lamech took two wives for himself, one named Adah (A-da) and the other named Zillah. 20 Adah bore Jabal; he was the first of the nomadic herdsmen. 21 His brother was named Jubal; he was the first of all who play the lyre and the flute. 22 Zillah bore Tubal-cain, who made all kinds of bronze and iron tools. Tubal-cain’s sister was Naamah (Na-a-mah).
+>17 Cain was intimate with his wife, and she conceived and gave birth to Enoch. Then Cain became the builder of a city, and he named the city Enoch after his son.Irad was born to Enoch, Irad fathered Mehujael (May-who-sha-el), Mehujael fathered Methushael (Meh-thu-sha-el), and Methushael fathered Lamech.Lamech took two wives for himself, one named Adah (A-da) and the other named Zillah.Adah bore Jabal; he was the first of the nomadic herdsmen.His brother was named Jubal; he was the first of all who play the lyre and the flute.Zillah bore Tubal-cain, who made all kinds of bronze and iron tools. Tubal-cain’s sister was Naamah (Na-a-mah).
 >
 >23 Lamech said to his wives:  
 >Adah and Zillah, hear my voice;  
@@ -34,7 +34,7 @@
 >24 If Cain is to be avenged seven times over,  
 >then for Lamech it will be seventy-seven times!  
 >
->25 Adam was intimate with his wife again, and she gave birth to a son and named him Seth, for she said, “God has given me another offspring in place of Abel, since Cain killed him.” 26 A son was born to Seth also, and he named him Enosh. At that time people began to call on the name of the LORD.
+>25 Adam was intimate with his wife again, and she gave birth to a son and named him Seth, for she said, “God has given me another offspring in place of Abel, since Cain killed him.”A son was born to Seth also, and he named him Enosh. At that time people began to call on the name of the LORD.
 
 ## God
 
@@ -42,7 +42,7 @@
 
 >Genesis 4 (CSB) The man was intimate with his wife Eve, and she conceived and gave birth to Cain. She said, “I have had a male child with the LORD’s help.”
 
->17 Cain was intimate with his wife, and she conceived and gave birth to Enoch. Then Cain became the builder of a city, and he named the city Enoch after his son. 18 Irad was born to Enoch, Irad fathered Mehujael (May-who-sha-el), Mehujael fathered Methushael (Meh-thu-sha-el), and Methushael fathered Lamech. 19 Lamech took two wives for himself, one named Adah (A-da) and the other named Zillah. 20 Adah bore Jabal; he was the first of the nomadic herdsmen. 21 His brother was named Jubal; he was the first of all who play the lyre and the flute. 22 Zillah bore Tubal-cain, who made all kinds of bronze and iron tools. Tubal-cain’s sister was Naamah (Na-a-mah).
+>17 Cain was intimate with his wife, and she conceived and gave birth to Enoch. Then Cain became the builder of a city, and he named the city Enoch after his son.Irad was born to Enoch, Irad fathered Mehujael (May-who-sha-el), Mehujael fathered Methushael (Meh-thu-sha-el), and Methushael fathered Lamech.Lamech took two wives for himself, one named Adah (A-da) and the other named Zillah.Adah bore Jabal; he was the first of the nomadic herdsmen.His brother was named Jubal; he was the first of all who play the lyre and the flute.Zillah bore Tubal-cain, who made all kinds of bronze and iron tools. Tubal-cain’s sister was Naamah (Na-a-mah).
 
 >25 Adam was intimate with his wife again, and she gave birth to a son and named him Seth, for she said, “God has given me another offspring in place of Abel, since Cain killed him.” 26a A son was born to Seth also, and he named him Enosh.
 
@@ -54,9 +54,9 @@
 
 ### God meets us when we are tempted by sin
 
->3 In the course of time Cain presented some of the land’s produce as an offering to the LORD. 4 And Abel also presented an offering—some of the firstborn of his flock and their fat portions. The LORD had regard for Abel and his offering, 5 but he did not have regard for Cain and his offering. Cain was furious, and he looked despondent.
+>3 In the course of time Cain presented some of the land’s produce as an offering to the LORD.And Abel also presented an offering—some of the firstborn of his flock and their fat portions. The LORD had regard for Abel and his offering,but he did not have regard for Cain and his offering. Cain was furious, and he looked despondent.
 >
->6 Then the LORD said to Cain, “Why are you furious? And why do you look despondent? 7 If you do what is right, won’t you be accepted? But if you do not do what is right, sin is crouching at the door. Its desire is for you, but you must rule over it.”
+>6 Then the LORD said to Cain, “Why are you furious? And why do you look despondent?If you do what is right, won’t you be accepted? But if you do not do what is right, sin is crouching at the door. Its desire is for you, but you must rule over it.”
 
 >James 1:13 (CSB) No one undergoing a trial should say, “I am being tempted by God,” since God is not tempted by evil, and he himself doesn’t tempt anyone.
 
@@ -70,7 +70,7 @@
 >
 >“I don’t know,” he replied. “Am I my brother’s guardian?”
 >
->10 Then he said, “What have you done? Your brother’s blood cries out to me from the ground! 11 So now you are cursed, alienated from the ground that opened its mouth to receive your brother’s blood you have shed. 12 If you work the ground, it will never again give you its yield. You will be a restless wanderer on the earth.”
+>10 Then he said, “What have you done? Your brother’s blood cries out to me from the ground!So now you are cursed, alienated from the ground that opened its mouth to receive your brother’s blood you have shed.If you work the ground, it will never again give you its yield. You will be a restless wanderer on the earth.”
 
 #### Left unchecked, sin begats greater sin
 
@@ -82,17 +82,17 @@
 >24 If Cain is to be avenged seven times over,  
 >then for Lamech it will be seventy-seven times!  
 
->James 1:14 But each person is tempted when he is drawn away and enticed by his own evil desire. 15 Then after desire has conceived, it gives birth to sin, and when sin is fully grown, it gives birth to death.
+>James 1:14 But each person is tempted when he is drawn away and enticed by his own evil desire.Then after desire has conceived, it gives birth to sin, and when sin is fully grown, it gives birth to death.
 
 ## The Gospel
 
 ### God has the greatest mercy for sinners
 
->13 But Cain answered the LORD, “My punishment is too great to bear! 14 Since you are banishing me today from the face of the earth, and I must hide from your presence and become a restless wanderer on the earth, whoever finds me will kill me.”
+>13 But Cain answered the LORD, “My punishment is too great to bear!Since you are banishing me today from the face of the earth, and I must hide from your presence and become a restless wanderer on the earth, whoever finds me will kill me.”
 >
->15 Then the LORD replied to him, “In that case, whoever kills Cain will suffer vengeance seven times over.” And he placed a mark on Cain so that whoever found him would not kill him. 16 Then Cain went out from the LORD’s presence and lived in the land of Nod, east of Eden.
+>15 Then the LORD replied to him, “In that case, whoever kills Cain will suffer vengeance seven times over.” And he placed a mark on Cain so that whoever found him would not kill him.Then Cain went out from the LORD’s presence and lived in the land of Nod, east of Eden.
 
->Ephesians 2:1-5 (CSB) And you were dead in your trespasses and sins 2 in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. 3 We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. 4 But God, who is rich in mercy, because of his great love that he had for us, 5 made us alive with Christ even though we were dead in trespasses. You are saved by grace!
+>Ephesians 2:1-5 (CSB) And you were dead in your trespasses and sinsin which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient.We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.But God, who is rich in mercy, because of his great love that he had for us,made us alive with Christ even though we were dead in trespasses. You are saved by grace!
 
  - The mercy of God on Adam and Eve
  - The mercy of God on Cain
@@ -100,13 +100,13 @@
 
 >Titus 3:3-7 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
 >
->4 But when the kindness of God our Savior and his love for mankind appeared, 5 he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. 6 He poured out his Spirit on us abundantly through Jesus Christ our Savior 7 so that, having been justified by his grace, we may become heirs with the hope of eternal life.
+>4 But when the kindness of God our Savior and his love for mankind appeared,he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit.He poured out his Spirit on us abundantly through Jesus Christ our Saviorso that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
 ## Our Response
 
 ### Don't be tempted and deceived by sin
 
->James 1:16 Don’t be deceived, my dear brothers and sisters. 17 Every good and perfect gift is from above, coming down from the Father of lights, who does not change like shifting shadows. 18 By his own choice, he gave us birth by the word of truth so that we would be a kind of firstfruits of his creatures.
+>James 1:16 Don’t be deceived, my dear brothers and sisters.Every good and perfect gift is from above, coming down from the Father of lights, who does not change like shifting shadows.By his own choice, he gave us birth by the word of truth so that we would be a kind of firstfruits of his creatures.
 
 ### Stop counting your sins
 
@@ -124,8 +124,8 @@ You must do what God has commanded every single son of Adam to do if they wanted
 
 >Genesis 4:26 At that time people began to call on the name of the LORD.
 
->Romans 10:8-13 (CSB) On the contrary, what does it say? The message is near you, in your mouth and in your heart. This is the message of faith that we proclaim: 9 If you confess with your mouth, “Jesus is Lord,” and believe in your heart that God raised him from the dead, you will be saved. 10 One believes with the heart, resulting in righteousness, and one confesses with the mouth, resulting in salvation. 11 For the Scripture says, Everyone who believes on him will not be put to shame, 12 since there is no distinction between Jew and Greek, because the same Lord of all richly blesses all who call on him. 13 For everyone who calls on the name of the Lord will be saved.
+>Romans 10:8-13 (CSB) On the contrary, what does it say? The message is near you, in your mouth and in your heart. This is the message of faith that we proclaim:If you confess with your mouth, “Jesus is Lord,” and believe in your heart that God raised him from the dead, you will be saved.One believes with the heart, resulting in righteousness, and one confesses with the mouth, resulting in salvation.For the Scripture says, Everyone who believes on him will not be put to shame,since there is no distinction between Jew and Greek, because the same Lord of all richly blesses all who call on him.For everyone who calls on the name of the Lord will be saved.
 
-From Genesis to Revelation. Day 6 of creation to the last day. It doesn't matter. You want God's daily mercies, his oceans of grace, and his unending love for you even if you have done unspeakable evil and live in shame and fear. 
+From Genesis to Revelation. Day six of creation to the last day. It doesn't matter. You want God's daily mercies, his oceans of grace, and his unending love for you even if you have done unspeakable evil and live in shame and fear. 
 
 Call upon his name and you will be saved. Full stop.

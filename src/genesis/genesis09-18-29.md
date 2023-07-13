@@ -61,7 +61,7 @@ Furthermore, we have already seen that God will stop at nothing to save his peop
 
 ### The Glory of God: Mankind sins--God is righteous
 
->Matthew 23:27-28 (CSB) “Woe to you, scribes and Pharisees, hypocrites! You are like whitewashed tombs, which appear beautiful on the outside, but inside are full of the bones of the dead and every kind of impurity. 28 In the same way, on the outside you seem righteous to people, but inside you are full of hypocrisy and lawlessness.
+>Matthew 23:27-28 (CSB) “Woe to you, scribes and Pharisees, hypocrites! You are like whitewashed tombs, which appear beautiful on the outside, but inside are full of the bones of the dead and every kind of impurity.In the same way, on the outside you seem righteous to people, but inside you are full of hypocrisy and lawlessness.
 
 God wipes the wickedness off the earth. All the evil has been purged. Life should be easy.
 
@@ -90,13 +90,13 @@ God has saved man. God has wiped wickedness from the earth. Yet, Noah sins in th
 
 And I don't have short-term memory loss: I remember the declaration in Genesis 6.
 
->Genesis 6:8-9 (CSB) Noah, however, found favor with the LORD. 9 These are the family records of Noah. Noah was a righteous man, blameless among his contemporaries; Noah walked with God.
+>Genesis 6:8-9 (CSB) Noah, however, found favor with the LORD.These are the family records of Noah. Noah was a righteous man, blameless among his contemporaries; Noah walked with God.
 
 How do we reconcile the these two opposing issues?
 
 I think that any Christian who has been saved for longer than a moment already feel this strain. We believe in God, trust in God, and by the Spirit alone, obey Christ but yet we fall.
 
->Romans 7:22-24 (CSB) For in my inner self I delight in God’s law, 23 but I see a different law in the parts of my body, waging war against the law of my mind and taking me prisoner to the law of sin in the parts of my body. 24 What a wretched man I am! Who will rescue me from this body of death?
+>Romans 7:22-24 (CSB) For in my inner self I delight in God’s law,but I see a different law in the parts of my body, waging war against the law of my mind and taking me prisoner to the law of sin in the parts of my body.What a wretched man I am! Who will rescue me from this body of death?
 
 Guess what? Salvation is not a one time thing. It is an every day, every hour, every second type of thing.
 
@@ -104,7 +104,7 @@ I look back at my life with God and see how he will rescue me from my sins over 
 
 God don't stop. God can't stop. Never stop rescuing us. It is what he does.
 
->Romans 8:12-13 (CSB) So then, brothers and sisters, we are not obligated to the flesh to live according to the flesh, 13 because if you live according to the flesh, you are going to die. But if by the Spirit you put to death the deeds of the body, you will live.
+>Romans 8:12-13 (CSB) So then, brothers and sisters, we are not obligated to the flesh to live according to the flesh,because if you live according to the flesh, you are going to die. But if by the Spirit you put to death the deeds of the body, you will live.
 
 > Proverbs 24:16 (CSB) Though a righteous person falls seven times,
 he will get up,
@@ -153,11 +153,11 @@ our transgressions from us.
 
 >2 Corinthians 5:19 (CSB) That is, in Christ, God was reconciling the world to himself, not counting their trespasses against them, and he has committed the message of reconciliation to us.
 
->Ephesians 1:7-8 (CSB) In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace 8 that he richly poured out on us with all wisdom and understanding.
+>Ephesians 1:7-8 (CSB) In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his gracethat he richly poured out on us with all wisdom and understanding.
 
->Ephesians 2:4-5 (CSB) But God, who is rich in mercy, because of his great love that he had for us, 5 made us alive with Christ even though we were dead in trespasses. You are saved by grace!
+>Ephesians 2:4-5 (CSB) But God, who is rich in mercy, because of his great love that he had for us,made us alive with Christ even though we were dead in trespasses. You are saved by grace!
 
->Titus 3:4-7 (CSB) 4 But when the kindness of God our Savior and his love for mankind appeared, 5 he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. 6 He poured out his Spirit on us abundantly through Jesus Christ our Savior 7 so that, having been justified by his grace, we may become heirs with the hope of eternal life.
+>Titus 3:4-7 (CSB)But when the kindness of God our Savior and his love for mankind appeared,he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit.He poured out his Spirit on us abundantly through Jesus Christ our Saviorso that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
 >Titus 2:14 (CSB) He gave himself for us to redeem us from all lawlessness and to cleanse for himself a people for his own possession, eager to do good works.
 

@@ -12,7 +12,7 @@ Don't gloss over thinking you know the passage you are about to read. Call on th
 
 I say that to say that when you read Genesis 4 through 6, you might be tempting in thinking that there is something holy, good, set apart in the lineage of Adam to Noah--as though something was inherently good within the that particular bloodline.
 
->John 1:11-13 (CSB) He came to his own, and his own people did not receive him. 12 But to all who did receive him, he gave them the right to be children of God, to those who believe in his name, 13 who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
+>John 1:11-13 (CSB) He came to his own, and his own people did not receive him.But to all who did receive him, he gave them the right to be children of God, to those who believe in his name,who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
 
 What Bible teaches clearly is that every human being born of man was born far from the holiness of God. By birth, we are destined to died. "No one is righteous; no, not one" as the Apostle Paul quotes King David in the Psalms. 
 
@@ -53,7 +53,7 @@ Let us get into the text and see how this goes.
 
 ><sup> 1 </sup> Then the LORD said to Noah, “Enter the ark, you and all your household, for I have seen that you alone are righteous before me in this generation.
 
->Romans 5:1-2 (CSB) Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. 2 We have also obtained access through him by faith into this grace in which we stand, and we boast in the hope of the glory of God.
+>Romans 5:1-2 (CSB) Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. We have also obtained access through him by faith into this grace in which we stand, and we boast in the hope of the glory of God.
 
 We see in two accounts in the Gospels where Jesus simply declares that person who has come to him (either with help or forced) looking to be healed and looking for mercy.
 
@@ -73,7 +73,7 @@ And to the woman caught in the middle of adultery, what does Christ say to her?
 
 And to Mary, sister of Martha and Lazarus and close friend of Jesus, who began that friendship not as someone who cleaned themselves up and approached in self-righteousness, but in the midst of shame and ridicule of church folks as she desperately came to worship Christ and anointed his feet with oil as he inched closer to his death and burial:
 
->Luke 7:47-50 (CSB) Therefore I tell you, her many sins have been forgiven; that’s why she loved much. But the one who is forgiven little, loves little.” 48 Then he said to her, “Your sins are forgiven.”
+>Luke 7:47-50 (CSB) Therefore I tell you, her many sins have been forgiven; that’s why she loved much. But the one who is forgiven little, loves little.”Then he said to her, “Your sins are forgiven.”
 >
 >49 Those who were at the table with him began to say among themselves, “Who is this man who even forgives sins?”
 >
@@ -87,7 +87,7 @@ And according to the Scriptures alone, Christ came to our world and he was set o
 
 >Hebrews 9:22 (CSB) According to the law almost everything is purified with blood, and without the shedding of blood there is no forgiveness.
 
->Romans 3:25-26 (CSB) God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. 26 God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.
+>Romans 3:25-26 (CSB) God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed.God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.
 
 >Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
@@ -113,7 +113,7 @@ Read the Old Testament and stop and think about every passage that mentions a sa
 
 Sum it up like this:
 
->Hebrews 10:1-4 (CSB) Since the law has only a shadow of the good things to come, and not the reality itself of those things, it can never perfect the worshipers by the same sacrifices they continually offer year after year. 2 Otherwise, wouldn’t they have stopped being offered, since the worshipers, purified once and for all, would no longer have any consciousness of sins? 3 But in the sacrifices there is a reminder of sins year after year. 4 For it is impossible for the blood of bulls and goats to take away sins.
+>Hebrews 10:1-4 (CSB) Since the law has only a shadow of the good things to come, and not the reality itself of those things, it can never perfect the worshipers by the same sacrifices they continually offer year after year.Otherwise, wouldn’t they have stopped being offered, since the worshipers, purified once and for all, would no longer have any consciousness of sins?But in the sacrifices there is a reminder of sins year after year.For it is impossible for the blood of bulls and goats to take away sins.
 
 Think of the rivers of animals' blood that was poured out upon the altar, year after year--all of it was in obedience to God and none of it saved you from you sins.
 
@@ -170,15 +170,15 @@ But what does Christ say to those who would defend themselves in his throne room
 
 How were lawbreakers depart from the Son of God?
 
->Revelation 20:11-15 (CSB) Then I saw a great white throne and one seated on it. Earth and heaven fled from his presence, and no place was found for them. 12 I also saw the dead, the great and the small, standing before the throne, and books were opened. Another book was opened, which is the book of life, and the dead were judged according to their works by what was written in the books. 13 Then the sea gave up the dead that were in it, and death and Hades gave up the dead that were in them; each one was judged according to their works. 14 Death and Hades were thrown into the lake of fire. This is the second death, the lake of fire. 15 And anyone whose name was not found written in the book of life was thrown into the lake of fire.
+>Revelation 20:11-15 (CSB) Then I saw a great white throne and one seated on it. Earth and heaven fled from his presence, and no place was found for them.I also saw the dead, the great and the small, standing before the throne, and books were opened. Another book was opened, which is the book of life, and the dead were judged according to their works by what was written in the books.Then the sea gave up the dead that were in it, and death and Hades gave up the dead that were in them; each one was judged according to their works.Death and Hades were thrown into the lake of fire. This is the second death, the lake of fire.And anyone whose name was not found written in the book of life was thrown into the lake of fire.
 
 You depart not into some neutral territory or some wilderness. You will sit under the never ending wrath of God where, Christ himself describes it this way:
 
 >Matthew 8:12 (CSB) But the sons of the kingdom will be thrown into the outer darkness where there will be weeping and gnashing of teeth.
 
->Matthew 13:41-42 (CSB) The Son of Man will send out his angels, and they will gather from his kingdom all who cause sin and those guilty of lawlessness. 42 They will throw them into the blazing furnace where there will be weeping and gnashing of teeth.
+>Matthew 13:41-42 (CSB) The Son of Man will send out his angels, and they will gather from his kingdom all who cause sin and those guilty of lawlessness.They will throw them into the blazing furnace where there will be weeping and gnashing of teeth.
 
->Matthew 13:49-50 (CSB) So it will be at the end of the age. The angels will go out, separate the evil people from the righteous, 50 and throw them into the blazing furnace, where there will be weeping and gnashing of teeth.
+>Matthew 13:49-50 (CSB) So it will be at the end of the age. The angels will go out, separate the evil people from the righteous,and throw them into the blazing furnace, where there will be weeping and gnashing of teeth.
 
 >Matthew 22:13 (CSB) “Then the king told the attendants, ‘Tie him up hand and foot, and throw him into the outer darkness, where there will be weeping and gnashing of teeth.’
 
@@ -202,7 +202,7 @@ If it is clear that God's judgment upon mankind is certain, what is ours to do?
 >
 ><sup> 9 </sup> two of each, male and female, came to Noah and entered the ark, just as God had commanded him. 
 
->Matthew 7:13-14 (CSB) “Enter through the narrow gate. For the gate is wide and the road broad that leads to destruction, and there are many who go through it. 14 How narrow is the gate and difficult the road that leads to life, and few find it.
+>Matthew 7:13-14 (CSB) “Enter through the narrow gate. For the gate is wide and the road broad that leads to destruction, and there are many who go through it.How narrow is the gate and difficult the road that leads to life, and few find it.
 
 ### When you obey the gospel of Christ, that is entering into the joy and rest and protect of the Almighty God
 
@@ -210,7 +210,7 @@ If it is clear that God's judgment upon mankind is certain, what is ours to do?
 
 Not your fame, not your power, not your might, not your riches, not in the things you did--only by trusting Christ, repenting of sin, and obeying God will you see protection from his wrath.
 
->Matthew 11:28-30 (CSB) “Come to me, all of you who are weary and burdened, and I will give you rest. 29 Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. 30 For my yoke is easy and my burden is light.”
+>Matthew 11:28-30 (CSB) “Come to me, all of you who are weary and burdened, and I will give you rest.Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls.For my yoke is easy and my burden is light.”
 
 Come through the narrow gate.
 

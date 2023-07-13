@@ -22,9 +22,9 @@
 
 ### Under the name of Holy Scripture, or the Word of God written, are now contained all the books of the Old and New Testaments
 
-How did the canonization of the 66 books of the Bible come to being?
+How did the canonization of the sixty-six books of the Bible come to being?
 
-Without going into a lengthy, detailed history lesson, let me put it simply: what did the ministers in the first few centuries of the church preach from? They preached from the 66 books of the Bible. If you take a stroll through a large bookstore chain, in around the Christian book section, you might find some book catch your eye like "The Lost Gospel of Thomas" or some such.
+Without going into a lengthy, detailed history lesson, let me put it simply: what did the ministers in the first few centuries of the church preach from? They preached from the sixty-six books of the Bible. If you take a stroll through a large bookstore chain, in around the Christian book section, you might find some book catch your eye like "The Lost Gospel of Thomas" or some such.
 
 Let me encourage if you got the time and energy: go and read these suppose lost gospels or lost books of the Bible. But you better know your Bible well. If you know your Bible, what you will find is that these lost books will start to contradict and contrast the Bible, the minstry of Christ and the gospel of Christ. You will quickly see that they don't belong there.
 
@@ -40,7 +40,7 @@ And if you don't know your Bible well, you might be tempted to dismiss this alto
 
 ### All of which are given by the inspiration of God, to be the rule of faith and life
 
->2 Timothy 3:16 - 17 (CSB) All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
+>2 Timothy 3:16-17 (CSB) All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
 
 >Luke 16:29-31 (CSB) But Abraham said, ‘They have Moses and the prophets; they should listen to them.’ “‘No, father Abraham,’ he said. ‘But if someone from the dead goes to them, they will repent.’ “But he told him, ‘If they don’t listen to Moses and the prophets, they will not be persuaded if someone rises from the dead.’”
 

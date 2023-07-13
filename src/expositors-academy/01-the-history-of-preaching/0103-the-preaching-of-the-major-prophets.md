@@ -81,7 +81,7 @@ We will be delivered from our despair. We will be brought properly into the pres
 
 The message we bring is an unchanging message that endures forever.
 
->Isaiah 40:9-11 (CSB) 9 Zion, herald of good news,  
+>Isaiah 40:9-11 (CSB)Zion, herald of good news,  
 >go up on a high mountain.  
 >Jerusalem, herald of good news,  
 >raise your voice loudly.  
@@ -182,7 +182,7 @@ Preach with a whole, deep heart. God is heartbroken when his people stray. Does 
 
 We are not scolding them. We are coming alongside the people and weep with them in our despair, our sin and turn towards the God who rescues.
 
->1 Corinthians 13:1-4 (CSB) If I speak human or angelic tongues but do not have love, I am a noisy gong or a clanging cymbal. 2 If I have the gift of prophecy and understand all mysteries and all knowledge, and if I have all faith so that I can move mountains but do not have love, I am nothing. 3 And if I give away all my possessions, and if I give over my body in order to boast but do not have love, I gain nothing. 4 Love is patient, love is kind. Love does not envy, is not boastful, is not arrogant,
+>1 Corinthians 13:1-4 (CSB) If I speak human or angelic tongues but do not have love, I am a noisy gong or a clanging cymbal.If I have the gift of prophecy and understand all mysteries and all knowledge, and if I have all faith so that I can move mountains but do not have love, I am nothing.And if I give away all my possessions, and if I give over my body in order to boast but do not have love, I gain nothing.Love is patient, love is kind. Love does not envy, is not boastful, is not arrogant,
 
 >Jeremiah 9:23-24 (CSB) “ ‘This is what the LORD says:  
 >The wise person should not boast in his wisdom;  
@@ -205,14 +205,29 @@ On the preaching of John Calvin:
 
 ## The Empowered Preacher: Ezekiel
 
->Ezekiel 2 (CSB) He said to me, “Son of man, stand up on your feet and I will speak with you.” 2 As he spoke to me, the Spirit entered me and set me on my feet, and I listened to the one who was speaking to me. 3 He said to me, “Son of man, I am sending you to the Israelites, to the rebellious pagans who have rebelled against me. The Israelites and their ancestors have transgressed against me to this day. 4 The descendants are obstinate and hardhearted. I am sending you to them, and you must say to them, ‘This is what the Lord GOD says.’ 5 Whether they listen or refuse to listen — for they are a rebellious house — they will know that a prophet has been among them.
+>Ezekiel 2 (CSB)  
+><sup>1</sup> He said to me, “Son of man, stand up on your feet and I will speak with you.” 
 >
->6 “But you, son of man, do not be afraid of them and do not be afraid of their words, even though briers and thorns are beside you and you live among scorpions. Don’t be afraid of their words or discouraged by the look on their faces, for they are a rebellious house. 7 Speak my words to them whether they listen or refuse to listen, for they are rebellious.
+><sup>2</sup> As he spoke to me, the Spirit entered me and set me on my feet, and I listened to the one who was speaking to me. 
 >
->8 “And you, son of man, listen to what I tell you: Do not be rebellious like that rebellious house. Open your mouth and eat what I am giving you.” 9 So I looked and saw a hand reaching out to me, and there was a written scroll in it. 10 When he unrolled it before me, it was written on the front and back; words of lamentation, mourning, and woe were written on it.
+><sup>3</sup> He said to me, “Son of man, I am sending you to the Israelites, to the rebellious pagans who have rebelled against me. The Israelites and their ancestors have transgressed against me to this day. 
+>
+><sup>4</sup> The descendants are obstinate and hardhearted. I am sending you to them, and you must say to them, ‘This is what the Lord GOD says.’ 
+>
+><sup>5</sup> Whether they listen or refuse to listen—for they are a rebellious house—they will know that a prophet has been among them. 
+>
+><sup>6</sup> “But you, son of man, do not be afraid of them and do not be afraid of their words, even though briers and thorns are beside you and you live among scorpions. Don’t be afraid of their words or discouraged by the look on their faces, for they are a rebellious house. 
+>
+><sup>7</sup> Speak my words to them whether they listen or refuse to listen, for they are rebellious. 
+>
+><sup>8</sup> “And you, son of man, listen to what I tell you: Do not be rebellious like that rebellious house. Open your mouth and eat what I am giving you.” 
+>
+><sup>9</sup> So I looked and saw a hand reaching out to me, and there was a written scroll in it. 
+>
+><sup>10</sup> When he unrolled it before me, it was written on the front and back; words of lamentation, mourning, and woe were written on it.
 
 We cannot do this on our own. God gives us supernatural grace to preach his word.
 
->Ezekiel 33:7-9 (CSB) “As for you, son of man, I have made you a watchman for the house of Israel. When you hear a word from my mouth, give them a warning from me. 8 If I say to the wicked, ‘Wicked one, you will surely die,’ but you do not speak out to warn him about his way, that wicked person will die for his iniquity, yet I will hold you responsible for his blood. 9 But if you warn a wicked person to turn from his way and he doesn’t turn from it, he will die for his iniquity, but you will have rescued yourself.
+>Ezekiel 33:7-9 (CSB) “As for you, son of man, I have made you a watchman for the house of Israel. When you hear a word from my mouth, give them a warning from me.If I say to the wicked, ‘Wicked one, you will surely die,’ but you do not speak out to warn him about his way, that wicked person will die for his iniquity, yet I will hold you responsible for his blood.But if you warn a wicked person to turn from his way and he doesn’t turn from it, he will die for his iniquity, but you will have rescued yourself.
 
 The people's blood is on their hands. You must do what God has called you to do.

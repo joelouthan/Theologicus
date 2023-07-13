@@ -4,32 +4,32 @@
 
 ## The Text
 
->Genesis 5 (CSB) This is the document containing the family records of Adam. On the day that God created man, he made him in the likeness of God; 2 he created them male and female. When they were created, he blessed them and called them mankind.
+>Genesis 5 (CSB) This is the document containing the family records of Adam. On the day that God created man, he made him in the likeness of God;he created them male and female. When they were created, he blessed them and called them mankind.
 >
->3 Adam was 130 years old when he fathered a son in his likeness, according to his image, and named him Seth. 4 Adam lived 800 years after he fathered Seth, and he fathered other sons and daughters. 5 So Adam’s life lasted 930 years; then he died.
+>3 Adam was 130 years old when he fathered a son in his likeness, according to his image, and named him Seth.Adam lived 800 years after he fathered Seth, and he fathered other sons and daughters.So Adam’s life lasted 930 years; then he died.
 >
->6 Seth was 105 years old when he fathered Enosh. 7 Seth lived 807 years after he fathered Enosh, and he fathered other sons and daughters. 8 So Seth’s life lasted 912 years; then he died.
+>6 Seth was 105 years old when he fathered Enosh.Seth lived 807 years after he fathered Enosh, and he fathered other sons and daughters.So Seth’s life lasted 912 years; then he died.
 >
->9 Enosh was 90 years old when he fathered Kenan. 10 Enosh lived 815 years after he fathered Kenan, and he fathered other sons and daughters. 11 So Enosh’s life lasted 905 years; then he died.
+>9 Enosh was 90 years old when he fathered Kenan.Enosh lived 815 years after he fathered Kenan, and he fathered other sons and daughters.So Enosh’s life lasted 905 years; then he died.
 >
->12 Kenan was 70 years old when he fathered Mahalalel. 13 Kenan lived 840 years after he fathered Mahalalel, and he fathered other sons and daughters. 14 So Kenan’s life lasted 910 years; then he died.
+>12 Kenan was 70 years old when he fathered Mahalalel.Kenan lived 840 years after he fathered Mahalalel, and he fathered other sons and daughters.So Kenan’s life lasted 910 years; then he died.
 >
->15 Mahalalel was 65 years old when he fathered Jared. 16 Mahalalel lived 830 years after he fathered Jared, and he fathered other sons and daughters. 17 So Mahalalel’s life lasted 895 years; then he died.
+>15 Mahalalel was 65 years old when he fathered Jared.Mahalalel lived 830 years after he fathered Jared, and he fathered other sons and daughters.So Mahalalel’s life lasted 895 years; then he died.
 >
->18 Jared was 162 years old when he fathered Enoch. 19 Jared lived 800 years after he fathered Enoch, and he fathered other sons and daughters. 20 So Jared’s life lasted 962 years; then he died.
+>18 Jared was 162 years old when he fathered Enoch.Jared lived 800 years after he fathered Enoch, and he fathered other sons and daughters.So Jared’s life lasted 962 years; then he died.
 >
->21 Enoch was 65 years old when he fathered Methuselah. 22 And after he fathered Methuselah, Enoch walked with God 300 years and fathered other sons and daughters. 23 So Enoch’s life lasted 365 years. 24 Enoch walked with God; then he was not there because God took him.
+>21 Enoch was 65 years old when he fathered Methuselah.And after he fathered Methuselah, Enoch walked with God 300 years and fathered other sons and daughters.So Enoch’s life lasted 365 years.Enoch walked with God; then he was not there because God took him.
 >
->25 Methuselah was 187 years old when he fathered Lamech. 26 Methuselah lived 782 years after he fathered Lamech, and he fathered other sons and daughters. 27 So Methuselah’s life lasted 969 years; then he died.
+>25 Methuselah was 187 years old when he fathered Lamech.Methuselah lived 782 years after he fathered Lamech, and he fathered other sons and daughters.So Methuselah’s life lasted 969 years; then he died.
 >
->28 Lamech was 182 years old when he fathered a son. 29 And he named him Noah, saying, “This one will bring us relief from the agonizing labor of our hands, caused by the ground the LORD has cursed.” 30 Lamech lived 595 years after he fathered Noah, and he fathered other sons and daughters. 31 So Lamech’s life lasted 777 years; then he died.
+>28 Lamech was 182 years old when he fathered a son.And he named him Noah, saying, “This one will bring us relief from the agonizing labor of our hands, caused by the ground the LORD has cursed.”Lamech lived 595 years after he fathered Noah, and he fathered other sons and daughters.So Lamech’s life lasted 777 years; then he died.
 >
 >32 Noah was 500 years old, and he fathered Shem, Ham, and Japheth.
 
 ## The Support
 
 >Luke 3:36-38 (CSB) son of Noah,  
->son of Lamech, 37 son of Methuselah,  
+>son of Lamech,son of Methuselah,  
 >son of Enoch, son of Jared,  
 >son of Mahalalel, son of Cainan,  
 >38 son of Enos, son of Seth,  
@@ -89,13 +89,13 @@ Sounds a tad familiar? Who is the only one who can give us rest for our weary so
 
 Who is the only one?
 
->Matthew 11:28-30 (CSB) 28 “Come to me, all of you who are weary and burdened, and I will give you rest. 29 Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. 30 For my yoke is easy and my burden is light.”
+>Matthew 11:28-30 (CSB)“Come to me, all of you who are weary and burdened, and I will give you rest.Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls.For my yoke is easy and my burden is light.”
 
 ## Our Response
 
 ### We are to put our faith in the one gives us rest by living and dying for us
 
->Romans 5:6-11 (CSB) For while we were still helpless, at the right time, Christ died for the ungodly. 7 For rarely will someone die for a just person—though for a good person perhaps someone might even dare to die. 8 But God proves his own love for us in that while we were still sinners, Christ died for us. 9 How much more then, since we have now been justified by his blood, will we be saved through him from wrath. 10 For if, while we were enemies, we were reconciled to God through the death of his Son, then how much more, having been reconciled, will we be saved by his life. 11 And not only that, but we also boast in God through our Lord Jesus Christ, through whom we have now received this reconciliation.
+>Romans 5:6-11 (CSB) For while we were still helpless, at the right time, Christ died for the ungodly.For rarely will someone die for a just person—though for a good person perhaps someone might even dare to die.But God proves his own love for us in that while we were still sinners, Christ died for us.How much more then, since we have now been justified by his blood, will we be saved through him from wrath.For if, while we were enemies, we were reconciled to God through the death of his Son, then how much more, having been reconciled, will we be saved by his life.And not only that, but we also boast in God through our Lord Jesus Christ, through whom we have now received this reconciliation.
 
 Christ is the only one who has proven his love for us.
 
@@ -107,15 +107,15 @@ Christ is the only one who can reconcile us to God with his death.
 
 Christ is the only one who can saved us by his life.
 
->Genesis 5:21-24 (CSB) Enoch was 65 years old when he fathered Methuselah. 22 And after he fathered Methuselah, Enoch walked with God 300 years and fathered other sons and daughters. 23 So Enoch’s life lasted 365 years. 24 Enoch walked with God; then he was not there because God took him.
+>Genesis 5:21-24 (CSB) Enoch was 65 years old when he fathered Methuselah.And after he fathered Methuselah, Enoch walked with God 300 years and fathered other sons and daughters.So Enoch’s life lasted 365 years.Enoch walked with God; then he was not there because God took him.
 
 People might think it is amazing that God took up Enoch in an instant. Even the author of Hebrews would agreed.
 
->Hebrews 11:5-6 (CSB) By faith Enoch was taken away, and so he did not experience death. He was not to be found because God took him away. For before he was taken away, he was approved as one who pleased God. 6 Now without faith it is impossible to please God, since the one who draws near to him must believe that he exists and that he rewards those who seek him.
+>Hebrews 11:5-6 (CSB) By faith Enoch was taken away, and so he did not experience death. He was not to be found because God took him away. For before he was taken away, he was approved as one who pleased God.Now without faith it is impossible to please God, since the one who draws near to him must believe that he exists and that he rewards those who seek him.
 
 But what was more amazing that the Bible says this about Enoch, "that he walked with God".
 
->Jude 1:14-16 (CSB) It was about these that Enoch, in the seventh generation from Adam, prophesied: “Look! The Lord comes with tens of thousands of his holy ones 15 to execute judgment on all and to convict all the ungodly concerning all the ungodly acts that they have done in an ungodly way, and concerning all the harsh things ungodly sinners have said against him.” 16 These people are discontented grumblers, living according to their desires; their mouths utter arrogant words, flattering people for their own advantage.
+>Jude 1:14-16 (CSB) It was about these that Enoch, in the seventh generation from Adam, prophesied: “Look! The Lord comes with tens of thousands of his holy onesto execute judgment on all and to convict all the ungodly concerning all the ungodly acts that they have done in an ungodly way, and concerning all the harsh things ungodly sinners have said against him.”These people are discontented grumblers, living according to their desires; their mouths utter arrogant words, flattering people for their own advantage.
 
 Enoch preached the gospel of God to "people are discontented grumblers, living according to their desires; their mouths utter arrogant words, flattering people for their own advantage."
 

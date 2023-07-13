@@ -6,7 +6,7 @@ God sends a preacher to prepare the way for the Lord Jesus Christ. No other skil
 
 ### Preached repentance
 
->Matthew 3:1–2 (CSB) In those days John the Baptist came, preaching in the wilderness of Judea 2 and saying, **“Repent, because the kingdom of heaven has come near!”**
+>Matthew 3:1–2 (CSB) In those days John the Baptist came, preaching in the wilderness of Judeaand saying, **“Repent, because the kingdom of heaven has come near!”**
 
 No easy believe-ism. No cheap grace. There must be a break away from sin. A changing of the mind. The turning of the will away from self-righteousness and sin.
 
@@ -24,7 +24,7 @@ Urgency
 
 ### Bold and Fearless
 
->Matthew 3:8–9 (CSB) Therefore produce fruit consistent with repentance. 9 And don’t presume to say to yourselves, ‘We have Abraham as our father.’ For I tell you that God is able to raise up children for Abraham from these stones.
+>Matthew 3:8–9 (CSB) Therefore produce fruit consistent with repentance.And don’t presume to say to yourselves, ‘We have Abraham as our father.’ For I tell you that God is able to raise up children for Abraham from these stones.
 
 ### Called for Fruit
 
@@ -54,14 +54,14 @@ We are to always point people away from ourselves and to the Christ who alone sa
 
 ### Revealed Salvation and Judgment
 
->John 1:7–13 (CSB) He came as a witness to testify about the light, so that all might believe through him. 8 He was not the light, but he came to testify about the light. 9 The true light that gives light to everyone was coming into the world. 10 He was in the world, and the world was created through him, and yet the world did not recognize him. 11 He came to his own, and his own people did not receive him. 12 But to all who did receive him, he gave them the right to be children of God, to those who believe in his name, 13 who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
+>John 1:7–13 (CSB) He came as a witness to testify about the light, so that all might believe through him.He was not the light, but he came to testify about the light.The true light that gives light to everyone was coming into the world.He was in the world, and the world was created through him, and yet the world did not recognize him.He came to his own, and his own people did not receive him.But to all who did receive him, he gave them the right to be children of God, to those who believe in his name,who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
 
 
 ### Preached Evangelistically 
 
 >Colossians 1:15 (CSB) He is the image of the invisible God, the firstborn over all creation.
 
->John 1:19–23 (CSB) This was John’s testimony when the Jews from Jerusalem sent priests and Levites to ask him, “Who are you?” 20 He didn’t deny it but confessed, “I am not the Messiah.” 21 “What then?” they asked him. “Are you Elijah?” “I am not,” he said. “Are you the Prophet?”[^Deut 18:15]  “No,” he answered. 22 “Who are you, then?” they asked. “We need to give an answer to those who sent us. What can you tell us about yourself?” 23 He said, “I am a voice of one crying out in the wilderness: Make straight the way of the Lord—just as Isaiah the prophet said.”
+>John 1:19–23 (CSB) This was John’s testimony when the Jews from Jerusalem sent priests and Levites to ask him, “Who are you?”He didn’t deny it but confessed, “I am not the Messiah.”“What then?” they asked him. “Are you Elijah?” “I am not,” he said. “Are you the Prophet?”[^Deut 18:15]  “No,” he answered.“Who are you, then?” they asked. “We need to give an answer to those who sent us. What can you tell us about yourself?”He said, “I am a voice of one crying out in the wilderness: Make straight the way of the Lord—just as Isaiah the prophet said.”
 
 >John 1:27 (CSB) He is the one coming after me, whose sandal strap I’m not worthy to untie.”
 
@@ -69,7 +69,7 @@ We are to always point people away from ourselves and to the Christ who alone sa
 
 And found himself wanting-falling short of the glory of Christ.
 
->John 1:29–32 (CSB) The next day John saw Jesus coming toward him and said, “Look, the Lamb of God, who takes away the sin of the world! 30 This is the one I told you about: ‘After me comes a man who ranks ahead of me, because he existed before me.’ 31 I didn’t know him, but I came baptizing with water so that he might be revealed to Israel.” 32 And John testified, “I saw the Spirit descending from heaven like a dove, and he rested on him.
+>John 1:29–32 (CSB) The next day John saw Jesus coming toward him and said, “Look, the Lamb of God, who takes away the sin of the world!This is the one I told you about: ‘After me comes a man who ranks ahead of me, because he existed before me.’I didn’t know him, but I came baptizing with water so that he might be revealed to Israel.”And John testified, “I saw the Spirit descending from heaven like a dove, and he rested on him.
 
 >Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
@@ -77,7 +77,7 @@ And found himself wanting-falling short of the glory of Christ.
 
 ### Preached Christ and him crucified
 
->1 Corinthians 2:2–3 (CSB) I decided to know nothing among you except Jesus Christ and him crucified. 3 I came to you in weakness, in fear, and in much trembling.
+>1 Corinthians 2:2–3 (CSB) I decided to know nothing among you except Jesus Christ and him crucified.I came to you in weakness, in fear, and in much trembling.
 
 >Colossians 1:28 (CSB) We proclaim him, warning and teaching everyone with all wisdom, so that we may present everyone mature in Christ.
 

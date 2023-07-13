@@ -8,7 +8,24 @@ How did we get here? What I mean by that is how is setting the stage to do his w
 
 Well, logic dictates, he must start with a person. Now, because we have seen a couple of genealogies (Genesis 5) and we have heard the proclamation of the gospel (Genesis 3:15) and for most of us, this is not the first time hearing this story, we know that through one bloodline starting with Adam through Noah through a man name Terah.
 
->Genesis 11:24–32 (CSB)  Nahor lived 29 years and fathered Terah. 25 After he fathered Terah, Nahor lived 119 years and fathered other sons and daughters. 26 Terah lived 70 years and fathered Abram, Nahor, and Haran. 27 These are the family records of Terah. Terah fathered Abram, Nahor, and Haran, and Haran fathered Lot. 28 Haran died in his native land, in Ur of the Chaldeans, during his father Terah’s lifetime. 29 Abram and Nahor took wives: Abram’s wife was named Sarai, and Nahor’s wife was named Milcah. She was the daughter of Haran, the father of both Milcah and Iscah. 30 Sarai was unable to conceive; she did not have a child. 31 Terah took his son Abram, his grandson Lot (Haran’s son), and his daughter-in-law Sarai, his son Abram’s wife, and they set out together from Ur of the Chaldeans to go to the land of Canaan. But when they came to Haran, they settled there. 32 Terah lived 205 years and died in Haran.
+>Genesis 11:24–32 (CSB)  
+><sup>24</sup> Nahor lived 29 years and fathered Terah. 
+>
+><sup>25</sup> After he fathered Terah, Nahor lived 119 years and fathered other sons and daughters. 
+>
+><sup>26</sup> Terah lived 70 years and fathered Abram, Nahor, and Haran. 
+>
+><sup>27</sup> These are the family records of Terah. Terah fathered Abram, Nahor, and Haran, and Haran fathered Lot. 
+>
+><sup>28</sup> Haran died in his native land, in Ur of the Chaldeans, during his father Terah’s lifetime. 
+>
+><sup>29</sup> Abram and Nahor took wives: Abram’s wife was named Sarai, and Nahor’s wife was named Milcah. She was the daughter of Haran, the father of both Milcah and Iscah. 
+>
+><sup>30</sup> Sarai was unable to conceive; she did not have a child. 
+>
+><sup>31</sup> Terah took his son Abram, his grandson Lot (Haran’s son), and his daughter-in-law Sarai, his son Abram’s wife, and they set out together from Ur of the Chaldeans to go to the land of Canaan. But when they came to Haran, they settled there. 
+>
+><sup>32</sup> Terah lived 205 years and died in Haran.
 
 Biblical genealogies are not there so that God and throw out a bunch of names so that in the year 2022, some English speaking Americans will get tripped up and mispronounce all of them. No, I promise you that is not the point.
 
@@ -67,7 +84,7 @@ Don't look at it like God is giving you a multiple choice like Morpheus in The M
 
 The choice to be with God is the dead coming alive. Don't look at it like a mere choice, "Should I get a green or a red truck?" Look at this choice in the right manner:
 
->John 11:41–43 (CSB)  So they removed the stone. Then Jesus raised his eyes and said, “Father, I thank you that you heard me. 42 I know that you always hear me, but because of the crowd standing here I said this, so that they may believe you sent me.” 43 After he said this, he shouted with a loud voice, “Lazarus, come out!”
+>John 11:41–43 (CSB)  So they removed the stone. Then Jesus raised his eyes and said, “Father, I thank you that you heard me.I know that you always hear me, but because of the crowd standing here I said this, so that they may believe you sent me.”After he said this, he shouted with a loud voice, “Lazarus, come out!”
 
 Dead people do not choose. They are dead. They just lay be dead. Lazarus was 4 days dead. Super dead. Likewise, in our sins, we are super dead in our sins and trespasses. But what happens? But God, in his great love our us, calls out to our dead souls and cold hearts, pulls our expired hearts out, gives us his own heart and his own spirit. And now, we get to live. Now we are alive. Now we choose to live. There is only one way to live--live to God. To not live to God, to sin and trespass against God is death.
 
@@ -97,21 +114,21 @@ Abram was elected, chosen, thought of, loved by God before the "foundations of t
 
 But before Abram lifted a finger, he believe God and took God at his word and trusted him. Before he took one little step:
 
->Romans 4:1–5 (CSB)  What then will we say that Abraham, our forefather according to the flesh, has found? 2 If Abraham was justified by works, he has something to boast about—but not before God. 3 For what does the Scripture say? **Abraham believed God, and it was credited to him for righteousness.** 4 Now to the one who works, pay is not credited as a gift, but as something owed. 5 But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness.
+>Romans 4:1–5 (CSB)  What then will we say that Abraham, our forefather according to the flesh, has found?If Abraham was justified by works, he has something to boast about—but not before God.For what does the Scripture say? **Abraham believed God, and it was credited to him for righteousness.**Now to the one who works, pay is not credited as a gift, but as something owed.But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness.
 
 Now, you might keep reading the Bible, past Genesis, past Romans and come up on a little passage statement from the half-brother and younger Brother of Jesus:
 
->James 2:22–26 (CSB)  You see that faith was active together with his works, and by works, faith was made complete, 23 and the Scripture was fulfilled that says, Abraham believed God, and it was credited to him as righteousness, and he was called God’s friend. 24 You see that a person is justified by works and not by faith alone. 25 In the same way, wasn’t Rahab the prostitute also justified by works in receiving the messengers and sending them out by a different route? 26 For just as the body without the spirit is dead, so also faith without works is dead.
+>James 2:22–26 (CSB)  You see that faith was active together with his works, and by works, faith was made complete,and the Scripture was fulfilled that says, Abraham believed God, and it was credited to him as righteousness, and he was called God’s friend.You see that a person is justified by works and not by faith alone.In the same way, wasn’t Rahab the prostitute also justified by works in receiving the messengers and sending them out by a different route?For just as the body without the spirit is dead, so also faith without works is dead.
 
 Is James contradicting Paul in Romans and being divisive and argumentative and contradictory and putting the Scriptures at odds with one another? Absolutely not! In fact, if the epistles of Paul and James were conversations of the two apostles in the same room, you might go like this:
 
-Paul: **Abraham believed God, and it was credited to him for righteousness.** 4 Now to the one who works, pay is not credited as a gift, but as something owed. 5 But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness. (Romans 4:3b-5)
+Paul: **Abraham believed God, and it was credited to him for righteousness.**Now to the one who works, pay is not credited as a gift, but as something owed.But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness. (Romans 4:3b-5)
 
-James: But wait! You see that a person is justified by works and not by faith alone. 25 In the same way, wasn’t Rahab the prostitute also justified by works in receiving the messengers and sending them out by a different route? 26 For just as the body without the spirit is dead, so also faith without works is dead. (James 2:24b-26)
+James: But wait! You see that a person is justified by works and not by faith alone.In the same way, wasn’t Rahab the prostitute also justified by works in receiving the messengers and sending them out by a different route?For just as the body without the spirit is dead, so also faith without works is dead. (James 2:24b-26)
 
 Here's the plot twist:
 
-Paul: Oh James, I completely agree! For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast. 10 For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do. (Ephesians 2:8–10 (CSB))
+Paul: Oh James, I completely agree! For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast.For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do. (Ephesians 2:8–10 (CSB))
 
 Paul would double down with rest of the Bible: we are not saved by good works but *to* good works. We are not saved by others to one another. We are only saved by thing along and it is not a thing but a person and that is Jesus Christ our Lord and Savior. Praise be to to God.
 
@@ -125,7 +142,7 @@ Because we are born in the iniquity of Adam, and death and sin passed from gener
 
 There is one man, who walked this earth, prophesied by certain preachers of old, that would be the Messiah that humanity longed for:
 
->Isaiah 9:6–7 (CSB)  For a child will be born for us, a son will be given to us, and the government will be on his shoulders. He will be named Wonderful Counselor, Mighty God, Eternal Father, Prince of Peace. 7 The dominion will be vast, and its prosperity will never end. He will reign on the throne of David and over his kingdom, to establish and sustain it with justice and righteousness from now on and forever. The zeal of the LORD of Armies will accomplish this.
+>Isaiah 9:6–7 (CSB)  For a child will be born for us, a son will be given to us, and the government will be on his shoulders. He will be named Wonderful Counselor, Mighty God, Eternal Father, Prince of Peace.The dominion will be vast, and its prosperity will never end. He will reign on the throne of David and over his kingdom, to establish and sustain it with justice and righteousness from now on and forever. The zeal of the LORD of Armies will accomplish this.
 
 And since Jesus was not born of Adam, he did not come to add to our sin which filled all of mankind, but he come to save us from it.
 

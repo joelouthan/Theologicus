@@ -34,7 +34,7 @@ But that is not what the text says!
 
 Go back to verse 5:
 
->Genesis 6:5-7 (CSB) When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, 6 the LORD regretted that he had made man on the earth, and he was deeply grieved. 7 Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky—for I regret that I made them.”
+>Genesis 6:5-7 (CSB) When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time,the LORD regretted that he had made man on the earth, and he was deeply grieved.Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky—for I regret that I made them.”
 
 Let me ask a silly question: was Noah human? Did Noah have a human mind?
 
@@ -62,7 +62,7 @@ What I do find in the Bible is that we are sinners and God came to us:
 
 >Romans 5:8 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us.
 
->Ephesians 2:1-5 (CSB) And you were dead in your trespasses and sins 2 in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. 3 We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. 4 But God, who is rich in mercy, because of his great love that he had for us, 5 made us alive with Christ even though we were dead in trespasses. You are saved by grace!
+>Ephesians 2:1-5 (CSB) And you were dead in your trespasses and sinsin which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient.We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.But God, who is rich in mercy, because of his great love that he had for us,made us alive with Christ even though we were dead in trespasses. You are saved by grace!
 
 Do a character study. Tell me what Adam was doing or Abraham or Jacob or David or Ruth or Isaiah or John the Baptist.
 

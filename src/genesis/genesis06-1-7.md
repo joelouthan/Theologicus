@@ -14,7 +14,7 @@ Because of the nature of sin, if I am tempted by sin and give into that sin, I c
 
 Dr. Steven Lawson calls this "the slippery slope of sin." I have been on this earth long enough to know that left unchecked, not confessed, not repentant, and not given over to the Lord Jesus Christ, sin is always a slippery slope into levels of evilness and wickedness that you couldn't possibly imagine.
 
-Let us do a quick review of Genesis so far. God makes a perfect world in Genesis 1 & 2. Then, we saw the breaking of the cosmos in Genesis 3. We saw sin went full stride in Genesis 4--with not only murder but sexual immortality and pride. In Genesis 5, we witness that sin doesn't ease up as the generations of mankind continue forward but instead, it becomes bigger and more devastating with every passing generation.
+Let us do a quick review of Genesis so far. God makes a perfect world in Genesis& 2. Then, we saw the breaking of the cosmos in Genesis 3. We saw sin went full stride in Genesis 4--with not only murder but sexual immortality and pride. In Genesis 5, we witness that sin doesn't ease up as the generations of mankind continue forward but instead, it becomes bigger and more devastating with every passing generation.
 
 Now the philosophy of the world is evangelizing to you and me that with enough knowledge and understanding while keeping apart from God, humanity can fix its own problems. That is the gospel of humanism and secularism.
 
@@ -62,7 +62,7 @@ We already know the spirit within mankind departed mankind when Adam and Eve sin
 
 This is not Holy Spirit but rather, the breath of life of God by God. Don't forget that God was still in the business of multiplying mankind despite our sinful ways. God declared that Man shall die. In this decree in verse 3, God declares that man will not live forever nor even for a long time. (The life expectancy of man starts to decline after God makes this decree.)
 
->Romans 5:12-14 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned. 13 In fact, sin was in the world before the law, but sin is not charged to a person’s account when there is no law. 14 Nevertheless, death reigned from Adam to Moses, even over those who did not sin in the likeness of Adam’s transgression. He is a type of the Coming One.
+>Romans 5:12-14 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.In fact, sin was in the world before the law, but sin is not charged to a person’s account when there is no law.Nevertheless, death reigned from Adam to Moses, even over those who did not sin in the likeness of Adam’s transgression. He is a type of the Coming One.
 
 ## God
 
@@ -94,7 +94,7 @@ Go to:
 
 How does one grieve God?
 
->31 Let all bitterness, anger and wrath, shouting and slander be removed from you, along with all malice. 32 And be kind and compassionate to one another, forgiving one another, just as God also forgave you in Christ.
+>Ephesians 4:31-32 Let all bitterness, anger and wrath, shouting and slander be removed from you, along with all malice. And be kind and compassionate to one another, forgiving one another, just as God also forgave you in Christ.
 
 In other words:
 
@@ -126,11 +126,11 @@ Also, go and read Acts 5 and see what the Holy Spirit does to Ananias and Sapphi
 
 And after Christ was beaten within an inch of his life, as he began his death march towards the excruciating, blood-curdling pain and torture, Jesus takes precious energy to prophesy in this one moment to the women who were mourning and lamenting him:
 
->Luke 23:28-30 (CSB) But turning to them, Jesus said, “Daughters of Jerusalem, do not weep for me, but weep for yourselves and your children. 29 Look, the days are coming when they will say, ‘Blessed are the women without children, the wombs that never bore, and the breasts that never nursed!’ 30 Then they will begin to say to the mountains, ‘Fall on us!’ and to the hills, ‘Cover us!’
+>Luke 23:28-30 (CSB) But turning to them, Jesus said, “Daughters of Jerusalem, do not weep for me, but weep for yourselves and your children.Look, the days are coming when they will say, ‘Blessed are the women without children, the wombs that never bore, and the breasts that never nursed!’Then they will begin to say to the mountains, ‘Fall on us!’ and to the hills, ‘Cover us!’
 
 Christ prophesied and fulfilled his own judgment:
 
->Revelation 6:15-17 (CSB) Then the kings of the earth, the nobles, the generals, the rich, the powerful, and every slave and free person hid in the caves and among the rocks of the mountains. 16 And they said to the mountains and to the rocks, “Fall on us and hide us from the face of the one seated on the throne and from the wrath of the Lamb, 17 because the great day of their wrath has come! And who is able to stand?
+>Revelation 6:15-17 (CSB) Then the kings of the earth, the nobles, the generals, the rich, the powerful, and every slave and free person hid in the caves and among the rocks of the mountains.And they said to the mountains and to the rocks, “Fall on us and hide us from the face of the one seated on the throne and from the wrath of the Lamb,because the great day of their wrath has come! And who is able to stand?
 
 Has it happened yet? No, not yet. Not in our timeline. But because God is perfect and cannot lie, this promises is as good as done. Past tense.
 

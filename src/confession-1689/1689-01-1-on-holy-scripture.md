@@ -149,7 +149,7 @@ Some of yall can tell me that because most of us don't engage in the word of God
 
 ### those former ways of God's revealing his will unto his people being now ceased
 
->Hebrews 1:1–2 (CSB) Long ago God spoke to our ancestors by the prophets at different times and in different ways. 2 In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
+>Hebrews 1:1–2 (CSB) Long ago God spoke to our ancestors by the prophets at different times and in different ways. In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
 
 I am what people call, "Charismatic". All that means is that the gifts of the Spirit, infinite in numbers, are given to the people of God for the work of the ministry and they continue on to this day.
 
@@ -157,7 +157,7 @@ One of the most controversial gifts of the Spirit is prophecy. We are called to 
 
 Those who oppose prophetic words will say, "You cannot add to the word of God."
 
-Let me state this for the record: You and I cannot add to the word of God, the Bible, the Scriptures, the 66 books of canon. Full stop.
+Let me state this for the record: You and I cannot add to the word of God, the Bible, the Scriptures, the sixty-six books of canon. Full stop.
 
 Yes, I am Charismatic. Full-on. But I know that I know that I cannot add to the word of God. I don't care if you are Joseph Smith. The word of God is the word of God. And here are some fun facts: every time humans, in our own wickedness and depravity, tries to add on to the word of God, you never ever get more grace as too try to override a bit of God's law. What you always get more and more legalistic.
 

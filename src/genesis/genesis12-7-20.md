@@ -16,7 +16,7 @@ This is the good news--the gospel--within the Adamic Covenant. This is the unbre
 
 The next one is the Noahic Covenant we find in:
 
->Genesis 9:8–15 (CSB)  Then God said to Noah and his sons with him, 9 “Understand that I am establishing my covenant with you and your descendants after you, 10 and with every living creature that is with you—birds, livestock, and all wildlife of the earth that are with you—all the animals of the earth that came out of the ark. 11 I establish my covenant with you that never again will every creature be wiped out by floodwaters; there will never again be a flood to destroy the earth.” 12 And God said, “This is the sign of the covenant I am making between me and you and every living creature with you, a covenant for all future generations: 13 I have placed my bow in the clouds, and it will be a sign of the covenant between me and the earth. 14 Whenever I form clouds over the earth and the bow appears in the clouds, 15 I will remember my covenant between me and you and all the living creatures: water will never again become a flood to destroy every creature.
+>Genesis 9:8–15 (CSB)  Then God said to Noah and his sons with him,“Understand that I am establishing my covenant with you and your descendants after you,and with every living creature that is with you—birds, livestock, and all wildlife of the earth that are with you—all the animals of the earth that came out of the ark.I establish my covenant with you that never again will every creature be wiped out by floodwaters; there will never again be a flood to destroy the earth.”And God said, “This is the sign of the covenant I am making between me and you and every living creature with you, a covenant for all future generations:I have placed my bow in the clouds, and it will be a sign of the covenant between me and the earth.Whenever I form clouds over the earth and the bow appears in the clouds,I will remember my covenant between me and you and all the living creatures: water will never again become a flood to destroy every creature.
 
 Last week, we just covered the Abrahamic covenant at the beginning of Genesis 12. God spoke his promise to mankind. When that happens, we should be settled in our hearts that we are good with God and God is for us and God is near and God is good. In other words, you would think that receiving a promise of God that mankind would lean towards not sinning. You would think that.
 
@@ -90,11 +90,11 @@ Keep reading Acts 17:
 
 You and I are to seek God, to reach out and find him. And if you and I have found God, then you are commissioned by Christ to tell everybody else the good news that Jesus Christ is Lord. For:
 
->Hebrews 1:1–2 (CSB)  Long ago God spoke to our ancestors by the prophets at different times and in different ways. 2 In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
+>Hebrews 1:1–2 (CSB)  Long ago God spoke to our ancestors by the prophets at different times and in different ways.In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
 
 And
 
->Romans 8:14–17 (CSB)  For all those led by God’s Spirit are God’s sons. 15 For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” 16 The Spirit himself testifies together with our spirit that we are God’s children, 17 and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
+>Romans 8:14–17 (CSB)  For all those led by God’s Spirit are God’s sons.For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!”The Spirit himself testifies together with our spirit that we are God’s children,and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
 
 You are not your own. You belong to Christ. Christ is your Lord and he will let you know where you are going to live.
 
@@ -136,7 +136,7 @@ And Christ teaches us to pray:
 
 James will go on to say:
 
->James 1:15–18 (CSB)  Then after desire has conceived, it gives birth to sin, and when sin is fully grown, it gives birth to death. 16 Don’t be deceived, my dear brothers and sisters. 17 Every good and perfect gift is from above, coming down from the Father of lights, who does not change like shifting shadows. 18 By his own choice, he gave us birth by the word of truth so that we would be a kind of firstfruits of his creatures.
+>James 1:15–18 (CSB)  Then after desire has conceived, it gives birth to sin, and when sin is fully grown, it gives birth to death.Don’t be deceived, my dear brothers and sisters.Every good and perfect gift is from above, coming down from the Father of lights, who does not change like shifting shadows.By his own choice, he gave us birth by the word of truth so that we would be a kind of firstfruits of his creatures.
 
 Where we live and where we go and our lives are good gifts from God. God does not tempt us into sin. God never tells us to sin.
 
@@ -235,7 +235,7 @@ If Christ did only what the Father did by the power and indwelling of the Holy S
 
 It stands to reason: if God determines where we live, when we live, and what we will do, gives us his Son and his Spirit to so that we can love him, love others and minister to others to glorify and worship his name, then that means that God is with us!
 
->Matthew 1:21–23 (CSB)  She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.” 22 Now all this took place to fulfill what was spoken by the Lord through the prophet: 23 See, the virgin will become pregnant and give birth to a son, and they will name him Immanuel, which is translated “God is with us.”
+>Matthew 1:21–23 (CSB)  She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”Now all this took place to fulfill what was spoken by the Lord through the prophet:See, the virgin will become pregnant and give birth to a son, and they will name him Immanuel, which is translated “God is with us.”
 
 ### Preserved by God: Here is where God was tempted in every way
 
@@ -273,7 +273,7 @@ Because Christ is at work in you. You know who doesn't struggle with sin? Unbeli
 
 Paul said it best in Romans 7:
 
->Romans 7:21–24 (CSB)  So I discover this law: When I want to do what is good, evil is present with me. 22 For in my inner self I delight in God’s law, 23 but I see a different law in the parts of my body, waging war against the law of my mind and taking me prisoner to the law of sin in the parts of my body. 24 What a wretched man I am! Who will rescue me from this body of death?
+>Romans 7:21–24 (CSB)  So I discover this law: When I want to do what is good, evil is present with me.For in my inner self I delight in God’s law,but I see a different law in the parts of my body, waging war against the law of my mind and taking me prisoner to the law of sin in the parts of my body.What a wretched man I am! Who will rescue me from this body of death?
 
 Do you delight in the word of God and the promises of God? Then you are with God and God dwells in you. You are in Christ! You are in Christ! 
 

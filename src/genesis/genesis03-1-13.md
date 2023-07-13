@@ -10,11 +10,11 @@
 
 >Genesis 3:1-13 (CSB) Now the serpent was the most cunning of all the wild animals that the LORD God had made. He said to the woman, “Did God really say, ‘You can’t eat from any tree in the garden’?”
 >
->2 The woman said to the serpent, “We may eat the fruit from the trees in the garden. 3 But about the fruit of the tree in the middle of the garden, God said, ‘You must not eat it or touch it, or you will die.’”
+>2 The woman said to the serpent, “We may eat the fruit from the trees in the garden.But about the fruit of the tree in the middle of the garden, God said, ‘You must not eat it or touch it, or you will die.’”
 >
->4 “No! You will certainly not die,” the serpent said to the woman. 5 “In fact, God knows that when you eat it your eyes will be opened and you will be like God, knowing good and evil.” 6 The woman saw that the tree was good for food and delightful to look at, and that it was desirable for obtaining wisdom. So she took some of its fruit and ate it; she also gave some to her husband, who was with her, and he ate it. 7 Then the eyes of both of them were opened, and they knew they were naked; so they sewed fig leaves together and made coverings for themselves.
+>4 “No! You will certainly not die,” the serpent said to the woman.“In fact, God knows that when you eat it your eyes will be opened and you will be like God, knowing good and evil.”The woman saw that the tree was good for food and delightful to look at, and that it was desirable for obtaining wisdom. So she took some of its fruit and ate it; she also gave some to her husband, who was with her, and he ate it.Then the eyes of both of them were opened, and they knew they were naked; so they sewed fig leaves together and made coverings for themselves.
 >
->8 Then the man and his wife heard the sound of the LORD God walking in the garden at the time of the evening breeze, and they hid from the LORD God among the trees of the garden. 9 So the LORD God called out to the man and said to him, “Where are you?”
+>8 Then the man and his wife heard the sound of the LORD God walking in the garden at the time of the evening breeze, and they hid from the LORD God among the trees of the garden.So the LORD God called out to the man and said to him, “Where are you?”
 >
 >10 And he said, “I heard you in the garden, and I was afraid because I was naked, so I hid.”
 >
@@ -57,7 +57,7 @@ Satan here will immediately attack the children of God and lie about God's perfe
 
 The counter punch to this Satanic lie comes from Christ himself:
 
->Matthew 6:31-34 (CSB) 31 So don’t worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’ 32 For the Gentiles eagerly seek all these things, and your heavenly Father knows that you need them. 33 But seek first the kingdom of God and his righteousness, and all these things will be provided for you. 34 Therefore don’t worry about tomorrow, because tomorrow will worry about itself. Each day has enough trouble of its own.
+>Matthew 6:31-34 (CSB)So don’t worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’For the Gentiles eagerly seek all these things, and your heavenly Father knows that you need them.But seek first the kingdom of God and his righteousness, and all these things will be provided for you.Therefore don’t worry about tomorrow, because tomorrow will worry about itself. Each day has enough trouble of its own.
 
 God is generous by default. Listen, he created everything out of nothing. Do you think he is limited in his provision?
 
@@ -71,7 +71,7 @@ If the children of God can never be separated from his love, then what is genero
 
 ### God is holy
 
->3:2 The woman said to the serpent, “We may eat the fruit from the trees in the garden. 3 But about the fruit of the tree in the middle of the garden, God said, ‘You must not eat it or touch it, or you will die.’”
+>3:2 The woman said to the serpent, “We may eat the fruit from the trees in the garden.But about the fruit of the tree in the middle of the garden, God said, ‘You must not eat it or touch it, or you will die.’”
 
 Did you catch that? What is the difference between what God commanded and what Eve repeated?
 
@@ -109,7 +109,7 @@ They didn't die instantly. But they did die. The spirit of God that was in them 
 
 The counter punch to this was the life and existence of Jesus Christ.
 
->Romans 8:10-11 (CSB) Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness. 11 And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
+>Romans 8:10-11 (CSB) Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness.And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
 
 Jesus was born just like we were. Grew in stature and wisdom. And when the time came to step into his ministry, the Spirit of God descended upon him and remained in Christ until Jesus gave up his spirit on the cross so that the children of God would live forever!
 
@@ -163,7 +163,7 @@ You followed your heart. And you end up in the deepest, darkest trenches, left f
 
 Here's how Paul describes that moment:
 
->Romans 1:21-23 (CSB) For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. 22 Claiming to be wise, they became fools 23 and exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles.
+>Romans 1:21-23 (CSB) For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened.Claiming to be wise, they became foolsand exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles.
 
 In this great exchange, we swapped God for something that we thought for something that would make us happy. But in the end, we exchanged God for death.
 
@@ -171,9 +171,9 @@ Christ arrives and he exchanges death for Himself.
 
 >John 6:65-69 (CSB) He said, “This is why I told you that no one can come to me unless it is granted to him by the Father.”
 >
->66 From that moment many of his disciples turned back and no longer accompanied him. 67 So Jesus said to the Twelve, “You don’t want to go away too, do you?”
+>66 From that moment many of his disciples turned back and no longer accompanied him.So Jesus said to the Twelve, “You don’t want to go away too, do you?”
 >
->68 Simon Peter answered, “Lord, to whom will we go? You have the words of eternal life. 69 We have come to believe and know that you are the Holy One of God.”
+>68 Simon Peter answered, “Lord, to whom will we go? You have the words of eternal life.We have come to believe and know that you are the Holy One of God.”
 
 ### Realize and know: sin brings shame into our souls
 
@@ -203,7 +203,7 @@ If you have heard the Lord God call you, you know that your life and mind and he
 
 Look at how Paul describes that moment on the road to Damascus:
 
->1 Timothy 1:12-14 (CSB) I give thanks to Christ Jesus our Lord who has strengthened me, because he considered me faithful, appointing me to the ministry—13 even though I was formerly a blasphemer, a persecutor, and an (violent and) arrogant man. But I received mercy because I acted out of ignorance in unbelief, 14 and the grace of our Lord overflowed, along with the faith and love that are in Christ Jesus.
+>1 Timothy 1:12-14 (CSB) I give thanks to Christ Jesus our Lord who has strengthened me, because he considered me faithful, appointing me to the ministry—13 even though I was formerly a blasphemer, a persecutor, and an (violent and) arrogant man. But I received mercy because I acted out of ignorance in unbelief,and the grace of our Lord overflowed, along with the faith and love that are in Christ Jesus.
 
 ### Realize and know: God is merciful, kind, and gracious to you--even if you think you have committed the worst kinds of sin
 
@@ -219,7 +219,7 @@ Christ comes to you. You cannot run too far off. He holds the stars in his hands
 
 >3:11 Then he asked, “Who told you that you were naked? Did you eat from the tree that I commanded you not to eat from?”
 
->Romans 2:3-4 (CSB) Do you think—anyone of you who judges those who do such things yet do the same—that you will escape God’s judgment? 4 Or do you despise the riches of his kindness, restraint, and patience, not recognizing that God’s kindness is intended to lead you to repentance?
+>Romans 2:3-4 (CSB) Do you think—anyone of you who judges those who do such things yet do the same—that you will escape God’s judgment?Or do you despise the riches of his kindness, restraint, and patience, not recognizing that God’s kindness is intended to lead you to repentance?
 
 God is so patient with you. Come to him and let God take the burden of sin and death off of all you.
 
@@ -247,7 +247,7 @@ That was the moment that single human born of a woman would be born into sin. Th
 
 Paul puts it like this:
 
->Ephesians 2:1-3 (CSB) And you were dead in your trespasses and sins 2 in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. 3 We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
+>Ephesians 2:1-3 (CSB) And you were dead in your trespasses and sinsin which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient.We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
 
 We were so foolish, dumb, blind, and dead that we didn't know we were being deceived and led astray right into death.
 
@@ -255,7 +255,7 @@ But this what God is offering: Himself.
 
 This is his response to his lost and forsaken children:
 
->Ephesians 2:4-5 (CSB) But God, who is rich in mercy, because of his great love that he had for us, 5 made us alive with Christ even though we were dead in trespasses. You are saved by grace!
+>Ephesians 2:4-5 (CSB) But God, who is rich in mercy, because of his great love that he had for us,made us alive with Christ even though we were dead in trespasses. You are saved by grace!
 
 You are not going to think right and love right on your own. If you sit and think I don't need God to do those things, then I have no good news for you. But if you know you are desperate and need to be rescued from the world and this life, call to Jesus.
 

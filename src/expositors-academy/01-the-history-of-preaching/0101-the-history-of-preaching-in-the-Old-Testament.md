@@ -16,7 +16,7 @@ Schaeffer. God Is There and He Is Not Silent.
 
 ### God preaches the law
 
->Genesis 2:16-18 (CSB) And the LORD God commanded the man, “You are free to eat from any tree of the garden, 17 but you must not eat from the tree of the knowledge of good and evil, for on the day you eat from it, you will certainly die.” 18 Then the LORD God said, “It is not good for the man to be alone. I will make a helper corresponding to him.”
+>Genesis 2:16-18 (CSB) And the LORD God commanded the man, “You are free to eat from any tree of the garden,but you must not eat from the tree of the knowledge of good and evil, for on the day you eat from it, you will certainly die.”Then the LORD God said, “It is not good for the man to be alone. I will make a helper corresponding to him.”
 
 We are doing what God himself has done.
 
@@ -29,22 +29,22 @@ We are doing what God himself has done.
 
 ### God proclaims his name
 
->Exodus 33:19-23 (CSB) He said, “I will cause all my goodness to pass in front of you, and I will proclaim the name ‘the LORD’ before you. I will be gracious to whom I will be gracious, and I will have compassion on whom I will have compassion.” 20 But he added, “You cannot see my face, for humans cannot see me and live.” 21 The LORD said, “Here is a place near me. You are to stand on the rock, 22 and when my glory passes by, I will put you in the crevice of the rock and cover you with my hand until I have passed by. 23 Then I will take my hand away, and you will see my back, but my face will not be seen.”
+>Exodus 33:19-23 (CSB) He said, “I will cause all my goodness to pass in front of you, and I will proclaim the name ‘the LORD’ before you. I will be gracious to whom I will be gracious, and I will have compassion on whom I will have compassion.”But he added, “You cannot see my face, for humans cannot see me and live.”The LORD said, “Here is a place near me. You are to stand on the rock,and when my glory passes by, I will put you in the crevice of the rock and cover you with my hand until I have passed by.Then I will take my hand away, and you will see my back, but my face will not be seen.”
 
 ### God preaches who he is
 
->Exodus 34:5-7 (CSB) The LORD came down in a cloud, stood with him there, and proclaimed his name, “the LORD.” 6 The LORD passed in front of him and proclaimed:
->The LORD — the LORD is a compassionate and gracious God, slow to anger and abounding in faithful love and truth, 7 maintaining faithful love to a thousand generations, forgiving iniquity, rebellion, and sin. But he will not leave the guilty unpunished, bringing the consequences of the fathers’ iniquity on the children and grandchildren to the third and fourth generation.
+>Exodus 34:5-7 (CSB) The LORD came down in a cloud, stood with him there, and proclaimed his name, “the LORD.”The LORD passed in front of him and proclaimed:
+>The LORD — the LORD is a compassionate and gracious God, slow to anger and abounding in faithful love and truth,maintaining faithful love to a thousand generations, forgiving iniquity, rebellion, and sin. But he will not leave the guilty unpunished, bringing the consequences of the fathers’ iniquity on the children and grandchildren to the third and fourth generation.
 
 To be called to preach is to follow behind what God himself did.
 
 ## The First OT Preacher of Note: Enoch
 
->Genesis 5:23-24 (CSB) So Enoch’s life lasted 365 years. 24 Enoch walked with God; then he was not there because God took him.
+>Genesis 5:23-24 (CSB) So Enoch’s life lasted 365 years.Enoch walked with God; then he was not there because God took him.
 
 How do we know that Enoch was a preacher?
 
->Jude 1:14-16 (CSB) It was about these that Enoch, in the seventh generation from Adam, prophesied: “Look! The Lord comes with tens of thousands of his holy ones 15 to execute judgment on all and to convict all the ungodly concerning all the ungodly acts that they have done in an ungodly way, and concerning all the harsh things ungodly sinners have said against him.” 16 These people are discontented grumblers, living according to their desires; their mouths utter arrogant words, flattering people for their own advantage.
+>Jude 1:14-16 (CSB) It was about these that Enoch, in the seventh generation from Adam, prophesied: “Look! The Lord comes with tens of thousands of his holy onesto execute judgment on all and to convict all the ungodly concerning all the ungodly acts that they have done in an ungodly way, and concerning all the harsh things ungodly sinners have said against him.”These people are discontented grumblers, living according to their desires; their mouths utter arrogant words, flattering people for their own advantage.
 
 Preaching must be:
 
@@ -104,7 +104,7 @@ We have been commanded by God to preach the word of God. We are under divine aut
 
 Will you follow the Lord? Or you will follow the world, the idols, and the philosophies? Today, you must choose.
 
->2 Corinthians 6:1-2 (CSB) Working together with him, we also appeal to you, “Don’t receive the grace of God in vain.” 2 For he says:  
+>2 Corinthians 6:1-2 (CSB) Working together with him, we also appeal to you, “Don’t receive the grace of God in vain.”For he says:  
 >At an acceptable time I listened to you,
 >and in the day of salvation I helped you.
 >See, now is the acceptable time; now is the day of salvation!

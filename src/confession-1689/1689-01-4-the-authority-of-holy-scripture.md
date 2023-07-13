@@ -41,7 +41,7 @@
 
 >2 Peter 1:19 (CSB) We also have the prophetic word strongly confirmed, and you will do well to pay attention to it, as to a lamp shining in a dark place, until the day dawns and the morning star rises in your hearts.
 
->John 1:4–5 (CSB) In him was life, and that life was the light of men. 5 That light shines in the darkness, and yet the darkness did not overcome it.
+>John 1:4–5 (CSB) In him was life, and that life was the light of men.That light shines in the darkness, and yet the darkness did not overcome it.
 
 In reading John Stott's *Between Two Worlds*, I was moved by his compassion towards the theological liberal. Stott suggested that they were trying to make sense of the rational world in which they lived and what the Bible said. In other words, does an ancient text like the Bible, or for that matter, the religion of Christianity, have any place in today's modern world.
 

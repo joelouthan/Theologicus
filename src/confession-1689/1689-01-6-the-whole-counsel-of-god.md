@@ -57,7 +57,7 @@ And
 
 But when it comes to the matters of **His own glory, man’s salvation, faith, and life**, it is **expressly set down in Scripture** according to the **whole counsel of God**.
 
->John 6:44–46 (CSB)  No one can come to me unless the Father who sent me draws him, and I will raise him up on the last day. 45 It is written in the Prophets: And they will all be taught by God. Everyone who has listened to and learned from the Father comes to me—46 not that anyone has seen the Father except the one who is from God. He has seen the Father.
+>John 6:44–46 (CSB)  No one can come to me unless the Father who sent me draws him, and I will raise him up on the last day.It is written in the Prophets: And they will all be taught by God. Everyone who has listened to and learned from the Father comes to me—46 not that anyone has seen the Father except the one who is from God. He has seen the Father.
 
 Debates on how God saves us is as old as Genesis itself and we can argue until Christ returns. But where Christ is clear on who and how he saves, we should take that as the gospel. Because He is clear and and what He says is the good news.
 
@@ -99,7 +99,7 @@ God did not save the whole world. That might be a harsh truth. The good news is 
 
 And if God saves you, it is a done deal forever:
 
->John 10:28–29 (CSB)  I give them eternal life, and they will never perish. No one will snatch them out of my hand. 29 My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand.
+>John 10:28–29 (CSB)  I give them eternal life, and they will never perish. No one will snatch them out of my hand.My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand.
 
 The whole counsel of God, expressed plainly in Scriptures or by good and necessary consequence may be deduced from Scripture is sufficient and basic and complete for our salvation, faith, and life.
 
@@ -136,13 +136,13 @@ I am going to post 1 Corinthians 2 as much as I need to so that we are thoroughl
 
 For:
 
->John 1:1–5 (CSB)  In the beginning was the Word, and the Word was with God, and the Word was God. 2 He was with God in the beginning. 3 All things were created through him, and apart from him not one thing was created that has been created. 4 In him was life, and that life was the light of men. 5 That light shines in the darkness, and yet the darkness did not overcome it.
+>John 1:1–5 (CSB)  In the beginning was the Word, and the Word was with God, and the Word was God.He was with God in the beginning.All things were created through him, and apart from him not one thing was created that has been created.In him was life, and that life was the light of men.That light shines in the darkness, and yet the darkness did not overcome it.
 
 Christ came into the world to save sinners. He is the light that illuminates his gospel and his word and his life and his death and his resurrection. All of it.
 
 Consider this:
 
->Luke 11:5–13 (CSB)  He also said to them, “Suppose one of you has a friend and goes to him at midnight and says to him, ‘Friend, lend me three loaves of bread, 6 because a friend of mine on a journey has come to me, and I don’t have anything to offer him.’ 7 Then he will answer from inside and say, ‘Don’t bother me! The door is already locked, and my children and I have gone to bed. I can’t get up to give you anything.’ 8 I tell you, even though he won’t get up and give him anything because he is his friend, yet because of his friend’s shameless boldness, he will get up and give him as much as he needs. 9 “So I say to you, ask, and it will be given to you. Seek, and you will find. Knock, and the door will be opened to you. 10 For everyone who asks receives, and the one who seeks finds, and to the one who knocks, the door will be opened. 11 What father among you, if his son asks for a fish, will give him a snake instead of a fish? 12 Or if he asks for an egg, will give him a scorpion? 13 If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him?”
+>Luke 11:5–13 (CSB)  He also said to them, “Suppose one of you has a friend and goes to him at midnight and says to him, ‘Friend, lend me three loaves of bread,because a friend of mine on a journey has come to me, and I don’t have anything to offer him.’Then he will answer from inside and say, ‘Don’t bother me! The door is already locked, and my children and I have gone to bed. I can’t get up to give you anything.’I tell you, even though he won’t get up and give him anything because he is his friend, yet because of his friend’s shameless boldness, he will get up and give him as much as he needs.“So I say to you, ask, and it will be given to you. Seek, and you will find. Knock, and the door will be opened to you.For everyone who asks receives, and the one who seeks finds, and to the one who knocks, the door will be opened.What father among you, if his son asks for a fish, will give him a snake instead of a fish?Or if he asks for an egg, will give him a scorpion?If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him?”
 
 Does this passage says that God is our magical genie in heaven? No. That is so little and small. Why think so small?
 

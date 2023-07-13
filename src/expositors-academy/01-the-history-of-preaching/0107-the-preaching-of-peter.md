@@ -6,7 +6,7 @@
 - sent out and evaluated
 - then Great Commission
 
->Acts 1:4–8 (CSB)  While he was with them, he commanded them not to leave Jerusalem, but to wait for the Father’s promise. “Which,” he said, “you have heard me speak about; 5 for John baptized with water, but you will be baptized with the Holy Spirit in a few days.” 6 So when they had come together, they asked him, “Lord, are you restoring the kingdom to Israel at this time?” 7 He said to them, “It is not for you to know times or periods that the Father has set by his own authority. 8 But you will receive power when the Holy Spirit has come on you, and you will be my witnesses in Jerusalem, in all Judea and Samaria, and to the ends of the earth.”
+>Acts 1:4–8 (CSB)  While he was with them, he commanded them not to leave Jerusalem, but to wait for the Father’s promise. “Which,” he said, “you have heard me speak about;for John baptized with water, but you will be baptized with the Holy Spirit in a few days.”So when they had come together, they asked him, “Lord, are you restoring the kingdom to Israel at this time?”He said to them, “It is not for you to know times or periods that the Father has set by his own authority.But you will receive power when the Holy Spirit has come on you, and you will be my witnesses in Jerusalem, in all Judea and Samaria, and to the ends of the earth.”
 
 ### Acts of the Apostles: The Preaching of the Apostles
 
