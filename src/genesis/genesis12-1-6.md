@@ -84,7 +84,7 @@ Don't look at it like God is giving you a multiple choice like Morpheus in The M
 
 The choice to be with God is the dead coming alive. Don't look at it like a mere choice, "Should I get a green or a red truck?" Look at this choice in the right manner:
 
->John 11:41–43 (CSB)  So they removed the stone. Then Jesus raised his eyes and said, “Father, I thank you that you heard me.I know that you always hear me, but because of the crowd standing here I said this, so that they may believe you sent me.”After he said this, he shouted with a loud voice, “Lazarus, come out!”
+>John 11:41–43 (CSB)  So they removed the stone. Then Jesus raised his eyes and said, “Father, I thank you that you heard me. I know that you always hear me, but because of the crowd standing here I said this, so that they may believe you sent me.”After he said this, he shouted with a loud voice, “Lazarus, come out!”
 
 Dead people do not choose. They are dead. They just lay be dead. Lazarus was 4 days dead. Super dead. Likewise, in our sins, we are super dead in our sins and trespasses. But what happens? But God, in his great love our us, calls out to our dead souls and cold hearts, pulls our expired hearts out, gives us his own heart and his own spirit. And now, we get to live. Now we are alive. Now we choose to live. There is only one way to live--live to God. To not live to God, to sin and trespass against God is death.
 
@@ -114,21 +114,21 @@ Abram was elected, chosen, thought of, loved by God before the "foundations of t
 
 But before Abram lifted a finger, he believe God and took God at his word and trusted him. Before he took one little step:
 
->Romans 4:1–5 (CSB)  What then will we say that Abraham, our forefather according to the flesh, has found?If Abraham was justified by works, he has something to boast about—but not before God.For what does the Scripture say? **Abraham believed God, and it was credited to him for righteousness.**Now to the one who works, pay is not credited as a gift, but as something owed.But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness.
+>Romans 4:1–5 (CSB)  What then will we say that Abraham, our forefather according to the flesh, has found?If Abraham was justified by works, he has something to boast about—but not before God. For what does the Scripture say? **Abraham believed God, and it was credited to him for righteousness.**Now to the one who works, pay is not credited as a gift, but as something owed. But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness.
 
 Now, you might keep reading the Bible, past Genesis, past Romans and come up on a little passage statement from the half-brother and younger Brother of Jesus:
 
->James 2:22–26 (CSB)  You see that faith was active together with his works, and by works, faith was made complete,and the Scripture was fulfilled that says, Abraham believed God, and it was credited to him as righteousness, and he was called God’s friend.You see that a person is justified by works and not by faith alone.In the same way, wasn’t Rahab the prostitute also justified by works in receiving the messengers and sending them out by a different route?For just as the body without the spirit is dead, so also faith without works is dead.
+>James 2:22–26 (CSB)  You see that faith was active together with his works, and by works, faith was made complete,and the Scripture was fulfilled that says, Abraham believed God, and it was credited to him as righteousness, and he was called God’s friend. You see that a person is justified by works and not by faith alone. In the same way, wasn’t Rahab the prostitute also justified by works in receiving the messengers and sending them out by a different route?For just as the body without the spirit is dead, so also faith without works is dead.
 
 Is James contradicting Paul in Romans and being divisive and argumentative and contradictory and putting the Scriptures at odds with one another? Absolutely not! In fact, if the epistles of Paul and James were conversations of the two apostles in the same room, you might go like this:
 
-Paul: **Abraham believed God, and it was credited to him for righteousness.**Now to the one who works, pay is not credited as a gift, but as something owed.But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness. (Romans 4:3b-5)
+Paul: **Abraham believed God, and it was credited to him for righteousness.**Now to the one who works, pay is not credited as a gift, but as something owed. But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness. (Romans 4:3b-5)
 
-James: But wait! You see that a person is justified by works and not by faith alone.In the same way, wasn’t Rahab the prostitute also justified by works in receiving the messengers and sending them out by a different route?For just as the body without the spirit is dead, so also faith without works is dead. (James 2:24b-26)
+James: But wait! You see that a person is justified by works and not by faith alone. In the same way, wasn’t Rahab the prostitute also justified by works in receiving the messengers and sending them out by a different route?For just as the body without the spirit is dead, so also faith without works is dead. (James 2:24b-26)
 
 Here's the plot twist:
 
-Paul: Oh James, I completely agree! For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast.For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do. (Ephesians 2:8–10 (CSB))
+Paul: Oh James, I completely agree! For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do. (Ephesians 2:8–10 (CSB))
 
 Paul would double down with rest of the Bible: we are not saved by good works but *to* good works. We are not saved by others to one another. We are only saved by thing along and it is not a thing but a person and that is Jesus Christ our Lord and Savior. Praise be to to God.
 
@@ -142,7 +142,7 @@ Because we are born in the iniquity of Adam, and death and sin passed from gener
 
 There is one man, who walked this earth, prophesied by certain preachers of old, that would be the Messiah that humanity longed for:
 
->Isaiah 9:6–7 (CSB)  For a child will be born for us, a son will be given to us, and the government will be on his shoulders. He will be named Wonderful Counselor, Mighty God, Eternal Father, Prince of Peace.The dominion will be vast, and its prosperity will never end. He will reign on the throne of David and over his kingdom, to establish and sustain it with justice and righteousness from now on and forever. The zeal of the LORD of Armies will accomplish this.
+>Isaiah 9:6–7 (CSB)  For a child will be born for us, a son will be given to us, and the government will be on his shoulders. He will be named Wonderful Counselor, Mighty God, Eternal Father, Prince of Peace. The dominion will be vast, and its prosperity will never end. He will reign on the throne of David and over his kingdom, to establish and sustain it with justice and righteousness from now on and forever. The zeal of the LORD of Armies will accomplish this.
 
 And since Jesus was not born of Adam, he did not come to add to our sin which filled all of mankind, but he come to save us from it.
 

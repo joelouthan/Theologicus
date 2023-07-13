@@ -60,7 +60,7 @@ Let me put it this way: *coram Deo*.  In other words, we are to live as though w
 
 ### Teach like this: what is good
 
-I am not here in the Bible to swap out male for female. Like I said previously, when the Bible is explicit to the older man, the younger man is not exempt. Likewise, commands to the older women do not let younger women off the hook. Furthermore, these commands of **be reverent in behavior, not slanderers, not slaves to excessive drinking** is not just for the women but for men as well.I know that might go without say but in these times, you cannot always assume.
+I am not here in the Bible to swap out male for female. Like I said previously, when the Bible is explicit to the older man, the younger man is not exempt. Likewise, commands to the older women do not let younger women off the hook. Furthermore, these commands of **be reverent in behavior, not slanderers, not slaves to excessive drinking** is not just for the women but for men as well. I know that might go without say but in these times, you cannot always assume.
 
 But the call to Christians--espcially to women--is to teach what is good. What is good? For **young women to love their husbands and to love their children** if God so chooses to bless us with spouses and children.
 

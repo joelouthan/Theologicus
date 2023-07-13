@@ -29,7 +29,7 @@ We are doing what God himself has done.
 
 ### God proclaims his name
 
->Exodus 33:19-23 (CSB) He said, “I will cause all my goodness to pass in front of you, and I will proclaim the name ‘the LORD’ before you. I will be gracious to whom I will be gracious, and I will have compassion on whom I will have compassion.”But he added, “You cannot see my face, for humans cannot see me and live.”The LORD said, “Here is a place near me. You are to stand on the rock,and when my glory passes by, I will put you in the crevice of the rock and cover you with my hand until I have passed by.Then I will take my hand away, and you will see my back, but my face will not be seen.”
+>Exodus 33:19-23 (CSB) He said, “I will cause all my goodness to pass in front of you, and I will proclaim the name ‘the LORD’ before you. I will be gracious to whom I will be gracious, and I will have compassion on whom I will have compassion.”But he added, “You cannot see my face, for humans cannot see me and live.”The LORD said, “Here is a place near me. You are to stand on the rock,and when my glory passes by, I will put you in the crevice of the rock and cover you with my hand until I have passed by. Then I will take my hand away, and you will see my back, but my face will not be seen.”
 
 ### God preaches who he is
 
@@ -40,7 +40,7 @@ To be called to preach is to follow behind what God himself did.
 
 ## The First OT Preacher of Note: Enoch
 
->Genesis 5:23-24 (CSB) So Enoch’s life lasted 365 years.Enoch walked with God; then he was not there because God took him.
+>Genesis 5:23-24 (CSB) So Enoch’s life lasted 365 years. Enoch walked with God; then he was not there because God took him.
 
 How do we know that Enoch was a preacher?
 

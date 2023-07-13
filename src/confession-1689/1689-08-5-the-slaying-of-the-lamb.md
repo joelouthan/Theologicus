@@ -46,7 +46,7 @@ When the flames reached the gunpowder, they were both annihilated--their bodies 
 
 What was this belief that both men were willing to be imprisoned and die in the most brutal fashion--leaving behind loved ones and parishioners and friends? What was this belief that they were willing to die for?
 
-It was this doctrine: The doctrine of the atonement.And the fact that Jesus Christ, the perfect Son of God, made this sacrifice once and for all. 
+It was this doctrine: The doctrine of the atonement. And the fact that Jesus Christ, the perfect Son of God, made this sacrifice once and for all. 
 
 >Hebrews 9:28 (CSB) so also Christ, having been offered once to bear the sins of many, will appear a second time, not to bear sin, but to bring salvation to those who are waiting for him.
 

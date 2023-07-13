@@ -33,9 +33,9 @@ Supreme authority over nations:
 
 >Hosea 11:9 (CSB) I will not vent the full fury of my anger; I will not turn back to destroy Ephraim. For I am God and not man, the Holy One among you; I will not come in rage.
 
->Habakkuk 1:12–13 (CSB) Are you not from eternity, LORD my God? My Holy One, you will not die. LORD, you appointed them to execute judgment; my Rock, you destined them to punish us.Your eyes are too pure to look on evil, and you cannot tolerate wrongdoing. So why do you tolerate those who are treacherous? Why are you silent while one who is wicked swallows up one who is more righteous than himself?
+>Habakkuk 1:12–13 (CSB) Are you not from eternity, LORD my God? My Holy One, you will not die. LORD, you appointed them to execute judgment; my Rock, you destined them to punish us. Your eyes are too pure to look on evil, and you cannot tolerate wrongdoing. So why do you tolerate those who are treacherous? Why are you silent while one who is wicked swallows up one who is more righteous than himself?
 
->Nahum 1:2–3 (CSB) The LORD is a jealous and avenging God; the LORD takes vengeance and is fierce in wrath. The LORD takes vengeance against his foes; he is furious with his enemies.The LORD is slow to anger but great in power; the LORD will never leave the guilty unpunished. His path is in the whirlwind and storm, and clouds are the dust beneath his feet.
+>Nahum 1:2–3 (CSB) The LORD is a jealous and avenging God; the LORD takes vengeance and is fierce in wrath. The LORD takes vengeance against his foes; he is furious with his enemies. The LORD is slow to anger but great in power; the LORD will never leave the guilty unpunished. His path is in the whirlwind and storm, and clouds are the dust beneath his feet.
 
 
 ### Unconditional Love of God
@@ -88,13 +88,13 @@ Called for and demanded the attention of their listeners. Engaging.
 
 Solemning. Took their calling seriously. The job was real.
 
->Nahum 1:1–2 (CSB) The pronouncement concerning Nineveh. The book of the vision of Nahum the Elkoshite.The LORD is a jealous and avenging God; the LORD takes vengeance and is fierce in wrath. The LORD takes vengeance against his foes; he is furious with his enemies.
+>Nahum 1:1–2 (CSB) The pronouncement concerning Nineveh. The book of the vision of Nahum the Elkoshite. The LORD is a jealous and avenging God; the LORD takes vengeance and is fierce in wrath. The LORD takes vengeance against his foes; he is furious with his enemies.
 
 >Habakkuk 1:1 (CSB) The pronouncement that the prophet Habakkuk saw.
 
 >Malachi 1:1 (CSB) A pronouncement: The word of the LORD to Israel through Malachi.
 
->Habakkuk 2:9–19 (CSB) Woe to him who dishonestly makes wealth for his house to place his nest on high, to escape the grasp of disaster!You have planned shame for your house by wiping out many peoples and sinning against your own self.For the stones will cry out from the wall, and the rafters will answer them from the woodwork.Woe to him who builds a city with bloodshed and founds a town with injustice!Is it not from the LORD of Armies that the peoples labor only to fuel the fire and countries exhaust themselves for nothing?For the earth will be filled with the knowledge of the LORD’s glory, as the water covers the sea.Woe to him who gives his neighbors drink, pouring out your wrath and even making them drunk, in order to look at their nakedness!You will be filled with disgrace instead of glory. You also—drink, and expose your uncircumcision! The cup in the LORD’s right hand will come around to you, and utter disgrace will cover your glory.For your violence against Lebanon will overwhelm you; the destruction of animals will terrify you because of your human bloodshed and violence against lands, cities, and all who live in them.What use is a carved idol after its craftsman carves it? It is only a cast image, a teacher of lies. For the one who crafts its shape trusts in it and makes worthless idols that cannot speak.Woe to him who says to wood: Wake up! or to mute stone: Come alive! Can it teach? Look! It may be plated with gold and silver, yet there is no breath in it at all.
+>Habakkuk 2:9–19 (CSB) Woe to him who dishonestly makes wealth for his house to place his nest on high, to escape the grasp of disaster!You have planned shame for your house by wiping out many peoples and sinning against your own self. For the stones will cry out from the wall, and the rafters will answer them from the woodwork. Woe to him who builds a city with bloodshed and founds a town with injustice!Is it not from the LORD of Armies that the peoples labor only to fuel the fire and countries exhaust themselves for nothing?For the earth will be filled with the knowledge of the LORD’s glory, as the water covers the sea. Woe to him who gives his neighbors drink, pouring out your wrath and even making them drunk, in order to look at their nakedness!You will be filled with disgrace instead of glory. You also—drink, and expose your uncircumcision! The cup in the LORD’s right hand will come around to you, and utter disgrace will cover your glory. For your violence against Lebanon will overwhelm you; the destruction of animals will terrify you because of your human bloodshed and violence against lands, cities, and all who live in them. What use is a carved idol after its craftsman carves it? It is only a cast image, a teacher of lies. For the one who crafts its shape trusts in it and makes worthless idols that cannot speak. Woe to him who says to wood: Wake up! or to mute stone: Come alive! Can it teach? Look! It may be plated with gold and silver, yet there is no breath in it at all.
 
 >Micah 6:1 (CSB) Now listen to what the LORD is saying: Rise, plead your case before the mountains, and let the hills hear your complaint.
 
@@ -124,13 +124,13 @@ As oppose to **indicative**: statement... fact... statement... fact like a data 
 
 Loving and grace of God
 
->Micah 7:18–19 (CSB) Who is a God like you, forgiving iniquity and passing over rebellion for the remnant of his inheritance? He does not hold on to his anger forever because he delights in faithful love.He will again have compassion on us; he will vanquish our iniquities. You will cast all our sins into the depths of the sea.
+>Micah 7:18–19 (CSB) Who is a God like you, forgiving iniquity and passing over rebellion for the remnant of his inheritance? He does not hold on to his anger forever because he delights in faithful love. He will again have compassion on us; he will vanquish our iniquities. You will cast all our sins into the depths of the sea.
 
 >Nahum 1:3 (CSB) The LORD is slow to anger but great in power; the LORD will never leave the guilty unpunished. His path is in the whirlwind and storm, and clouds are the dust beneath his feet.
 
 >Jonah 3:4 (CSB) Jonah set out on the first day of his walk in the city and proclaimed, “In forty days Nineveh will be demolished!”
 
->Hosea 14:1–5 (CSB) Israel, return to the LORD your God, for you have stumbled in your iniquity.Take words of repentance with you and return to the LORD. Say to him, “Forgive all our iniquity and accept what is good, so that we may repay you with praise from our lips.Assyria will not save us, we will not ride on horses, and we will no longer proclaim, ‘Our gods!’ to the work of our hands. For the fatherless receives compassion in you.”I will heal their apostasy; I will freely love them, for my anger will have turned from him.I will be like the dew to Israel; he will blossom like the lily and take root like the cedars of Lebanon.
+>Hosea 14:1–5 (CSB) Israel, return to the LORD your God, for you have stumbled in your iniquity. Take words of repentance with you and return to the LORD. Say to him, “Forgive all our iniquity and accept what is good, so that we may repay you with praise from our lips. Assyria will not save us, we will not ride on horses, and we will no longer proclaim, ‘Our gods!’ to the work of our hands. For the fatherless receives compassion in you.”I will heal their apostasy; I will freely love them, for my anger will have turned from him. I will be like the dew to Israel; he will blossom like the lily and take root like the cedars of Lebanon.
 
 
 ### Intense

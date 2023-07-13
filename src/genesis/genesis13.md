@@ -6,7 +6,7 @@
 
 For no other reason other than God in his sovereign grace elects one man out of everybody else and gives this one man a promise:
 
->Genesis 12:1–3 (CSB)  The LORD said to Abram: Go from your land, your relatives, and your father’s house to the land that I will show you.I will make you into a great nation, I will bless you, I will make your name great, and you will be a blessing.I will bless those who bless you, I will curse anyone who treats you with contempt, and all the peoples on earth will be blessed through you.
+>Genesis 12:1–3 (CSB)  The LORD said to Abram: Go from your land, your relatives, and your father’s house to the land that I will show you. I will make you into a great nation, I will bless you, I will make your name great, and you will be a blessing. I will bless those who bless you, I will curse anyone who treats you with contempt, and all the peoples on earth will be blessed through you.
 
 We know Abram believed because the rest of the Bible will state over and over that "Abraham believed and it was counted to him as righteousness of God."  For all we know, Abram did not trust nor obey nor worship the Living God. Nonetheless, like we have seen it starting with Adam and with Noah, God is gracious and kind and preaches the gospel to us and we believe. We didn't even earn the right to have the gospel preached nor even believed the gospel. We were once dead in our trespasses and sin. Abram is a son of Adam--he was wicked and depraved. Yet, God saved him.
 

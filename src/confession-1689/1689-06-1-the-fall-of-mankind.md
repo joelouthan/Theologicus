@@ -32,7 +32,7 @@ From the start, the breaking of the law of God was sin and death was the consequ
 
 One might read the Bible and think that God is giving the law and then adding stipulations and addendum to the law. But the law of God was set in the beginning and proceeds from the Eternal God.
 
-Let me contend to you that God is giving the consequences of breaking his holy law because those are the consequences. In other words, God didn't make up a law and then randomly assigned a consequence to breaking said law. The breaking of his law is disobedience of the Holy and Eternal God. This is not a random, arbitrary consequence.God was telling us about sin and death from the beginning.
+Let me contend to you that God is giving the consequences of breaking his holy law because those are the consequences. In other words, God didn't make up a law and then randomly assigned a consequence to breaking said law. The breaking of his law is disobedience of the Holy and Eternal God. This is not a random, arbitrary consequence. God was telling us about sin and death from the beginning.
 
 And I must think that in their righteousness, did Adam and Eve have a grasp on the concept of death?
 

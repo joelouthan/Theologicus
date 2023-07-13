@@ -94,9 +94,9 @@ Teach, expound, preach
 
 The time finally came in Nehemiah 8:
 
->Nehemiah 7:73 - 8:3 (CSB) When the seventh month came and the Israelites had settled in their towns,all the people gathered together at the square in front of the Water Gate. **They asked the scribe Ezra to bring the book of the law of Moses that the LORD had given Israel.On the first day of the seventh month, the priest Ezra brought the law before the assembly of men, women, and all who could listen with understanding. While he was facing the square in front of the Water Gate, he read out of it from daybreak until noon before the men, the women, and those who could understand. All the people listened attentively to the book of the law.**
+>Nehemiah 7:73 - 8:3 (CSB) When the seventh month came and the Israelites had settled in their towns,all the people gathered together at the square in front of the Water Gate. **They asked the scribe Ezra to bring the book of the law of Moses that the LORD had given Israel. On the first day of the seventh month, the priest Ezra brought the law before the assembly of men, women, and all who could listen with understanding. While he was facing the square in front of the Water Gate, he read out of it from daybreak until noon before the men, the women, and those who could understand. All the people listened attentively to the book of the law.**
 
->Nehemiah 8:4-6 (CSB) The scribe Ezra stood on a high wooden platform made for this purpose. Mattithiah, Shema, Anaiah, Uriah, Hilkiah, and Maaseiah stood beside him on his right; to his left were Pedaiah, Mishael, Malchijah, Hashum, Hash-baddanah, Zechariah, and Meshullam.Ezra opened the book in full view of all the people, since he was elevated above everyone. As he opened it, all the people stood up.Ezra blessed the LORD, the great God, and with their hands uplifted all the people said, “Amen, Amen! ” Then they knelt low and worshiped the LORD with their faces to the ground.
+>Nehemiah 8:4-6 (CSB) The scribe Ezra stood on a high wooden platform made for this purpose. Mattithiah, Shema, Anaiah, Uriah, Hilkiah, and Maaseiah stood beside him on his right; to his left were Pedaiah, Mishael, Malchijah, Hashum, Hash-baddanah, Zechariah, and Meshullam. Ezra opened the book in full view of all the people, since he was elevated above everyone. As he opened it, all the people stood up. Ezra blessed the LORD, the great God, and with their hands uplifted all the people said, “Amen, Amen! ” Then they knelt low and worshiped the LORD with their faces to the ground.
 
 >>We are called to be exaltation preachers--we are to preach to exalt the Almighty God.
 >>
@@ -104,7 +104,7 @@ The time finally came in Nehemiah 8:
 
 Then other scribes exegeted the passages:
 
->Nehemiah 8:7-9 (CSB) **Jeshua, Bani, Sherebiah, Jamin, Akkub, Shabbethai, Hodiah, Maaseiah, Kelita, Azariah, Jozabad, Hanan, and Pelaiah, who were Levites, explained the law to the people as they stood in their places.They read out of the book of the law of God, translating and giving the meaning so that the people could understand what was read.**Nehemiah the governor, Ezra the priest and scribe, and the Levites who were instructing the people said to all of them, “This day is holy to the LORD your God. Do not mourn or weep.” For all the people were weeping as they heard the words of the law.
+>Nehemiah 8:7-9 (CSB) **Jeshua, Bani, Sherebiah, Jamin, Akkub, Shabbethai, Hodiah, Maaseiah, Kelita, Azariah, Jozabad, Hanan, and Pelaiah, who were Levites, explained the law to the people as they stood in their places. They read out of the book of the law of God, translating and giving the meaning so that the people could understand what was read.**Nehemiah the governor, Ezra the priest and scribe, and the Levites who were instructing the people said to all of them, “This day is holy to the LORD your God. Do not mourn or weep.” For all the people were weeping as they heard the words of the law.
 
 Do not grieve. God is sufficient to save us. Christ is sufficient to save us. We get to rejoice and celebrate!
 
@@ -120,7 +120,7 @@ What does the Preacher must do?
 
 ### Preacher: Everything outside the word of God pertaining to God is rubbish compared to the word of God
 
->9 In addition to the Teacher being a wise man, he constantly taught the people knowledge; he weighed, explored, and arranged many proverbs.The Teacher sought to find delightful sayings and write words of truth accurately. 
+>9 In addition to the Teacher being a wise man, he constantly taught the people knowledge; he weighed, explored, and arranged many proverbs. The Teacher sought to find delightful sayings and write words of truth accurately. 
 
 ### Preacher: Must arrange the truth in order to communicate and convey to the congregation
 
@@ -136,7 +136,7 @@ We must nail down the truth. We must secure the message.
 
 And there is only one source of truth--that is the only, only Lord Jesus Christ.
 
->12 But beyond these, my son, be warned: there is no end to the making of many books, and much study wearies the body.When all has been heard, the conclusion of the matter is this: fear God and keep his commands, because this is for all humanity.For God will bring every act to judgment, including every hidden thing, whether good or evil.
+>12 But beyond these, my son, be warned: there is no end to the making of many books, and much study wearies the body. When all has been heard, the conclusion of the matter is this: fear God and keep his commands, because this is for all humanity. For God will bring every act to judgment, including every hidden thing, whether good or evil.
 
 ### Preacher: the marks of the man
 

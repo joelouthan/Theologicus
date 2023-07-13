@@ -182,7 +182,7 @@ Preach with a whole, deep heart. God is heartbroken when his people stray. Does 
 
 We are not scolding them. We are coming alongside the people and weep with them in our despair, our sin and turn towards the God who rescues.
 
->1 Corinthians 13:1-4 (CSB) If I speak human or angelic tongues but do not have love, I am a noisy gong or a clanging cymbal.If I have the gift of prophecy and understand all mysteries and all knowledge, and if I have all faith so that I can move mountains but do not have love, I am nothing.And if I give away all my possessions, and if I give over my body in order to boast but do not have love, I gain nothing.Love is patient, love is kind. Love does not envy, is not boastful, is not arrogant,
+>1 Corinthians 13:1-4 (CSB) If I speak human or angelic tongues but do not have love, I am a noisy gong or a clanging cymbal. If I have the gift of prophecy and understand all mysteries and all knowledge, and if I have all faith so that I can move mountains but do not have love, I am nothing. And if I give away all my possessions, and if I give over my body in order to boast but do not have love, I gain nothing. Love is patient, love is kind. Love does not envy, is not boastful, is not arrogant,
 
 >Jeremiah 9:23-24 (CSB) “ ‘This is what the LORD says:  
 >The wise person should not boast in his wisdom;  
@@ -228,6 +228,6 @@ On the preaching of John Calvin:
 
 We cannot do this on our own. God gives us supernatural grace to preach his word.
 
->Ezekiel 33:7-9 (CSB) “As for you, son of man, I have made you a watchman for the house of Israel. When you hear a word from my mouth, give them a warning from me.If I say to the wicked, ‘Wicked one, you will surely die,’ but you do not speak out to warn him about his way, that wicked person will die for his iniquity, yet I will hold you responsible for his blood.But if you warn a wicked person to turn from his way and he doesn’t turn from it, he will die for his iniquity, but you will have rescued yourself.
+>Ezekiel 33:7-9 (CSB) “As for you, son of man, I have made you a watchman for the house of Israel. When you hear a word from my mouth, give them a warning from me. If I say to the wicked, ‘Wicked one, you will surely die,’ but you do not speak out to warn him about his way, that wicked person will die for his iniquity, yet I will hold you responsible for his blood. But if you warn a wicked person to turn from his way and he doesn’t turn from it, he will die for his iniquity, but you will have rescued yourself.
 
 The people's blood is on their hands. You must do what God has called you to do.

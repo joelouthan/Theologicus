@@ -99,7 +99,7 @@ Don't wait for the end. Trust in God right now. Trust in Him. Look to His Son, J
 
 >Matthew 11:28-30 (CSB) “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
 
-Christ says, "Come, give me your soul crushing sin, your back-breaking self-righteousness, your demonic idols--and I will give you rest. I will give you peace. I will give you the faith you need to be saved.I will give you grace. I will give you peace."
+Christ says, "Come, give me your soul crushing sin, your back-breaking self-righteousness, your demonic idols--and I will give you rest. I will give you peace. I will give you the faith you need to be saved. I will give you grace. I will give you peace."
 
 ## The Discussion
 

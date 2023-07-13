@@ -45,7 +45,7 @@ Let us get into it.
 
 ## The Support
 
->1 Corinthians 7:22-24 (CSB) For he who is called by the Lord as a slave is the Lord’s freedman. Likewise he who is called as a free man is Christ’s slave.You were bought at a price; do not become slaves of people.Brothers and sisters, each person is to remain with God in the situation in which he was called.
+>1 Corinthians 7:22-24 (CSB) For he who is called by the Lord as a slave is the Lord’s freedman. Likewise he who is called as a free man is Christ’s slave. You were bought at a price; do not become slaves of people. Brothers and sisters, each person is to remain with God in the situation in which he was called.
 
 To redeem is to purchase. That is appropriate when it comes to cashing in a coupon or a gift card.
 
@@ -91,7 +91,7 @@ God poured his wrath out on all living things but kept Noah, his wife, his famil
 
 Because of this new life, we get to go and live!
 
->2 Corinthians 5:16-19 (CSB) From now on, then, we do not know anyone from a worldly perspective. Even if we have known Christ from a worldly perspective, yet now we no longer know him in this way.Therefore, if anyone is in Christ, he is a new creation; the old has passed away, and see, the new has come!Everything is from God, who has reconciled us to himself through Christ and has given us the ministry of reconciliation.That is, in Christ, God was reconciling the world to himself, not counting their trespasses against them, and he has committed the message of reconciliation to us.
+>2 Corinthians 5:16-19 (CSB) From now on, then, we do not know anyone from a worldly perspective. Even if we have known Christ from a worldly perspective, yet now we no longer know him in this way. Therefore, if anyone is in Christ, he is a new creation; the old has passed away, and see, the new has come!Everything is from God, who has reconciled us to himself through Christ and has given us the ministry of reconciliation. That is, in Christ, God was reconciling the world to himself, not counting their trespasses against them, and he has committed the message of reconciliation to us.
 
 Once God has wiped away the world, and he promised Noah that it would never happen like that ever again so Noah can go live in the grace of God. But what God does for his people: He washes us clean from the inside out so we can live in the righteousness of God and live to God forever.
 
@@ -99,7 +99,7 @@ Once God has wiped away the world, and he promised Noah that it would never happ
 
 And
 
->Titus 3:4-7 (CSB) But when the kindness of God our Savior and his love for mankind appeared,he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit.He poured out his Spirit on us abundantly through Jesus Christ our Saviorso that, having been justified by his grace, we may become heirs with the hope of eternal life.
+>Titus 3:4-7 (CSB) But when the kindness of God our Savior and his love for mankind appeared,he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Saviorso that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
 ## Our Response
 

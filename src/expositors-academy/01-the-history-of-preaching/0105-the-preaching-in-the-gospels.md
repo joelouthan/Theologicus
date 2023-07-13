@@ -24,7 +24,7 @@ Urgency
 
 ### Bold and Fearless
 
->Matthew 3:8–9 (CSB) Therefore produce fruit consistent with repentance.And don’t presume to say to yourselves, ‘We have Abraham as our father.’ For I tell you that God is able to raise up children for Abraham from these stones.
+>Matthew 3:8–9 (CSB) Therefore produce fruit consistent with repentance. And don’t presume to say to yourselves, ‘We have Abraham as our father.’ For I tell you that God is able to raise up children for Abraham from these stones.
 
 ### Called for Fruit
 
@@ -54,7 +54,7 @@ We are to always point people away from ourselves and to the Christ who alone sa
 
 ### Revealed Salvation and Judgment
 
->John 1:7–13 (CSB) He came as a witness to testify about the light, so that all might believe through him.He was not the light, but he came to testify about the light.The true light that gives light to everyone was coming into the world.He was in the world, and the world was created through him, and yet the world did not recognize him.He came to his own, and his own people did not receive him.But to all who did receive him, he gave them the right to be children of God, to those who believe in his name,who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
+>John 1:7–13 (CSB) He came as a witness to testify about the light, so that all might believe through him. He was not the light, but he came to testify about the light. The true light that gives light to everyone was coming into the world. He was in the world, and the world was created through him, and yet the world did not recognize him. He came to his own, and his own people did not receive him. But to all who did receive him, he gave them the right to be children of God, to those who believe in his name,who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
 
 
 ### Preached Evangelistically 
@@ -77,7 +77,7 @@ And found himself wanting-falling short of the glory of Christ.
 
 ### Preached Christ and him crucified
 
->1 Corinthians 2:2–3 (CSB) I decided to know nothing among you except Jesus Christ and him crucified.I came to you in weakness, in fear, and in much trembling.
+>1 Corinthians 2:2–3 (CSB) I decided to know nothing among you except Jesus Christ and him crucified. I came to you in weakness, in fear, and in much trembling.
 
 >Colossians 1:28 (CSB) We proclaim him, warning and teaching everyone with all wisdom, so that we may present everyone mature in Christ.
 

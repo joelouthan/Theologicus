@@ -97,6 +97,19 @@ To the living word of God, there is nothing that compares to it. And it bears wi
 
 But it is only dependent on God who wills us to understanding and maturity:
 
->Hebrews 5:11–6:3 (CSB)  We have a great deal to say about this, and it is difficult to explain, since you have become too lazy to understand.Although by this time you ought to be teachers, you need someone to teach you the basic principles of God’s revelation again. You need milk, not solid food.Now everyone who lives on milk is inexperienced with the message about righteousness, because he is an infant.But solid food is for the mature—for those whose senses have been trained to distinguish between good and evil. 6:1 Therefore, let us leave the elementary teaching about Christ and go on to maturity, not laying again a foundation of repentance from dead works, faith in God,teaching about ritual washings, laying on of hands, the resurrection of the dead, and eternal judgment.And we will do this if God permits.
+>Hebrews 5:11–6:3 (CSB)  
+><sup>11</sup> We have a great deal to say about this, and it is difficult to explain, since you have become too lazy to understand. 
+>
+><sup>12</sup> Although by this time you ought to be teachers, you need someone to teach you the basic principles of God’s revelation again. You need milk, not solid food. 
+>
+><sup>13</sup> Now everyone who lives on milk is inexperienced with the message about righteousness, because he is an infant. 
+>
+><sup>14</sup> But solid food is for the mature—for those whose senses have been trained to distinguish between good and evil. 
+>
+><sup>1</sup> Therefore, let us leave the elementary teaching about Christ and go on to maturity, not laying again a foundation of repentance from dead works, faith in God, 
+>
+><sup>2</sup> teaching about ritual washings, laying on of hands, the resurrection of the dead, and eternal judgment. 
+>
+><sup>3</sup> And we will do this if God permits.
 
 What can we do? Pray and ask God to mature us and conform us to the image of His Son so that we might see him clearer and clearer every day.

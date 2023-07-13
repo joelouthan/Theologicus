@@ -20,7 +20,7 @@ Dive a little bit more into theology and then you are going to have to deal with
 
 On the surface, we could say, "God desires all men to be saved"--which is emphatically true:
 
->1 Timothy 2:1-4 (CSB) First of all, then, I urge that petitions, prayers, intercessions, and thanksgivings be made for everyone,for kings and all those who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity.This is good, and it pleases God our Savior,who wants everyone to be saved and to come to the knowledge of the truth.
+>1 Timothy 2:1-4 (CSB) First of all, then, I urge that petitions, prayers, intercessions, and thanksgivings be made for everyone,for kings and all those who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity. This is good, and it pleases God our Savior,who wants everyone to be saved and to come to the knowledge of the truth.
 
 But what is also true is that God's will in his kindness is meant to lead you to repentance. (Romans 2:4)
 
@@ -75,7 +75,7 @@ Basic facts: God is not a liar and does not possess the ability to lie
 
 >Numbers 23:19 (CSB) God is not a man, that he might lie, or a son of man, that he might change his mind. Does he speak and not act, or promise and not fulfill?
 
->Hebrews 6:17-19a (CSB) Because God wanted to show his unchangeable purpose even more clearly to the heirs of the promise, he guaranteed it with an oath,so that through two unchangeable things, in which it is impossible for God to lie, we who have fled for refuge might have strong encouragement to seize the hope set before us.We have this hope as an anchor for the soul, firm and secure.
+>Hebrews 6:17-19a (CSB) Because God wanted to show his unchangeable purpose even more clearly to the heirs of the promise, he guaranteed it with an oath,so that through two unchangeable things, in which it is impossible for God to lie, we who have fled for refuge might have strong encouragement to seize the hope set before us. We have this hope as an anchor for the soul, firm and secure.
 
 More so, when God promises he will do something, rest assure it will be done in the way he said it would.
 
@@ -109,11 +109,11 @@ But God has made a way and provision to turn away from yourself and your sin: tr
 
 ### The will of God: to provide all you need and all you actually need
 
->Matthew 6:31-34 (CSB) So don’t worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’For the Gentiles eagerly seek all these things, and your heavenly Father knows that you need them.But seek first the kingdom of God and his righteousness, and all these things will be provided for you.Therefore don’t worry about tomorrow, because tomorrow will worry about itself. Each day has enough trouble of its own.
+>Matthew 6:31-34 (CSB) So don’t worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’For the Gentiles eagerly seek all these things, and your heavenly Father knows that you need them. But seek first the kingdom of God and his righteousness, and all these things will be provided for you. Therefore don’t worry about tomorrow, because tomorrow will worry about itself. Each day has enough trouble of its own.
 
 #### Christ is sustainer of life
 
->John 6:35-37 (CSB) “I am the bread of life,” Jesus told them. “No one who comes to me will ever be hungry, and no one who believes in me will ever be thirsty again.But as I told you, you’ve seen me, and yet you do not believe.Everyone the Father gives me will come to me, and the one who comes to me I will never cast out.
+>John 6:35-37 (CSB) “I am the bread of life,” Jesus told them. “No one who comes to me will ever be hungry, and no one who believes in me will ever be thirsty again. But as I told you, you’ve seen me, and yet you do not believe. Everyone the Father gives me will come to me, and the one who comes to me I will never cast out.
 
 #### Christ is the light of life
 
@@ -121,15 +121,15 @@ But God has made a way and provision to turn away from yourself and your sin: tr
 
 #### Christ is the narrow gate to life
 
->John 10:7-10 (CSB) Jesus said again, “Truly I tell you, I am the gate for the sheep.All who came before me are thieves and robbers, but the sheep didn’t listen to them.I am the gate. If anyone enters by me, he will be saved and will come in and go out and find pasture.A thief comes only to steal and kill and destroy. I have come so that they may have life and have it in abundance.
+>John 10:7-10 (CSB) Jesus said again, “Truly I tell you, I am the gate for the sheep. All who came before me are thieves and robbers, but the sheep didn’t listen to them. I am the gate. If anyone enters by me, he will be saved and will come in and go out and find pasture. A thief comes only to steal and kill and destroy. I have come so that they may have life and have it in abundance.
 
 #### Christ is the shepherd of life
 
->John 10:11-15 (CSB) I am the good shepherd. The good shepherd lays down his life for the sheep.The hired hand, since he is not the shepherd and doesn’t own the sheep, leaves them and runs away when he sees a wolf coming. The wolf then snatches and scatters them.This happens because he is a hired hand and doesn’t care about the sheep.“I am the good shepherd. I know my own, and my own know me,just as the Father knows me, and I know the Father. I lay down my life for the sheep.
+>John 10:11-15 (CSB) I am the good shepherd. The good shepherd lays down his life for the sheep. The hired hand, since he is not the shepherd and doesn’t own the sheep, leaves them and runs away when he sees a wolf coming. The wolf then snatches and scatters them. This happens because he is a hired hand and doesn’t care about the sheep.“I am the good shepherd. I know my own, and my own know me,just as the Father knows me, and I know the Father. I lay down my life for the sheep.
 
 #### Christ is the way, true, and life
 
->John 14:6-7 (CSB) Jesus told him, “I am the way, the truth, and the life. No one comes to the Father except through me.If you know me, you will also know my Father. From now on you do know him and have seen him.”
+>John 14:6-7 (CSB) Jesus told him, “I am the way, the truth, and the life. No one comes to the Father except through me. If you know me, you will also know my Father. From now on you do know him and have seen him.”
 
 >Psalms 16:11 (CSB) You reveal the path of life to me;
 in your presence is abundant joy;
@@ -137,7 +137,7 @@ at your right hand are eternal pleasures.
 
 #### Christ is the connection to life 
 
->John 15:1-3 (CSB) “I am the true vine, and my Father is the gardener.Every branch in me that does not produce fruit he removes, and he prunes every branch that produces fruit so that it will produce more fruit.You are already clean because of the word I have spoken to you.
+>John 15:1-3 (CSB) “I am the true vine, and my Father is the gardener. Every branch in me that does not produce fruit he removes, and he prunes every branch that produces fruit so that it will produce more fruit. You are already clean because of the word I have spoken to you.
 
 #### Christ is the resurrection to new life
 
@@ -149,9 +149,9 @@ God has provided everything that you will need to fully and truly live--he has d
 
 ### The will of God: all those who believe and trust will God will live
 
->John 3:14-17 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up,so that everyone who believes in him may have eternal life.For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.For God did not send his Son into the world to condemn the world, but to save the world through him.
+>John 3:14-17 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up,so that everyone who believes in him may have eternal life. For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
 
->Romans 10:11-13 (CSB) For the Scripture says, Everyone who believes on him will not be put to shame,since there is no distinction between Jew and Greek, because the same Lord of all richly blesses all who call on him.For everyone who calls on the name of the Lord will be saved.
+>Romans 10:11-13 (CSB) For the Scripture says, Everyone who believes on him will not be put to shame,since there is no distinction between Jew and Greek, because the same Lord of all richly blesses all who call on him. For everyone who calls on the name of the Lord will be saved.
 
 ><sup> 16 </sup> Those that entered, male and female of every creature, entered just as God had commanded him. Then the LORD shut him in. 
 
@@ -161,7 +161,7 @@ God has provided everything that you will need to fully and truly live--he has d
 
 >Luke 23:29-31 (CSB) Look, the days are coming when they will say, ‘Blessed are the women without children, the wombs that never bore, and the breasts that never nursed!’Then they will begin to say to the mountains, ‘Fall on us!’ and to the hills, ‘Cover us!’For if they do these things when the wood is green, what will happen when it is dry?”
 
->Revelation 6:15-17 (CSB) hen the kings of the earth, the nobles, the generals, the rich, the powerful, and every slave and free person hid in the caves and among the rocks of the mountains.And they said to the mountains and to the rocks, “Fall on us and hide us from the face of the one seated on the throne and from the wrath of the Lamb,because the great day of their wrath has come! And who is able to stand?”
+>Revelation 6:15-17 (CSB) hen the kings of the earth, the nobles, the generals, the rich, the powerful, and every slave and free person hid in the caves and among the rocks of the mountains. And they said to the mountains and to the rocks, “Fall on us and hide us from the face of the one seated on the throne and from the wrath of the Lamb,because the great day of their wrath has come! And who is able to stand?”
 
 ### The will of God is the wrath of God
 
@@ -173,7 +173,7 @@ God has provided everything that you will need to fully and truly live--he has d
 
 ><sup> 22 </sup> Everything with the breath of the spirit of life in its nostrils—everything on dry land died. 
 
->Revelation 20:11-15 (CSB) Then I saw a great white throne and one seated on it. Earth and heaven fled from his presence, and no place was found for them.I also saw the dead, the great and the small, standing before the throne, and books were opened. Another book was opened, which is the book of life, and the dead were judged according to their works by what was written in the books.Then the sea gave up the dead that were in it, and death and Hades gave up the dead that were in them; each one was judged according to their works.Death and Hades were thrown into the lake of fire. This is the second death, the lake of fire.And anyone whose name was not found written in the book of life was thrown into the lake of fire.
+>Revelation 20:11-15 (CSB) Then I saw a great white throne and one seated on it. Earth and heaven fled from his presence, and no place was found for them. I also saw the dead, the great and the small, standing before the throne, and books were opened. Another book was opened, which is the book of life, and the dead were judged according to their works by what was written in the books. Then the sea gave up the dead that were in it, and death and Hades gave up the dead that were in them; each one was judged according to their works. Death and Hades were thrown into the lake of fire. This is the second death, the lake of fire. And anyone whose name was not found written in the book of life was thrown into the lake of fire.
 
 ## The Gospel
 

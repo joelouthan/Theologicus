@@ -62,7 +62,7 @@ We already know the spirit within mankind departed mankind when Adam and Eve sin
 
 This is not Holy Spirit but rather, the breath of life of God by God. Don't forget that God was still in the business of multiplying mankind despite our sinful ways. God declared that Man shall die. In this decree in verse 3, God declares that man will not live forever nor even for a long time. (The life expectancy of man starts to decline after God makes this decree.)
 
->Romans 5:12-14 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.In fact, sin was in the world before the law, but sin is not charged to a person’s account when there is no law.Nevertheless, death reigned from Adam to Moses, even over those who did not sin in the likeness of Adam’s transgression. He is a type of the Coming One.
+>Romans 5:12-14 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned. In fact, sin was in the world before the law, but sin is not charged to a person’s account when there is no law. Nevertheless, death reigned from Adam to Moses, even over those who did not sin in the likeness of Adam’s transgression. He is a type of the Coming One.
 
 ## God
 
@@ -126,11 +126,11 @@ Also, go and read Acts 5 and see what the Holy Spirit does to Ananias and Sapphi
 
 And after Christ was beaten within an inch of his life, as he began his death march towards the excruciating, blood-curdling pain and torture, Jesus takes precious energy to prophesy in this one moment to the women who were mourning and lamenting him:
 
->Luke 23:28-30 (CSB) But turning to them, Jesus said, “Daughters of Jerusalem, do not weep for me, but weep for yourselves and your children.Look, the days are coming when they will say, ‘Blessed are the women without children, the wombs that never bore, and the breasts that never nursed!’Then they will begin to say to the mountains, ‘Fall on us!’ and to the hills, ‘Cover us!’
+>Luke 23:28-30 (CSB) But turning to them, Jesus said, “Daughters of Jerusalem, do not weep for me, but weep for yourselves and your children. Look, the days are coming when they will say, ‘Blessed are the women without children, the wombs that never bore, and the breasts that never nursed!’Then they will begin to say to the mountains, ‘Fall on us!’ and to the hills, ‘Cover us!’
 
 Christ prophesied and fulfilled his own judgment:
 
->Revelation 6:15-17 (CSB) Then the kings of the earth, the nobles, the generals, the rich, the powerful, and every slave and free person hid in the caves and among the rocks of the mountains.And they said to the mountains and to the rocks, “Fall on us and hide us from the face of the one seated on the throne and from the wrath of the Lamb,because the great day of their wrath has come! And who is able to stand?
+>Revelation 6:15-17 (CSB) Then the kings of the earth, the nobles, the generals, the rich, the powerful, and every slave and free person hid in the caves and among the rocks of the mountains. And they said to the mountains and to the rocks, “Fall on us and hide us from the face of the one seated on the throne and from the wrath of the Lamb,because the great day of their wrath has come! And who is able to stand?
 
 Has it happened yet? No, not yet. Not in our timeline. But because God is perfect and cannot lie, this promises is as good as done. Past tense.
 

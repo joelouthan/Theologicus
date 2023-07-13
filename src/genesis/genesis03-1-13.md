@@ -10,11 +10,11 @@
 
 >Genesis 3:1-13 (CSB) Now the serpent was the most cunning of all the wild animals that the LORD God had made. He said to the woman, “Did God really say, ‘You can’t eat from any tree in the garden’?”
 >
->2 The woman said to the serpent, “We may eat the fruit from the trees in the garden.But about the fruit of the tree in the middle of the garden, God said, ‘You must not eat it or touch it, or you will die.’”
+>2 The woman said to the serpent, “We may eat the fruit from the trees in the garden. But about the fruit of the tree in the middle of the garden, God said, ‘You must not eat it or touch it, or you will die.’”
 >
->4 “No! You will certainly not die,” the serpent said to the woman.“In fact, God knows that when you eat it your eyes will be opened and you will be like God, knowing good and evil.”The woman saw that the tree was good for food and delightful to look at, and that it was desirable for obtaining wisdom. So she took some of its fruit and ate it; she also gave some to her husband, who was with her, and he ate it.Then the eyes of both of them were opened, and they knew they were naked; so they sewed fig leaves together and made coverings for themselves.
+>4 “No! You will certainly not die,” the serpent said to the woman.“In fact, God knows that when you eat it your eyes will be opened and you will be like God, knowing good and evil.”The woman saw that the tree was good for food and delightful to look at, and that it was desirable for obtaining wisdom. So she took some of its fruit and ate it; she also gave some to her husband, who was with her, and he ate it. Then the eyes of both of them were opened, and they knew they were naked; so they sewed fig leaves together and made coverings for themselves.
 >
->8 Then the man and his wife heard the sound of the LORD God walking in the garden at the time of the evening breeze, and they hid from the LORD God among the trees of the garden.So the LORD God called out to the man and said to him, “Where are you?”
+>8 Then the man and his wife heard the sound of the LORD God walking in the garden at the time of the evening breeze, and they hid from the LORD God among the trees of the garden. So the LORD God called out to the man and said to him, “Where are you?”
 >
 >10 And he said, “I heard you in the garden, and I was afraid because I was naked, so I hid.”
 >
@@ -57,7 +57,7 @@ Satan here will immediately attack the children of God and lie about God's perfe
 
 The counter punch to this Satanic lie comes from Christ himself:
 
->Matthew 6:31-34 (CSB)So don’t worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’For the Gentiles eagerly seek all these things, and your heavenly Father knows that you need them.But seek first the kingdom of God and his righteousness, and all these things will be provided for you.Therefore don’t worry about tomorrow, because tomorrow will worry about itself. Each day has enough trouble of its own.
+>Matthew 6:31-34 (CSB)So don’t worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’For the Gentiles eagerly seek all these things, and your heavenly Father knows that you need them. But seek first the kingdom of God and his righteousness, and all these things will be provided for you. Therefore don’t worry about tomorrow, because tomorrow will worry about itself. Each day has enough trouble of its own.
 
 God is generous by default. Listen, he created everything out of nothing. Do you think he is limited in his provision?
 
@@ -71,7 +71,7 @@ If the children of God can never be separated from his love, then what is genero
 
 ### God is holy
 
->3:2 The woman said to the serpent, “We may eat the fruit from the trees in the garden.But about the fruit of the tree in the middle of the garden, God said, ‘You must not eat it or touch it, or you will die.’”
+>3:2 The woman said to the serpent, “We may eat the fruit from the trees in the garden. But about the fruit of the tree in the middle of the garden, God said, ‘You must not eat it or touch it, or you will die.’”
 
 Did you catch that? What is the difference between what God commanded and what Eve repeated?
 
@@ -109,7 +109,7 @@ They didn't die instantly. But they did die. The spirit of God that was in them 
 
 The counter punch to this was the life and existence of Jesus Christ.
 
->Romans 8:10-11 (CSB) Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness.And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
+>Romans 8:10-11 (CSB) Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness. And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
 
 Jesus was born just like we were. Grew in stature and wisdom. And when the time came to step into his ministry, the Spirit of God descended upon him and remained in Christ until Jesus gave up his spirit on the cross so that the children of God would live forever!
 
@@ -163,7 +163,7 @@ You followed your heart. And you end up in the deepest, darkest trenches, left f
 
 Here's how Paul describes that moment:
 
->Romans 1:21-23 (CSB) For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened.Claiming to be wise, they became foolsand exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles.
+>Romans 1:21-23 (CSB) For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. Claiming to be wise, they became foolsand exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles.
 
 In this great exchange, we swapped God for something that we thought for something that would make us happy. But in the end, we exchanged God for death.
 
@@ -171,9 +171,9 @@ Christ arrives and he exchanges death for Himself.
 
 >John 6:65-69 (CSB) He said, “This is why I told you that no one can come to me unless it is granted to him by the Father.”
 >
->66 From that moment many of his disciples turned back and no longer accompanied him.So Jesus said to the Twelve, “You don’t want to go away too, do you?”
+>66 From that moment many of his disciples turned back and no longer accompanied him. So Jesus said to the Twelve, “You don’t want to go away too, do you?”
 >
->68 Simon Peter answered, “Lord, to whom will we go? You have the words of eternal life.We have come to believe and know that you are the Holy One of God.”
+>68 Simon Peter answered, “Lord, to whom will we go? You have the words of eternal life. We have come to believe and know that you are the Holy One of God.”
 
 ### Realize and know: sin brings shame into our souls
 
@@ -247,7 +247,7 @@ That was the moment that single human born of a woman would be born into sin. Th
 
 Paul puts it like this:
 
->Ephesians 2:1-3 (CSB) And you were dead in your trespasses and sinsin which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient.We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
+>Ephesians 2:1-3 (CSB) And you were dead in your trespasses and sinsin which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
 
 We were so foolish, dumb, blind, and dead that we didn't know we were being deceived and led astray right into death.
 

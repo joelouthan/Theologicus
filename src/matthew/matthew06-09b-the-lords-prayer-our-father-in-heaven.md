@@ -135,7 +135,7 @@ And You Son did it, perfectly, by your Spirit. Jesus Christ did so by giving ove
 
 Why did You save me? I have not a clue. I did nothing to deserve Your gracious and everlasting love, even less so, Your undivided attention.
 
-All I know is that I was once lost, now found; once blind, now I can see; once dead; now fully alive in You.All because of what You have done.
+All I know is that I was once lost, now found; once blind, now I can see; once dead; now fully alive in You. All because of what You have done.
 
 I love You, my God.
 ```

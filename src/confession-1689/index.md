@@ -16,7 +16,7 @@ Adopted by the Ministers and Messengers of the general assembly which met in Lon
 
 The Holy Scripture is the only sufficient, certain, and infallible rule of all saving knowledge, faith, and obedience, although the light of nature, and the works of creation and providence do so far manifest the goodness, wisdom, and power of God, as to leave men inexcusable; yet are they not sufficient to give that knowledge of God and his will which is necessary unto salvation. Therefore it pleased the Lord at sundry times and in divers manners to reveal himself, and to declare that his will unto his church; and afterward for the better preserving and propagating of the truth, and for the more sure establishment and comfort of the church against the corruption of the flesh, and the malice of Satan, and of the world, to commit the same wholly unto writing; which maketh the Holy Scriptures to be most necessary, those former ways of God's revealing his will unto his people being now ceased.
 
->2 Timothy 3:15–17 (CSB)  and you know that from infancy you have known the sacred Scriptures, which are able to give you wisdom for salvation through faith in Christ Jesus.All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness,so that the man of God may be complete, equipped for every good work.
+>2 Timothy 3:15–17 (CSB)  and you know that from infancy you have known the sacred Scriptures, which are able to give you wisdom for salvation through faith in Christ Jesus. All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness,so that the man of God may be complete, equipped for every good work.
 
 >Isaiah 8:20 (CSB)  Go to God’s instruction and testimony! If they do not speak according to this word, there will be no dawn for them.
 
@@ -26,13 +26,13 @@ The Holy Scripture is the only sufficient, certain, and infallible rule of all s
 
 >Ephesians 2:20 (CSB)  built on the foundation of the apostles and prophets, with Christ Jesus himself as the cornerstone.
 
->Romans 1:19–21 (CSB)  since what can be known about God is evident among them, because God has shown it to them.For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse.For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened.
+>Romans 1:19–21 (CSB)  since what can be known about God is evident among them, because God has shown it to them. For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse. For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened.
 
 >Romans 2:14 (CSB)  So, when Gentiles, who do not by nature have the law, do what the law demands, they are a law to themselves even though they do not have the law.
 
 >Romans 2:15 (CSB)  They show that the work of the law is written on their hearts. Their consciences confirm this. Their competing thoughts either accuse or even excuse them
 
->Psalm 19:1–3 (CSB)  The heavens declare the glory of God, and the expanse proclaims the work of his hands.Day after day they pour out speech; night after night they communicate knowledge.There is no speech; there are no words; their voice is not heard.
+>Psalm 19:1–3 (CSB)  The heavens declare the glory of God, and the expanse proclaims the work of his hands. Day after day they pour out speech; night after night they communicate knowledge. There is no speech; there are no words; their voice is not heard.
 
 >Hebrews 1:1 (CSB)  Long ago God spoke to our ancestors by the prophets at different times and in different ways.
 
@@ -40,7 +40,7 @@ The Holy Scripture is the only sufficient, certain, and infallible rule of all s
 
 >Romans 15:4 (CSB)  For whatever was written in the past was written for our instruction, so that we may have hope through endurance and through the encouragement from the Scriptures.
 
->2 Peter 1:19–20 (CSB)  We also have the prophetic word strongly confirmed, and you will do well to pay attention to it, as to a lamp shining in a dark place, until the day dawns and the morning star rises in your hearts.Above all, you know this: No prophecy of Scripture comes from the prophet’s own interpretation,
+>2 Peter 1:19–20 (CSB)  We also have the prophetic word strongly confirmed, and you will do well to pay attention to it, as to a lamp shining in a dark place, until the day dawns and the morning star rises in your hearts. Above all, you know this: No prophecy of Scripture comes from the prophet’s own interpretation,
 
 ### 1.2 The Old and New Testaments of Holy Scripture
 
