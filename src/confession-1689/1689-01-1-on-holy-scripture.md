@@ -152,3 +152,5 @@ Some of yall can tell me that because most of us don't engage in the word of God
 >Hebrews 1:1–2 (CSB) Long ago God spoke to our ancestors by the prophets at different times and in different ways. In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
 
 TODO: [#109](https://github.com/joelouthan/Theologicus/issues/109)
+
+>Matthew 4:4 (CSB) He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
