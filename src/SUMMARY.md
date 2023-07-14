@@ -21,7 +21,7 @@
   - [The Forgiveness of Sins](creed-apostles/apostles11-forgiveness-of-sins.md)
   - [The Resurrection of the Body](creed-apostles/apostles12-resurrection-of-body.md)
   - [Life Everlasting](creed-apostles/apostles13-life-everlasting.md)
-  - [Amen]()
+  - [Amen](creed-apostles/apostles14-amen.md)
 
 - [Nicene](creeds/nicene.md)
 - [Chalcedonian](creeds/chalcedonian.md)
