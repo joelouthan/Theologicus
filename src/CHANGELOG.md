@@ -4,7 +4,7 @@ All notable changes to this project will be documented in this file.
 
 ## 3.2 (2023 Jul 16)
 
-- [Book Reviews](creed-apostles/index.md)
+- [Apostles' Creed](creed-apostles/index.md)
 - Wordcount: 695610[^wordcount]
 
 ## 3.2 (2023 Jul 4)
