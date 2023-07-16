@@ -57,7 +57,7 @@ The name, "Jesus" and the title, "Christ", will not appear for over 23,000 verse
 
 What you will get promises of him. What you will get is foreshadows of him. What you will get is prophecies of him.
 
-What you will also get is more of our sin, our wickedness, our worthlessnes, our chaos, and our death.
+What you will also get is more of our sin, our wickedness, our worthlessness, our chaos, and our death.
 
 The more you read from Genesis to Exodus through Samuel, Kings, Chronicles, through the Psalms, into Isaiah, Jeremiah, Lamentations--our death because our sin is most apparent.
 
