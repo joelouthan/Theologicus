@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-1689.png">
 
-# 1689 Baptist Confession of Faith, Chapter 1.1 Of the Holy Scriptures
+# 1689 Baptist Confession of Faith, Chapter 1.1 The Holy Scriptures
 
 ## The Text
 
