@@ -2,17 +2,22 @@
 
 All notable changes to this project will be documented in this file.
 
-## 3.2 (2023-07-04)
+## 3.2 (2023 Jul 16)
+
+- [Book Reviews](creed-apostles/index.md)
+- Wordcount: 695610[^wordcount]
+
+## 3.2 (2023 Jul 4)
 
 - [Book Reviews](reviews/index.md)
-- Wordcount: 680499[^wordcount]
+- Wordcount: 680499
 
-## 3.1 (2023-06-14)
+## 3.1 (2023 Jun 14)
 
 - [The Story of Ruth](ruth/index.md)
 - Wordcount: 659293
 
-## 3.0 (2023-06-09)
+## 3.0 (2023 Jun 9)
 
 ### Added
 
@@ -21,42 +26,42 @@ All notable changes to this project will be documented in this file.
 
 <hr style="clear:both;">
 
-## 2.4 (2023-04-13)
+## 2.4 (2023 Apr 13)
 
 - [The Epistle to the Romans](romans/index.md)
 
-## 2.3 (2023-02-08)
+## 2.3 (2023 Feb 8)
 
 - [The Gospel of Mark](mark/index.md)
 
-## 2.2 (2022-09-08)
+## 2.2 (2022 Sep 8)
 
 - [The Pastoral Epistles](pastorals/index.md)
 
-## 2.1 (2021-04-29)
+## 2.1 (2021 Apr 29)
 
 - [The Gospel of Luke](luke/index.md)
 
-## 2.0 (2020-04-20)
+## 2.0 (2020 Apr 20)
 
 - Migrated from Wordpress to Hugo
 
 ---
 
-## 1.3 (2019-11-28)
+## 1.3 (2019 Nov 28)
 
 - Doctrine: The Lord's Prayer
   - *merged with [Matthew](matthew/index.md)*
 
-## 1.2 (2018-07-05)
+## 1.2 (2018 Jul 05)
 
 - Doctrine: Ordo Salutis (defunct) [^1]
 
-## 1.1 (2012-11-28)
+## 1.1 (2012 Nov 28)
 
 - Thanksgiving (defunct)
 
-## 1 (2008-04-15)
+## 1 (2008 Apr 15)
 
 - Initial release on Wordpress
 
