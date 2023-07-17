@@ -112,7 +112,7 @@ Abraham placed his faith in God and it was credited to Abraham as the righteousn
 
 From that moment, Abraham set out to do the good works that God has prepared for him to do.
 
-This life, this world, others, sin, Satan, demons are out to kick you square in the pricks. (Acts 9:6 KJV) And you cannot do anything except one thing:
+This life, this world, others, sin, Satan, demons are out to kick you upside your head and heart. And you cannot do anything except one thing:
 
 Know that God knows all of that. He knew that you were too weak. He knows life is about that beat-down. And he knows that your faith will be tested. And you will fail. And you will sin. And you will try to depart from his grace. But my glorious God will never let you go! This guarantee is absolute because he sent his only begotten Son, Jesus Christ, Son of God is God Eternal to come live and die for you so you will die and live for him with him in his maxed joy and pleasures forevermore.
 
