@@ -2,6 +2,8 @@
 
 # Ruth 2:1-6 God's Calling for His People
 
+## The Text
+
 >Ruth 2:1-6 (CSB)  
 ><sup>1</sup> Now Naomi had a relative on her husband’s side. He was a prominent man of noble character from Elimelech’s family. His name was Boaz.
 >
