@@ -17,9 +17,9 @@ create-missing = false
 
 [preprocessor.links]
 
-[preprocessor.toc]
-command = "mdbook-toc"
-renderer = ["html"]
+#[preprocessor.toc]
+#command = "mdbook-toc"
+#renderer = ["html"]
 
 #[output.wordcount]
 #optional = true
