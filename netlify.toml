@@ -6,8 +6,5 @@
   RUSTUP_HOME = "./rustup"
   CARGO_HOME = "./cargo"
 
-[[plugins]]
-  package = "@netlify/plugin-cache"
-  [plugins.inputs]
-    paths = ["./bin", "./rustup", "./cargo"]
-
+[build.cacheDirs]
+  paths = ["./bin", "./rustup", "./cargo"]
