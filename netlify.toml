@@ -1,5 +1,5 @@
 [build]
-  command = "curl --proto '=https' --tlsv1.2 -sSf https://sh.rustup.rs | sh -s -- -y && source $HOME/.cargo/env && if [ ! -f ./bin/bin/mdbook-toc ]; then cargo install --root ./bin mdbook-toc; fi && export PATH=$PATH:`pwd`/bin && mdbook build"
+  command = "curl --proto '=https' --tlsv1.2 -sSf https://sh.rustup.rs | sh -s -- -y && source $HOME/.cargo/env && cargo install mdbook && if [ ! -f ./bin/bin/mdbook-toc ]; then cargo install --root ./bin mdbook-toc; fi && export PATH=$PATH:`pwd`/bin && mdbook build"
   publish = "book"
 
 [build.environment]
