@@ -11,6 +11,3 @@
   [plugins.inputs]
     paths = ["./bin", "./rustup", "./cargo"]
 
-[build]
-  command = "if [ ! -f ./bin/bin/mdbook-toc ]; then cargo install --root ./bin mdbook-toc; fi && export PATH=$PATH:`pwd`/bin && mdbook build"
-  publish = "book"
