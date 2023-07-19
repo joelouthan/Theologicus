@@ -163,7 +163,7 @@
   - [Spirit Gives Us Peace](doctrine-christ-saves/16-spirit-gives-us-peace.md)
   - [Spirit Gives Us Growth](doctrine-christ-saves/17-spirit-gives-us-growth.md)
   - [Spirit Gives Us Life Forever](doctrine-christ-saves/18-spirit-gives-us-life-forever.md)
-  - [What Is Ours To Do]
+  - [What Is Ours To Do](doctrine-christ-saves/19-what-is-ours-to-do.md)
 
 # Commentaries
 
