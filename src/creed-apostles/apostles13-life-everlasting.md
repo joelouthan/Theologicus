@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-apostles-creed.png">
 
-# The Apostles' Creed: 
+# The Apostles' Creed: Life Everlasting
 
 ## The Creed
 
