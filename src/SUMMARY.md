@@ -469,7 +469,7 @@
   - [Psalm 102 Forever](psalms/psalm102.md)
   - [Psalm 103 Forgiving](psalms/psalm103.md)
   - [Psalm 104 Providing](psalms/psalm104.md)
-  - [Psalm 105 Promising](psalms/psalm105.md)
+  - [Psalm 105 Wondrous](psalms/psalm105.md)
   - [Psalm 106 Everlasting](psalms/psalm106.md)
   - [Psalm 107]()
   - [Psalm 108]()
