@@ -38,7 +38,7 @@
 
 ## The Belief
 
-The Apostles' Creed. This is the earliest statement of faith. The earliest written form of this creed is found in a letter that Marcellus of Ancyra wrote in Greek to Julius, the bishop of Rome, about AD 341. logos-apostles] Fifty years later, around 390, it started showing up in commentaries and books. This became the creed, the statement of faith, and was recited in church and before water baptisms of new believers.
+The Apostles' Creed. This is the earliest statement of faith. The earliest written form of this creed is found in a letter that Marcellus of Ancyra wrote in Greek to Julius, the bishop of Rome, about AD 341. Fifty years later, around 390, it started showing up in commentaries and books. This became the creed, the statement of faith, and was recited in church and before water baptisms of new believers.
 
 This creed is not just something to recite. For you to recite it means you must believe. We might be able to recite it and not give it a second thought. But back in those days, if you said this with your lips, that might mean you are accepting the most brutal persecution by the Roman government--the same government who crucified our Christ were persecuting Christians and throwing them to lions to be devoured or taking their corpses, dipping in tar, placing them on a pole to to be the source of light for nighttime parties.
 
