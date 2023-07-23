@@ -126,6 +126,16 @@ bgy {
   padding-right: 3px;
 }
 
+.bgyc {
+  display: inline-block;
+  width: 100%;
+  background-color: yellow;
+  color: black;
+  font-weight: bold;
+  padding: 3px;
+  text-align: center;
+}
+
 .contact-info img {
   margin: 0rem 0;
   float: left;
