@@ -18,9 +18,9 @@
 
 {{#include bibliography/biblio-books.md}}
 
-## Expositions
+## Confessions
 
-{{#include bibliography/biblio-expositions.md}}
+{{#include bibliography/biblio-confessions.md}}
 
 ## Commentaries
 

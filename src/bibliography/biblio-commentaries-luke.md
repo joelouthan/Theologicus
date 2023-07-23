@@ -5,7 +5,7 @@ Reformation Trust Publisher. 2020.
 
 <hr style="clear:both;">
 
-<img src="images/commentary-luke-hendriksen.jpg">The Gospel of Luke (New Testament Commentary).  
+<img src="/images/commentary-luke-hendriksen.jpg">The Gospel of Luke (New Testament Commentary).  
 William Hendriksen.  
 Baker . 1978.  
 [Goodreads](https://www.goodreads.com/book/show/2106633.Gospel_of_Luke)
