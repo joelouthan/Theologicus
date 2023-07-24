@@ -4,7 +4,8 @@
 
 - [Matthew](https://theologic.us/matthew/index.md)
 - [1689 Second London Baptist Confession](https://theologic.us/confession-1689/index.md)
-- [Christ Came to Save Sinners](https://theologic.us/doctrine-christ-saves/index.md)
+- [Christ Came to Save Sinners](https://theologic.us/doctrine-christ-saves/index.html)
+- [1 Samuel](https://theologic.us/samuel-1/index.html)
 
 ## releases
 

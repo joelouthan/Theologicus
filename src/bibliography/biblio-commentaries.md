@@ -39,3 +39,10 @@ Public Domain.
 [Goodreads](https://www.goodreads.com/book/show/18897526-gill-s-bible-commentary)
 
 <hr style="clear:both;">
+
+<img src="/images/commentary-poor-mans-hawker.jpg">Poor Man's Commentary.  
+Robert Hawker.  
+Delmarva Publications. 2013.  
+[Goodreads](https://www.goodreads.com/book/show/25370427-poor-man-s-commentary)
+
+<hr style="clear:both;">
