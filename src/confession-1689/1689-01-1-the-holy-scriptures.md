@@ -145,12 +145,74 @@ To have and preserve faith in Christ makes the holy Scriptures most necessary.
 
 Christian, want to debate on this. Try living your life for a week, completely stripped of the Holy Scriptures, and tell me where your mind and heart is at.
 
-Some of yall can tell me that because most of us don't engage in the word of God outside a pretty instagram post for months. I am not here to condemn you nor shame you. But without the Bread of Life, how do you expect to live?
+Some of you can tell me that because most of us don't engage in the word of God outside a pretty instagram post for months. I am not here to condemn you nor shame you. But without the Bread of Life, how do you expect to live?
 
 ### those former ways of God's revealing his will unto his people being now ceased
 
 >Hebrews 1:1–2 (CSB) Long ago God spoke to our ancestors by the prophets at different times and in different ways. In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
 
-TODO: [#109](https://github.com/joelouthan/Theologicus/issues/109)
+I grew up Charismatic and with that, I grew up knowing that the gifts of the Spirit were infinite and given to each believer so that we would minister to others and love our neighbor as ourselves. This command is like loving God with our hearts.
+
+>Matthew 22:37–40 (CSB) He said to him, “Love the Lord your God with all your heart, with all your soul, and with all your mind. This is the greatest and most important command. The second is like it: Love your neighbor as yourself. All the Law and the Prophets depend on these two commands.”
+
+Here is the thing: I have accepted a lot of Charismatic doctrine as belief. Granted, I was not born again when I was in Charismatic churches--I was not saved and did not have the Triune God dwelling in me--therefore, I could not understand nor believe any doctrine that I heard or read.
+
+It was not until several years ago, I started to take my common beliefs about Charismatic doctrine and press that up against the Bible because we are instructed to do. Most known spiritual gifts I could teach from the Bible. All spiritual gifts are not of us but of the Spirit. Gifts of healing and miracles are not of us but of God alone. [^strawman] So that is easily taught from the Bible.
+
+There is one gift that irked me: prophecy. In most Charismatic circles is taught as either an word of encouragement all the way into soothsaying and fortune telling. But what does the word of God say about prophecy?
+
+>1 Corinthians 14:3 (CSB) But the person who prophesies speaks to people for their strengthening, encouragement, and consolation.
+
+>1 Corinthians 14:31 (CSB) For you can all prophesy one by one, so that everyone may learn and everyone may be encouraged.
+
+And
+
+>1 Corinthians 13:8–10 (CSB) Love never ends. But as for prophecies, they will come to an end; as for tongues, they will cease; as for knowledge, it will come to an end. For we know in part, and we prophesy in part, but when the perfect comes, the partial will come to an end.
+
+Any Charismatic could quote you 1 Corinthians chapters 12 to 14. But the following passage is what captured my attention:
+
+>1 Thessalonians 5:19-21 (CSB) Don’t stifle the Spirit. Don’t despise prophecies, but test all things. Hold on to what is good.
+
+I have heard this used by Charismatic don't stifle the Spirit and don't despise prophecies. But in all the years I have seen prophecy done, I have never seen a prophecy given that was tested against the word of God.
+
+Old Testament prophecy is easy to test. If the prophecy does not come true, then the prophet is a false prophet. But remember, ultimately, all of the Old Testament was prophesying about the coming Messiah.
+
+Since Christ has come to save his people from their sins, what of prophecy now?
+
+Prophecy in the Old Testament was literally the preaching of the word given to man by God. That prophetic word is now written in the Bible. Since Christ has come, all prophecy and prophesying is now the preaching of the word of God. It is literally preaching what Christ has done for us.
+
+In other words, in the absolute sense of the word, prophesying is the preaching of the gospel of God.
+
+Go back and read every NT passage about prophecy and prophesying and see if it still stands up to the test.
+
+>1 Corinthians 14:3 (CSB) But the person who prophesies speaks to people for their strengthening, encouragement, and consolation.
+
+Preaching of the word of God and the preaching of the gospel done right is this! It is the strengthening, encouragement, and consolation of the saints.
+
+>1 Corinthians 14:31 (CSB) For you can all prophesy one by one, so that everyone may learn and everyone may be encouraged.
+
+Preaching of the word of God and the preaching of the gospel done right is this! It is the learning and encouragement of the saints.
+
+>1 Corinthians 13:8–10 (CSB) Love never ends. But as for prophecies, they will come to an end; as for tongues, they will cease; as for knowledge, it will come to an end. For we know in part, and we prophesy in part, but when the perfect comes, the partial will come to an end.
+
+Preaching of the word of God and the preaching of the gospel done right is this! There will be a day when preaching will come to an end because we will behold the face of our sweet Savior!
+
+>1 Thessalonians 5:19-21 (CSB) Don’t stifle the Spirit. Don’t despise prophecies, but test all things. Hold on to what is good.
+
+Preaching of the word of God and the preaching of the gospel done right is this! Preach the word of God and proclaim the gospel rightly and your people can easily test your preaching against the word. In other words, you are not out here giving sport analogies, life coaching tips, business wisdom, some kind of TED talk or how to live your best life. No! We are to preach Christ crucified! (1 Corinthians 1:23)
+
+And surely, I am not the only one who discovered this. I stand on the shoulders of the giants before me. Because, this is how the Church defined prophecy since the Apostles. For them prophecy in the NT church was always preaching. It does not make sense otherwise.
+
+And just how important is preaching? For we know that:
+
+>Romans 10:17 (CSB) So faith comes from what is heard, and what is heard comes through the message about Christ.
+
+Just how important is preaching the word of God, the full counsel of God, and the gospel of our risen Christ.
+
+Christ, in his preaching at Satan, said this:
 
 >Matthew 4:4 (CSB) He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
+
+In other words, the word of God--the Bible--is the mouth of God. God has spoken and has done so in his word. Are we listening?
+
+[^strawman]: I do hate this seemingly strawman argument from Cessationists against the Charismatics because no Charismatic would claim that they are the ones who healed the sick or performed miracles. If they did make that claim, they would be false shepherds. But I digress.
