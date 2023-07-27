@@ -73,8 +73,29 @@ Is there a lot of God in you preaching?
 
 This is what your preaching should look like. Not your opinions, ideas, hot takes, quips, culture observations, what you watched on TV the other night. The weight, the bulk, the heaviness, the awe, the amount, the heaviest lifting in your sermons needs to be about God and God alone!
 
-## What is Preaching: TODO:
+>You may not have the biggest nor the largest church in town, but you can preach the biggest God.
+>
+>Lawson.
 
+Are you a big God preacher?
 
+Piper preaching on Isaiah 6--no application. Just God!
 
-## What is Preaching: 
+## What is Preaching: Experiential
+
+Begins with teaching--but goes deeper to the heart, soul, spirit, and the will. Must lead to a real life experience with God and behold the face of God!
+
+In other words, you must address the whole person.
+
+Do your people know the truth or do they *love* the truth?
+
+Doctrine -> Duty
+
+Romans 1-11 -> Romans 12-16  
+Ephesians 1-3 -> Ephesians 4-6
+
+First, we teach. Then we preach. Instruct then exhortation.
+
+## What is Preaching: Earnest
+
+TODO: 22:13
