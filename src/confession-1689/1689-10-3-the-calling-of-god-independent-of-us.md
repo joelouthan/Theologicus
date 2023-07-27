@@ -18,9 +18,11 @@
 
 >Matthew 6:33 (CSB) But seek first the kingdom of God and his righteousness, and all these things will be provided for you.
 
+
+
 ### who worketh when, and where, and how he pleases
 
-TODO: write this
+
 
 >John 3:8 (CSB) The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.”
 

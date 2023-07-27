@@ -1,6 +1,6 @@
-<img class="intro-right" src="/images/art-darkness-crucifixion-dore.jpg">
+<img class="intro-right" src="/images/book-ccss-3.jpg">
 
-# Christ Came To Save Sinners, An Introduction & Resources
+# Christ Came to Save Sinners, An Introduction & Resources
 
 *An Exposition of 1 Timothy 1:15 concerning the Order of Salvation*
 
@@ -30,7 +30,7 @@ This is that new series. Lots of work and a little bit of writing and re-writing
 
 ## The Resources
 
-<img class="intro-right" src="/images/art-darkness-crucifixion-dore.jpg" hidden>
+<img class="intro-right" src="/images/book-ccss-3.jpg" hidden>
 
 {{#include ../bibliography/biblio-books.md}}
 
