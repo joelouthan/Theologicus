@@ -2,6 +2,8 @@
 
 # 1689 Second London Baptist Confession of Faith With Scripture Proofs
 
+## Table of Contents
+
 <!-- toc -->
 
 ## Prelude
