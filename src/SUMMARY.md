@@ -245,7 +245,6 @@
   - [Genesis 48:1-22 The Gospel Kingdom]()
   - [Genesis 49-50:14 The Gospel Healing]()
   - [Genesis 50:15-26 The Gospel Mercies]()
-
 - [Exodus]()
 - [Leviticus]()
 - [Numbers]()
