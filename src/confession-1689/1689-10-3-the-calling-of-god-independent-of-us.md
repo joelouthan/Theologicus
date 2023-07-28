@@ -18,7 +18,7 @@
 
 >Matthew 6:33 (CSB) But seek first the kingdom of God and his righteousness, and all these things will be provided for you.
 
-
+TODO:
 
 ### who worketh when, and where, and how he pleases
 
