@@ -31,13 +31,19 @@ I remember that this graphic made its way into Evangelical blogosphere and some 
 
 Without taking the painstaking task of diffusing and unraveling each of these apparent contradictions, I was struck at this one thought:
 
-You would study the Bible to find proof that the Bible is just a human-created piece of literature but completely miss the fact that the Bible speaks about Jesus:
+You would study the Bible to find proof that the Bible is just a human-created piece of literature but completely miss the fact that the Bible speaks about Jesus.
 
 >John 5:39 (CSB) You pore over the Scriptures because you think you have eternal life in them, and yet they testify about me.
 
 ... and we cannot understand the Bible unless the Spirit of God reveals it.
 
 >1 Corinthians 2:12 (CSB)  Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God.
+
+John Calvin succinctly puts it:
+
+>God's word is like the sun: it sheds its light on all to whom it is proclaimed, but it has no effect on the blind. [^calvin-scriptures]
+
+[^calvin-scriptures]: John Calvin. [Institutes of the Christian Religion: Calvin's Own 'Essentials' Edition](https://www.goodreads.com/book/show/23306187-institutes-of-the-christian-religion). 199.
 
 Jesus, Son of God who is God, declared that the Scriptures were about him:
 
