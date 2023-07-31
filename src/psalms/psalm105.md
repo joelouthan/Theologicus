@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
-# Psalm 105 Wondrous
+# Praying Through: Psalm 105 Wondrous
 
 ## The Psalm
 

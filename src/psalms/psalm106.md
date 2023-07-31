@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
-# Psalm 106 Everlasting
+# Praying Through: Psalm 106 Everlasting
 
 ## The Psalm
 

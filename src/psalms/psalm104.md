@@ -1,4 +1,6 @@
-# Psalm 104 Providing
+<img class="intro-right" src="/images/art-paris-psalter.jpg">
+
+# Praying Through: Psalm 104 Providing
 
 ## The Psalm
 
