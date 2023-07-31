@@ -118,6 +118,11 @@ h6:target::before {
     text-decoration: none;
 }
 
+.poetry {
+  white-space: pre-line;
+  white-space: pre;
+}
+
 bgy {
   background-color: yellow;
   color: black;
