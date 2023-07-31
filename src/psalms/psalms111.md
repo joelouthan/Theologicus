@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
-# Praying Through: Psalm
+# Praying Through: Psalm 111
 
 ## The Psalm
 
@@ -13,4 +13,3 @@ Lord
 <div class="poetry">
 
 </div>
- 111
