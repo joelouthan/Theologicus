@@ -32,6 +32,13 @@ Reformation Heritage Books. 2017.
 
 <hr style="clear:both;">
 
+<img src="/images/theology-institutes-1541-calvin-white.jpg">Institutes of the Christian Religion: Calvin's Own 'Essentials' Edition.  
+John Calvin. Robert White (Translator).  
+Banner of Truth. 2014.  
+[Goodreads](https://www.goodreads.com/book/show/23306187-institutes-of-the-christian-religion)
+
+<hr style="clear:both;">
+
 <img src="/images/theology-reformed-dogmatics-bavinck.jpg">Reformed Dogmatics.  
 Herman Bavinck, John Bolt (Editor), John Vriend (Translator).  
 Baker Academic. 2003.  
