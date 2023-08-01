@@ -6,7 +6,7 @@
 
 So why start up a new series? Do I need another series like I need another hole in my head? Perhaps.
 
-We moved to Kentucky from Oklahoma in early 2022 with my in-laws coming with. I started this series in anticipation that we might not find a local church instantly (Note: despite the published date, I am writing this on October 15, 2022. In short, God provided quickly. Praise be to God. - Ed.) and wanted to be prepared from the jump not going to church for a long while. Keeping it all the way real with you: I knew my in-laws would be slow going to church and wanted to provide the word of God to them. [^prayer]
+We moved to Kentucky from Oklahoma in early 2022 with my in-laws coming with. I started this series in anticipation that we might not find a local church instantly and wanted to be prepared from the jump not going to church for a long while. Keeping it all the way real with you: I knew my in-laws would be slow going to church and wanted to provide the word of God to them. [^prayer]
 
 We did end up finding a church April and have been faithfully attending. It was God's grace I started this series and his grace, I will finish it.
 
@@ -139,4 +139,4 @@ Lexham Academic. 2023.
 
 <hr style="clear:both;">
 
-[^prayer]: As of writing this, my in-laws have not found a church. But I do want to praise my God because for the last two weeks, they have been popping out of bed to get to church. Praise be to God!
+[^prayer]: Note: despite the published date, I am writing this on October 15, 2022. In short, God provided quickly. Praise be to God. And as of writing this, my in-laws have not found a church. But I do want to praise my God because for the last two weeks, they have been popping out of bed to get to church. Praise be to God!
