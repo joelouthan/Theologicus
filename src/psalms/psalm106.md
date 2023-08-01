@@ -107,10 +107,9 @@
 Lord
 </div>
 
-<div class="poetry">
 You are the my prosperity!
   what else do I need or want?
-  I have flee to my own desires and passions
+  I have flee to my own desires and  passions
   and they have left me
   wanting.
 
@@ -143,4 +142,3 @@ And I love you
   always.
 
 Amen.
-</div>

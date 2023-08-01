@@ -118,9 +118,15 @@ h6:target::before {
     text-decoration: none;
 }
 
-.poetry {
-  white-space: pre-line;
+.psalm {
   white-space: pre;
+  overflow: hidden;
+  margin: 20px 0;
+  padding: 0 20px 20px;
+  color: var(--fg);
+  background-color: var(--quote-bg);
+  border-top: .1em solid var(--quote-border);
+  border-bottom: .1em solid var(--quote-border);
 }
 
 bgy {

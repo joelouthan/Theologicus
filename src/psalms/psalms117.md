@@ -10,7 +10,4 @@
 Lord
 </div>
 
-<div class="poetry">
-
-</div>
  117

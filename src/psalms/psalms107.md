@@ -97,6 +97,3 @@
 Lord
 </div>
 
-<div class="poetry">
-
-</div>
