@@ -14,12 +14,14 @@ The Old Testament, all 39 books, are filled with history, explanation, promises,
 
 We read in the beginning in Genesis where God made everything perfect including Adam and Eve, our original parents. However, Satan came to steal, kill, and destroy their lives--and believe me, Satan did that perfect.
 
-Look at the response of the Almighty God. God, well within his rights, could have up and did a reset on creation0--which was now falling apart at the seams. He did not. He could have easily killed the serpent, Adam, and Eve--for he promised and explained that if we disobey, we would died. He did not kill them. He could have come down to wage war with flaming swords, head on fire, and cloak dipped in blood to spill out his wrath on Satan and mankind. He did not.
+Look at the response of the Almighty God. God, well within his rights, could have up and did a reset on creation--which was now falling apart at the seams. He did not. He could have easily killed the serpent, Adam, and Eve--for he promised and explained that if we disobey, we would died. He did not kill them. He could have come down to wage war with flaming swords, head on fire, tattoos on his thigh and cloak dipped in blood to spill out his wrath on Satan and mankind. He did not.
+
+### The Good News: God comes into our lives
 
 >Genesis 3:8–15 (CSB)  
 ><sup> 8 </sup> Then the man and his wife heard the sound of the LORD God walking in the garden at the time of the evening breeze, and they hid from the LORD God among the trees of the garden.
 
-### The Good News: God comes into our lives gently
+### The Good News: God calls us
 
 ><sup> 9 </sup> So the LORD God called out to the man and said to him, “Where are you?”
 
@@ -45,7 +47,7 @@ For women, life will be brutally difficult. Men, life is going to be brutally di
 
 Yet...
 
-### The Good News: God promises He will come to make it right
+### The Good News: God promises he will come to make it right
 
 To the serpent:
 
@@ -61,7 +63,7 @@ What you will also get is more of our sin, our wickedness, our worthlessness, ou
 
 The more you read from Genesis to Exodus through Samuel, Kings, Chronicles, through the Psalms, into Isaiah, Jeremiah, Lamentations--our death because our sin is most apparent.
 
-And maybe, by the time you get the end of the Old Testament, you will have start asking yourself, like the Apostle Paul in the Romans 7:24:
+And maybe, by the time you get the to the Prophets and unto the end of the Old Testament. Especially reading through Isaiah, Jeremiah, Lamentations, Ezekiel, Daniel, Hosea, Joel all the way to Malachi. When you see the judgments called upon wicked nations and the people of God being sent into exile. When you keep seeing the gospel proclaimed and the Messiah prophecied and God will make right, but where is he? Every engagement with the Old Testament is like the Apostle Paul asking himself in the Romans 7:24:
 
 >Wretched man that I am! Who will save me from this body of death?
 

@@ -25,10 +25,13 @@ But he would not do it out of thin air or out of the clouds, although he is God 
 
 He was going to send his Son to be "with us" and in a way through us. This was from the very beginning:
 
->Genesis 3:15 (CSB) I will put hostility between you and the woman,
+<div class="psalm">
+Genesis 3:15 (CSB) I will put hostility between you and the woman,
 and between your offspring and her offspring.
 He will strike your head,
 and you will strike his heel.
+</div>
+
 
 So from this first gospel preaching, we knew that our Messiah would be born into this world. But try to imagine how we would send the Savior?
 
@@ -38,10 +41,11 @@ He would be born of royalty (that is a future devotion) but a bloodline not wort
 
 Look at the list of his family:
 
-- Literally pimps his wife not once but twice for fear of his own life
-- Son does the same thing
-- Grandson, whose name means "trickster", steals his brother's inheritance and runs for the hills
-- Sleeps with a prostitute, who was his son's widow, impregnating her with twins
+- Abraham gives his wife out not once but twice for fear of his own life
+- Commits adultery because he did not trust the promises of God
+- his son, Isaac, does the same thing
+- his son, Jacob, whose name means "trickster", steals his brother's inheritance and runs for the hills
+- his son, Judah, sleeps with a prostitute, who was his son's widow, impregnating her with twins
 - Prostitute
 - Used to be a child-sacrificing demon worshiper whose descendants were born out of incest
 - a finally, a king who would rape a woman and then when she gets pregnant, turns and murders her husband
@@ -49,6 +53,8 @@ Look at the list of his family:
 The worst of the worst.
 
 But who did Christ come for? The righteous? The wealthy? The healthy? The perfect ones?
+
+>Mark 2:16-17 (CSB) When the scribes who were Pharisees saw that he was eating with sinners and tax collectors, they asked his disciples, “Why does he eat with tax collectors and sinners? ” When Jesus heard this, he told them, “It is not those who are well who need a doctor, but those who are sick. I didn’t come to call the righteous, but sinners.”
 
 No. He came for the sinners, the poor, the sick, and the depraved.
 
