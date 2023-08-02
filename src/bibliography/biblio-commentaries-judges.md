@@ -1,3 +1,10 @@
+<img src="/images/commentary-judges-davis.jpg">Judges: Such a Great Salvation.  
+Dale Ralph Davis.  
+Christian Focus. 2015.  
+[Goodreads](https://www.goodreads.com/book/show/1634392.Judges)
+
+<hr style="clear:both;">
+
 <img src="/images/commentary-totc-judges-ruth-cundall-morris.jpg">Judges and Ruth: An Introduction and Commentary (Tyndale Old Testament Commentary)  
 by Arthur E. Cundall & Leon L. Morris.  
 IVP Academic. June 1, 1968.  

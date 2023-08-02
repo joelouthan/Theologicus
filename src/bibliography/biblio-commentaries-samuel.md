@@ -5,13 +5,6 @@ P & R Publishing. 2012.
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-judges-davis.jpg">Judges: Such a Great Salvation.  
-Dale Ralph Davis.  
-Christian Focus. 2015.  
-[Goodreads](https://www.goodreads.com/book/show/1634392.Judges)
-
-<hr style="clear:both;">
-
 <img src="/images/commentary-samuel-kings-chronicles-cooper.jpg">1-2 Samuel, 1-2 Kings, 1-2 Chronicles (OT Volume 5) (Reformation Commentary on Scripture).  
 Derek Cooper & Martin J. Lohrmann (Editors).  
 IVP Academic. 2016.  
