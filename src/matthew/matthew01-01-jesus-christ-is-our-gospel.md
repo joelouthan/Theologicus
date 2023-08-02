@@ -14,7 +14,9 @@ The Old Testament, all 39 books, are filled with history, explanation, promises,
 
 We read in the beginning in Genesis where God made everything perfect including Adam and Eve, our original parents. However, Satan came to steal, kill, and destroy their lives--and believe me, Satan did that perfect.
 
-Look at the response of the Almighty God. God, well within his rights, could have up and did a reset on creation--which was now falling apart at the seams. He did not. He could have easily killed the serpent, Adam, and Eve--for he promised and explained that if we disobey, we would died. He did not kill them. He could have come down to wage war with flaming swords, head on fire, tattoos on his thigh and cloak dipped in blood to spill out his wrath on Satan and mankind. He did not.
+Look at the response of the Almighty God. God, well within his rights, could have up and did a reset on creation--which was now falling apart at the seams. He did not. He could have easily killed the serpent, Adam, and Eve--for he promised and explained that if we disobey, we would died. He did not kill them. He could have come down to wage war with flaming swords, head on fire, tattoos on his thigh and cloak dipped in blood to spill out his wrath on Satan and mankind (Revelation 21). He did not come down with wrath.
+
+How did God respond to our sin and the breaking of his good creation and the death of his very good imagebearers?
 
 ### The Good News: God comes into our lives
 
@@ -57,13 +59,13 @@ This is the first instance in the Bible of the preaching of the gospel. Despite 
 
 The name, "Jesus" and the title, "Christ", will not appear for over 23,000 verses.
 
-What you will get promises of him. What you will get is foreshadows of him. What you will get is prophecies of him.
+What you will get in those 23,000 verses are promises of Christ. What you will get is foreshadows of him. What you will get is prophecies and preaching and proclamations of the Messiah who is to come.
 
 What you will also get is more of our sin, our wickedness, our worthlessness, our chaos, and our death.
 
 The more you read from Genesis to Exodus through Samuel, Kings, Chronicles, through the Psalms, into Isaiah, Jeremiah, Lamentations--our death because our sin is most apparent.
 
-And maybe, by the time you get the to the Prophets and unto the end of the Old Testament. Especially reading through Isaiah, Jeremiah, Lamentations, Ezekiel, Daniel, Hosea, Joel all the way to Malachi. When you see the judgments called upon wicked nations and the people of God being sent into exile. When you keep seeing the gospel proclaimed and the Messiah prophecied and God will make right, but where is he? Every engagement with the Old Testament is like the Apostle Paul asking himself in the Romans 7:24:
+And maybe, by the time you get the to the Prophets and unto the end of the Old Testament. Especially reading through Isaiah, Jeremiah, Lamentations, Ezekiel, Daniel, Hosea, Joel all the way to Malachi. When you see the judgments called upon wicked nations and the people of God being sent into exile. When you keep seeing the gospel proclaimed and the Messiah prophesied and God will make right, but where is he? Every engagement with the Old Testament is like the Apostle Paul asking himself in the Romans 7:24:
 
 >Wretched man that I am! Who will save me from this body of death?
 
