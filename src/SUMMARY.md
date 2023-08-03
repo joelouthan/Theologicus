@@ -263,7 +263,7 @@
   - [Ruth 4:1-10 God Redeems Us, Part 1](ruth/ruth4-1-10.md)
   - [Ruth 4:11-22 God Redeems Us, Part 2](ruth/ruth4-11-22.md)
 - [1 Samuel](samuel-1/index.md)
-- [2 Samuel]()
+- [2 Samuel](samuel-2/index.md)
 - [1 Kings]()
 - [2 Kings]()
 - [1 Chronicles]()
