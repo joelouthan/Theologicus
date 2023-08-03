@@ -4,7 +4,7 @@
 
 ## The Text
 
->Matthew 1:7–12 (CSB)  
+>Matthew 1:7–11 (CSB)  
 ><sup>7</sup> Solomon fathered Rehoboam, Rehoboam fathered Abijah, Abijah fathered Asa,
 >
 ><sup>8</sup> Asa fathered Jehoshaphat, Jehoshaphat fathered Joram, Joram fathered Uzziah,
