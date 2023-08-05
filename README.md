@@ -21,8 +21,8 @@
 
 ## running
 
-![Static Badge](https://img.shields.io/badge/mdbook-0.4.33-navy?style=for-the-badge&logo=rust&logoColor=black&link=https%3A%2F%2Fgithub.com%2Frust-lang%2FmdBook)
-![Static Badge](https://img.shields.io/badge/mdbook--toc-0.14.0-orange?style=for-the-badge&logo=rust&logoColor=black&link=https%3A%2F%2Fgithub.com%2Fbadboy%2Fmdbook-toc)
+![mdbook](https://img.shields.io/crates/v/mdbook?style=for-the-badge&logo=Rust&label=mdbook)
+![mdbook-toc](https://img.shields.io/crates/v/mdbook-toc?style=for-the-badge&logo=Rust&label=mdbook-toc)
 
 ## using
 
