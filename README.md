@@ -19,6 +19,11 @@
 - v2.1 (2021 Apr 29) [The Gospel of Luke](https://theologic.us/luke/index.md)
 - v2.0 (2020 Apr 20) [Migrated from Wordpress to Hugo](https://github.com/joelouthan/theologic.us)
 
+## running
+
+![Static Badge](https://img.shields.io/badge/mdbook-0.4.33-navy?style=for-the-badge&logo=rust&logoColor=black&link=https%3A%2F%2Fgithub.com%2Frust-lang%2FmdBook)
+![Static Badge](https://img.shields.io/badge/mdbook--toc-0.14.0-orange?style=for-the-badge&logo=rust&logoColor=black&link=https%3A%2F%2Fgithub.com%2Fbadboy%2Fmdbook-toc)
+
 ## using
 
 [![tools](https://skillicons.dev/icons?i=vscode,vim,rust,md,css,html,bash,git,github,netlify,linux)]()
