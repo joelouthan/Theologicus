@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-david.jpg">
 
-# 1st Samuel: An Introduction & Resources
+# 1 Samuel: An Introduction & Resources
 
 ## The Introduction
 
