@@ -297,7 +297,6 @@
   - [1 Samuel 29]()
   - [1 Samuel 30]()
   - [1 Samuel 31]()
-  - [1 Samuel](samuel-1/samuel-1-)
 - [2 Samuel](samuel-2/index.md)
 - [1 Kings]()
 - [2 Kings]()
