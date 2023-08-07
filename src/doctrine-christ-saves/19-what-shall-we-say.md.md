@@ -1,3 +1,3 @@
 <img class="intro-right" src="/images/book-ccss-3.jpg">
 
-# What is Ours to Do?
+# What Shall We Say to These Things?
