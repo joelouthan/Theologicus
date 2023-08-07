@@ -37,15 +37,19 @@ God saved us because He simply saw us and He chose us to be with Him forever.
 >
 ><sup> 10 </sup> as a plan for the right time—to bring everything together in Christ, both things in heaven and things on earth in him.
 
-Take a look at this passage: “Blessed be the God and Father of our Lord Jesus Christ, who has blessed us in Christ with every spiritual blessing in the heavenly places, even as he chose us in him before the foundation of the world…”Paul is exhorting us that God is blessed and God has definitely blessed us with every spiritual blessing in the heavenly places. However, for our sake and our thinking is contained within the element of time (while God is not), those blessings did not start with us, within the family we were born, the place in the world where we grew up, nor the people we know although we do know God purposely chooses all of that for us so that we “should seek God, and perhaps feel their way toward him and find him.”  It started before the foundations of the earth were laid and even before time and space were spoken into existence. It started before Genesis 1:1.
+Take a look at this passage: “Blessed be the God and Father of our Lord Jesus Christ, who has blessed us in Christ with every spiritual blessing in the heavenly places, even as he chose us in him before the foundation of the world…” Paul is exhorting us that God is blessed and God has definitely blessed us with every spiritual blessing in the heavenly places. However, for our sake and our thinking is contained within the element of time (while God is not), those blessings did not start with us, within the family we were born, the place in the world where we grew up, nor the people we know although we do know God purposely chooses all of that for us so that we “should seek God, and perhaps feel their way toward him and find him.” (Acts 17:27)  It started before the foundations of the earth were laid and even before time and space were spoken into existence. It started before Genesis 1:1.
 
-There is no doubt we grow up in a world that certainly celebrates self-accomplishments especially when you have come from nothing. We love the pull-up-from-our-bootstraps stories. Just be born, work hard, and surely good things will come your way. We sometimes think that God loves and adores us not because of everything He has done for us but rather what we have done for him lately. And that is how most of us understand our salvation in Christ. It *has*to be because of what I did first. Why else would he love me?
+There is no doubt we grow up in a world that certainly celebrates self-accomplishments especially when you have come from nothing. We love the pull-up-from-our-bootstraps stories. Just be born, work hard, and surely good things will come your way. We sometimes think that God loves and adores us not because of everything He has done for us but rather what we have done for him lately. And that is how most of us understand our salvation in Christ. It *has* to be because of what I did first. Why else would he love me?
 
 Or flip it the other way: I have done so well all of my life. I did the right things. I voted the right way. I am fighting for social justice. I am on the right side of history. See me! See that I am good. God loves me, saves me, and will bless me because I do good! Despite the fact that Romans 4 adamantly declares that we do not put God into our debt.
 
 The argument of “From eternity past, God saw me and saw that I choose him.” We know that Romans 5:8 says otherwise.
 
-Jesus said it distinctly, “You did not choose me, but I chose you and appointed you that you should go and bear fruit and that your fruit should abide, so that whatever you ask the Father in my name, he may give it to you.”
+>Romans 5:8 (CSB)  But God proves his own love for us in that while we were still sinners, Christ died for us.
+
+Jesus said it distinctly:
+
+>John 15:16 (CSB) You did not choose me, but I chose you. I appointed you to go and produce fruit and that your fruit should remain, so that whatever you ask the Father in my name, he will give you.
 
 We are saved for His glory. And this started with Him choosing us from a long, long time ago. Not because He predestined us to lest we believe that we are saved by election alone.
 
