@@ -146,8 +146,8 @@
 
 - [Christ Came To Save Sinners](doctrine-christ-saves/index.md)
   - [Behold Our God](doctrine-christ-saves/01-behold-our-god.md)
-  - [The Weight of Our Sin](doctrine-christ-saves/02-the-weight-of-our-sin.md)
-  - [The Perfection of His Word](doctrine-christ-saves/03-the-perfection-of-his-word.md)
+  - [The Perfection of His Word](doctrine-christ-saves/02-the-perfection-of-his-word.md)
+  - [The Weight of Our Sin](doctrine-christ-saves/03-the-weight-of-our-sin.md)
   - [The Love of God](doctrine-christ-saves/04-the-love-of-god.md)
   - [The Covenant of God](doctrine-christ-saves/05-the-covenant-of-god.md)
   - [The Power of God](doctrine-christ-saves/06-the-power-of-god.md)
