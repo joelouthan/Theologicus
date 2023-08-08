@@ -10,3 +10,7 @@
 **My sin, not in part but the whole**  
 **Is nailed to the cross, and I bear it no more**  
 **Praise the Lord, praise the Lord, o my soul!**
+
+## The Devotion
+
+## The Scriptures

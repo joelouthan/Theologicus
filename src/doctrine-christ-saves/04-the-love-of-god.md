@@ -2,3 +2,8 @@
 
 # The Love of God
 
+## The Text
+
+## The Devotion
+
+## The Scriptures
