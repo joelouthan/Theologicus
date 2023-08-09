@@ -21,8 +21,8 @@
 
 ## running
 
-![mdbook](https://img.shields.io/crates/v/mdbook?style=for-the-badge&logo=Rust&label=mdbook)
-![mdbook-toc](https://img.shields.io/crates/v/mdbook-toc?style=for-the-badge&logo=Rust&label=mdbook-toc)
+![Crates.io](https://img.shields.io/crates/v/mdbook)
+![Crates.io](https://img.shields.io/crates/v/mdbook-toc)
 
 ## using
 
@@ -30,5 +30,5 @@
 
 ## contact me
 
-[![Cell](https://img.shields.io/badge/SMS-joseph-437790?style=for-the-badge&logo=Apple)](sms:8177071486)
-[![Email](https://img.shields.io/badge/Email-joseph-success?style=for-the-badge&logo=Minutemailer)](mailto:joe@theologic.us)
+[![Cell](https://img.shields.io/badge/SMS-joseph-437790?style=flat-square&logo=Apple)](sms:8177071486)
+[![Email](https://img.shields.io/badge/Email-joseph-success?style=flat-square&logo=Minutemailer)](mailto:joe@theologic.us)
