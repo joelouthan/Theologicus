@@ -98,4 +98,35 @@ First, we teach. Then we preach. Instruct then exhortation.
 
 ## What is Preaching: Earnest
 
-TODO: 22:13
+Serious. Reverence. Awe. Comes from a man who fears God. Growing in the fear of God.
+
+Never outgrow but grow in the fear of God. NASB: *Solemnly testifying*
+
+>2 Corinthians 6:2–10 (CSB)  
+><sup>2</sup> For he says: At an acceptable time I listened to you, and in the day of salvation I helped you. See, now is the acceptable time; now is the day of salvation! 
+>
+><sup>3</sup> We are not giving anyone an occasion for offense, so that the ministry will not be blamed. 
+>
+><sup>4</sup> Instead, as God’s ministers, we commend ourselves in everything: by great endurance, by afflictions, by hardships, by difficulties, 
+>
+><sup>5</sup> by beatings, by imprisonments, by riots, by labors, by sleepless nights, by times of hunger, 
+>
+><sup>6</sup> by purity, by knowledge, by patience, by kindness, by the Holy Spirit, by sincere love, 
+>
+><sup>7</sup> by the word of truth, by the power of God; through weapons of righteousness for the right hand and the left, 
+>
+><sup>8</sup> through glory and dishonor, through slander and good report; regarded as deceivers, yet true; 
+>
+><sup>9</sup> as unknown, yet recognized; as dying, yet see—we live; as being disciplined, yet not killed; 
+>
+><sup>10</sup> as grieving, yet always rejoicing; as poor, yet enriching many; as having nothing, yet possessing everything.
+
+OT: Prophets carried the burden of the Lord.
+
+Preach in the presence of God.
+
+Preach as if you are preaching to God.
+
+Preach to get your Amen from God.
+
+Preach in the face of God.
