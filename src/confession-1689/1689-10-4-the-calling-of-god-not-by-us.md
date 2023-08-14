@@ -60,7 +60,96 @@ But for his people, to the believer, to you and I, God saves us and holds us to 
 
 And that is the hard truth we must know of God: God saves whom he will save.
 
+And immediately, one might think, "Why doesn't he just save everyone?"
 
+But we know:
+
+>Romans 3:10–12 (CSB) as it is written: There is no one righteous, not even one. There is no one who understands; there is no one who seeks God. All have turned away; all alike have become worthless. There is no one who does what is good, not even one.
+
+And
+
+>Romans 3:23 (CSB) For all have sinned and fall short of the glory of God;
+
+We have all sinned mightily and completely against the Holy One of God. That sin deserves death.
+
+We didn't know that because we are ignorant in our trespasses and sins. But God knew this because our sin is against him. And the breaking of the holy and righteous has introduced sin into his creation.
+
+>For the wages of sin is death
+
+We don't our mistakes to have consequences or perhaps, ease up on the consequences. Or we want to think that our mistakes are not that bad--sometimes harmless.
+
+But our mistakes have consequences. The bigger the mistake, the more severe the consequence. When we sin, we sin against either God himself or against the creation he created in his likeness and image--mankind. Which is still sin against God ultimately.
+
+But I have some good news to this bad news:
+
+>Romans 6:23 (CSB) For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
+
+God knew. God knew we were far because he knows our hearts. God knew we were too far from him and we were utterly helpless in getting back to him. God knew this.
+
+God knew this and he knew that. He knew that the wages of sin is death. And he knew that we would die in our sins and be apart from him forever. He saw the wickedness of our state and then sent his Son not only to live for us but to conquer sin and hell and Satan and demons by dying for us. Not only to die for us but to resurrect back to live and conquer death for us. Not only to resurrect for us but to ascend to the heavens in power to the right hand of the Father in order to intercede for us and rule and reign over all of creation.
+
+>Romans 8:30 (CSB) And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
+
+So what shall we say to these things?
+
+>Romans 9:15 (CSB) For he tells Moses, I will show mercy to whom I will show mercy, and I will have compassion on whom I will have compassion.
+
+God is both perfectly in kindness and in wisdom. This plan of salvation? No way could we have concocted this scheme! How do I know? If we came up with the plan of salvation, then somehow, someway, we would make ourselves the hero of the story.
+
+But in fact, we are not the hero of the story. We are the helpless ones, rotting in the dungeon of our own filth and iniquity. We are but skin and bones--it's a wonder how our manacles haven't slipped off our wrists and ankles because we are so skinny, weak, and frail. We are far from the heroes but we are the madmen, locked in a bottomless dungeon with our own feces, piss, and vomit, dwelling in the mess that we have made.
+
+But you have best look at our God!
+
+For here is love:
+
+>Genesis 3:15 (CSB) I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
+
+And here is love: 
+
+>Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+
+And here is love:
+
+>2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+
+And here is love:
+
+>Ezekiel 11:19–20 (CSB) I will give them integrity of heart and put a new spirit within them; I will remove their heart of stone from their bodies and give them a heart of flesh, so that they will follow my statutes, keep my ordinances, and practice them. They will be my people, and I will be their God.
+
+And here is love:
+
+>John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+
+And here is love:
+
+>Romans 8:1 (CSB) Therefore, there is now no condemnation for those in Christ Jesus,
+
+And here is love:
+
+>Romans 8:38–39 (CSB) For I am persuaded that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
+
+And here is love:
+
+>Romans 9:25-26 (CSB) As it also says in Hosea,  
+>I will call Not My People, My People,  
+>and she who is Unloved, Beloved.  
+>And it will be in the place where they were told,  
+>you are not my people,  
+>there they will be called sons of the living God.
+
+And here is love:
+
+>1 John 4:10 (ESV) In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.
+
+And here is love!
+
+>Romans 5:8 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us.
+
+Christ has not come for the heroes of the story--the strong, the brave, the might!
+
+Christ has come for the sick and sinner!
+
+Christ has come to save his people!
 
 ### much less can men that do not receive the Christian religion be saved; be they never so diligent to frame their lives according to the light of nature and the law of that religion they do profess.
 
@@ -69,3 +158,13 @@ And that is the hard truth we must know of God: God saves whom he will save.
 >John 4:22 (CSB) You Samaritans worship what you do not know. We worship what we do know, because salvation is from the Jews.
 
 >John 17:3 (CSB) This is eternal life: that they may know you, the only true God, and the one you have sent—Jesus Christ.
+
+It is not the church nor the pastor nor denomination nor the movement nor the theology nor your parents nor your family nor your baptism in water nor your filling of the Spirit nor anything is what saves you to God.
+
+God alone saves us to God.
+
+Hear these truths! Do you believe? Then you belong to Christ! That is all.
+
+You cannot know the truths of God unless God reveals them to you. You cannot receive the gifts of God unless the Spirit dwells in you. You cannot proclaim and preach that Jesus is Lord unless the Triune God dwells in you.
+
+If you know these things, then rejoice for your name is written in the book of life!
