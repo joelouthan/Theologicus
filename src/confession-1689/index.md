@@ -932,7 +932,7 @@ This will of man is made perfectly and immutably free to good alone in the state
 
 ## Chapter 10: Of Effectual Calling
 
-### The Calling of God: At Us
+### 10.1 The Calling of God: At Us
 
 Those whom God hath predestinated unto life, he is pleased in his appointed, and accepted time, effectually to call, by his Word and Spirit, out of that state of sin and death in which they are by nature, to grace and salvation by Jesus Christ; enlightening their minds spiritually and savingly to understand the things of God; taking away their heart of stone, and giving unto them a heart of flesh; renewing their wills, and by his almighty power determining them to that which is good, and effectually drawing them to Jesus Christ; yet so as they come most freely, being made willing by his grace.
 
@@ -962,7 +962,7 @@ Those whom God hath predestinated unto life, he is pleased in his appointed, and
 
 >Song of Solomon 1:4 (CSB) Take me with you—let’s hurry. Oh, that the king would bring me to his chambers. We will rejoice and be glad in you; we will celebrate your caresses more than wine. It is only right that they adore you.
 
-### The Calling of God: Independent of Us
+### 10.2 The Calling of God: Independent of Us
 
 This effectual call is of God's free and special grace alone, not from anything at all foreseen in man, nor from any power or agency in the creature, being wholly passive therein, being dead in sins and trespasses, until being quickened and renewed by the Holy Spirit; he is thereby enabled to answer this call, and to embrace the grace offered and conveyed in it, and that by no less power than that which raised up Christ from the dead.
 
@@ -978,13 +978,13 @@ This effectual call is of God's free and special grace alone, not from anything 
 
 >Ephesians 1:19–20 (CSB) and what is the immeasurable greatness of his power toward us who believe, according to the mighty working of his strength. He exercised this power in Christ by raising him from the dead and seating him at his right hand in the heavens—
 
-### The Calling of God: Outside of Us
+### 10.3 The Calling of God: Outside of Us
 
 Elect infants dying in infancy are regenerated and saved by Christ through the Spirit; who worketh when, and where, and how he pleases; so also are all elect persons, who are incapable of being outwardly called by the ministry of the Word.
 
 >John 3:3–8 (CSB) Jesus replied, “Truly I tell you, unless someone is born again, he cannot see the kingdom of God.” “How can anyone be born when he is old?” Nicodemus asked him. “Can he enter his mother’s womb a second time and be born?” Jesus answered, “Truly I tell you, unless someone is born of water and the Spirit, he cannot enter the kingdom of God. Whatever is born of the flesh is flesh, and whatever is born of the Spirit is spirit. Do not be amazed that I told you that you must be born again. The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.”
 
-### The Calling of God: Not By Us
+### 10.4 The Calling of God: Not By Us
 
 Others not elected, although they may be called by the ministry of the Word, and may have some common operations of the Spirit, yet not being effectually drawn by the Father, they neither will nor can truly come to Christ, and therefore cannot be saved: much less can men that receive not the Christian religion be saved; be they never so diligent to frame their lives according to the light of nature and the law of that religion they do profess.
 
@@ -1006,37 +1006,37 @@ Others not elected, although they may be called by the ministry of the Word, and
 
 ## Chapter 11: Of Justification
 
-### 
+### 11.1 How Does God Justify Sinners? God Gives Righteousness
 
 Those whom God effectually calleth, he also freely justifieth, not by infusing righteousness into them, but by pardoning their sins, and by accounting and accepting their persons as righteous; not for anything wrought in them, or done by them, but for Christ's sake alone; not by imputing faith itself, the act of believing, or any other evangelical obedience to them, as their righteousness; but by imputing Christ's active obedience unto the whole law, and passive obedience in his death for their whole and sole righteousness by faith, which faith they have not of themselves; it is the gift of God.
 
 Romans 3:24; Romans 8:30; Romans 4:5-8; Ephesians 1:7; 1 Corinthians 1:30-31; Romans 5:17-19; Philippians 3:8-9; Ephesians 2:8-10; John 1:12; Romans 5:17
 
-### 
+### 11.2 How Does God Justify Sinners? God Gives Faith
 
 Faith thus receiving and resting on Christ and his righteousness, is the alone instrument of justification; yet it is not alone in the person justified, but is ever accompanied with all other saving graces, and is no dead faith, but worketh by love.
 
 Romans 3:28; Galatians 5:6; James 2:17-26
 
-### 
+### 11.3 How Does God Justify Sinners? God Gives His Son
 
 Christ, by his obedience and death, did fully discharge the debt of all those that are justified; and did, by the sacrifice of himself in the blood of his cross, undergoing in their stead the penalty due unto them, make a proper, real, and full satisfaction to God's justice in their behalf; yet, inasmuch as he was given by the Father for them, and his obedience and satisfaction accepted in their stead, and both freely, not for anything in them, their justification is only of free grace, that both the exact justice and rich grace of God might be glorified in the justification of sinners.
 
 Hebrews 10:14; 1 Peter 1:18-19; Isaiah 53:5-6; Romans 8:32; 2 Corinthians 5:21; Romans 3:26; Ephesians 1:6,7; Ephesians 2:7
 
-### 
+### 11.4 How Does God Justify Sinners? God Gives His Spirit
 
 God did from all eternity decree to justify all the elect, and Christ did in the fullness of time die for their sins, and rise again for their justification; nevertheless, they are not justified personally, until the Holy Spirit doth in time due actually apply Christ unto them.
 
 Galatians 3:8; 1 Peter 1:2; 1 Timothy 2:6; Romans 4:25; Colossians 1:21,22; Titus 3:4-7
 
-### 
+### 11.5 How Does God Justify Sinners? God Gives Eternity
 
 God doth continue to forgive the sins of those that are justified, and although they can never fall from the state of justification, yet they may, by their sins, fall under God's fatherly displeasure; and in that condition they have not usually the light of his countenance restored unto them, until they humble themselves, confess their sins, beg pardon, and renew their faith and repentance.
 
 Matthew 6:12; 1 John 1:7-9; John 10:28; Psalms 89:31-33; Psalms 32:5; Psalms 51; Matthew 26:75
 
-### 
+### 11.6 How Does God Justify Sinners? God Saves All
 
 The justification of believers under the Old Testament was, in all these respects, one and the same with the justification of believers under the New Testament.
 
