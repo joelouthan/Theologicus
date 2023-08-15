@@ -107,38 +107,38 @@
 Lord
 </div>
 
-You are the my prosperity!
-  what else do I need or want?
-  I have flee to my own desires and  passions
-  and they have left me
+You are the my prosperity!  
+  what else do I need or want?  
+  I have flee to my own desires and passions  
+  and they have left me  
   wanting.
 
-I have a void in my heart and soul
-  and I have search the entire earth
-  and its riches and pleasures
-  and it is as affective
-  at satisfying
-  as a drop of water
+I have a void in my heart and soul  
+  and I have search the entire earth  
+  and its riches and pleasures  
+  and it is as affective  
+  at satisfying  
+  as a drop of water  
   can fill all of space and time.
 
 It does nothing.
 
-You, my God, are infinite
-  and you are the only one
-  you was willing and able
-  and from the definition of love
-  came into my heart
-  and made your home there
+You, my God, are infinite  
+  and you are the only one  
+  you was willing and able  
+  and from the definition of love  
+  came into my heart  
+  and made your home there  
   forever.
 
 You are my satisfaction!
-  because
-  you are my God
+  because  
+  you are my God  
   forever.
 
-And I love you
-  and all that is within me
-  I will bless your holy name
+And I love you  
+  and all that is within me  
+  I will bless your holy name  
   always.
 
 Amen.
