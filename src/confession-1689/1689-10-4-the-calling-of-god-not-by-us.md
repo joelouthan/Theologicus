@@ -36,7 +36,7 @@ If you and I know that the almighty power of God will have residual effects, you
 
 If you have been in church for longer than a moment, you have already seen people attracted to the things of God, do the things of God, and then fall away from the holiness of God for one reason or another. Christians often are perplexed that something like this could have happened. Mostly perplexed because this falling away from grace has happened to someone they know and love--like their dad, or brother, or child.
 
->>Hebrews 6:4–6 (CSB) For it is impossible to renew to repentance those who were once enlightened, who tasted the heavenly gift, who shared in the Holy Spirit, who tasted God’s good word and the powers of the coming age, and who have fallen away. This is because, to their own harm, they are recrucifying the Son of God and holding him up to contempt.
+>Hebrews 6:4–6 (CSB) For it is impossible to renew to repentance those who were once enlightened, who tasted the heavenly gift, who shared in the Holy Spirit, who tasted God’s good word and the powers of the coming age, and who have fallen away. This is because, to their own harm, they are recrucifying the Son of God and holding him up to contempt.
 
 God said they have merely tasted the heavenly gift. Christ explains this in two places:
 
