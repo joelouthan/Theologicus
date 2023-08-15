@@ -46,7 +46,7 @@ And
 
 >Matthew 7:21–23 (CSB) “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father in heaven. On that day many will say to me, ‘Lord, Lord, didn’t we prophesy in your name, drive out demons in your name, and do many miracles in your name?’ Then I will announce to them, ‘I never knew you. Depart from me, you lawbreakers!’
 
-Christ preaches these sermons not to shake the assurance of this people but rather, to show his people the power of God. When God does something, it will come to pass. And when it does, there are affects on the fringes of that power.
+Christ preaches these sermons not to shake the assurance of his people but rather, to show his people the power of God. When God does something, it will come to pass. And when it does, there are affects on the fringes of that power.
 
 God was so merciful and kind to display his glory to all of the earth. He did this by sending his Son to die for the sins of his people. Some are effectually called by God to be saved by God. Some look at what God has done and they want the gifts and power of God but cannot stand and bear his holiness and goodness. Let the world kick them in the chest, and they fall away. Let God show them who he is, and they fall away. Let the happy times leave them for a moment, and they fallen away.
 
