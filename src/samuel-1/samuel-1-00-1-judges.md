@@ -2,7 +2,13 @@
 
 # 1 Samuel: The Time Before The King
 
-## The Fighting Has Only Just Begun
+## The Text
+
+>Matthew 11:12 (CSB) From the days of John the Baptist until now, <bgy>the kingdom of heaven has been suffering violence, and the violent have been seizing it by force.</bgy>
+
+## The Study
+
+### The Fighting Has Only Just Begun
 
 Moses had handed over the leadership of Israel to Joshua. Joshua led the Israelites to possess the land.
 
@@ -24,15 +30,15 @@ What did all of this violence ultimately brought?
 
 Keep this in mind when more giants trying to come into the land *after* Goliath is defeated.
 
-## The War Waged in the Heart
+### The War Waged in the Heart
 
 >Judges 2:1-5 (CSB) The angel of the LORD went up from Gilgal to Bochim and said, “I brought you out of Egypt and led you into the land I had promised to your ancestors. I also said: I will never break my covenant with you. You are not to make a covenant with the inhabitants of this land. You are to tear down their altars. But you have not obeyed me. What have you done? Therefore, I now say: I will not drive out these people before you. They will be thorns in your sides, and their gods will be a trap for you.” When the angel of the LORD had spoken these words to all the Israelites, the people wept loudly. So they named that place Bochim and offered sacrifices there to the LORD.
 
-### People did good when they thought God was near
+#### People did good when they thought God was near
 
 >Judges 2:7 (CSB) The people worshiped the LORD throughout Joshua’s lifetime and during the lifetimes of the elders who outlived Joshua. They had seen all the LORD’s great works he had done for Israel.
 
-### People did evil when they thought God was far
+#### People did evil when they thought God was far
 
 >Judges 2:8-13 (CSB) Joshua son of Nun, the servant of the LORD, died at the age of 110. They buried him in the territory of his inheritance, in Timnath-heres, in the hill country of Ephraim, north of Mount Gaash. That whole generation was also gathered to their ancestors. After them another generation rose up who did not know the LORD or the works he had done for Israel. The Israelites did what was evil in the LORD’s sight. They worshiped the Baals and abandoned the LORD, the God of their ancestors, who had brought them out of Egypt. They followed other gods from the surrounding peoples and bowed down to them. They angered the LORD, for they abandoned him and worshiped Baal and the Ashtoreths.
 
@@ -64,13 +70,13 @@ How are we to possesses a righteousness that surpasses that of the scribes and P
 
 >John 14:23 (CSB) Jesus answered, “If anyone loves me, he will keep my word. My Father will love him, and we will come to him and make our home with him.
 
-## There was no king in Israel
+#### There was no king in Israel
 
 >Judges 17:6 (CSB) In those days there was no king in Israel; everyone did whatever seemed right to him.
 
 >Judges 21:25 (ESV) In those days there was no king in Israel. Everyone did what was right in his own eyes.
 
-### God will bring a king over Israel
+#### God will bring a king over Israel
 
 >Ruth 1:1 (CSB) During the time of the judges, there was a famine in the land. A man left Bethlehem in Judah with his wife and two sons to stay in the territory of Moab for a while.
 
