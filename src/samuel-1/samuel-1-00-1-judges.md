@@ -2,7 +2,7 @@
 
 # 1 Samuel: The Time Before The King
 
-## The Text
+## The Word
 
 >Matthew 11:12 (CSB) From the days of John the Baptist until now, <bgy>the kingdom of heaven has been suffering violence, and the violent have been seizing it by force.</bgy>
 
@@ -83,6 +83,12 @@ How are we to possesses a righteousness that surpasses that of the scribes and P
 ### But Christ is the King of kings
 
 >1 Timothy 6:13-16 (CSB) In the presence of God, who gives life to all, and of Christ Jesus, who gave a good confession before Pontius Pilate, I charge you to keep this command without fault or failure until the appearing of our Lord Jesus Christ. God will bring this about in his own time. He is the blessed and only Sovereign, the King of kings, and the Lord of lords, who alone is immortal and who lives in unapproachable light, whom no one has seen or can see, to him be honor and eternal power. Amen.
+
+## The Word
+
+## The Study
+
+### 
 
 ## The Psalm
 
