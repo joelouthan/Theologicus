@@ -14,13 +14,67 @@
 
 >Romans 3:24 (CSB) they are justified freely by his grace through the redemption that is in Christ Jesus.
 
->Romans 8:30 (CSB) And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
+Previously, Chapter 10 dealt with the calling of God upon his people. At this moment, let us not undersell or downplay how God *effectually* calls those who would believe and trust in him. This means whom God calls, he will perfectly and definitely save that person. This might be a strange thing for any person to fathom. When I call out to my children, although they may hear me, they may not respond. And to that, we might be tempted that God is like us and since we have no power to control or save others, perhaps God may not be as powerful, might, sovereign, or graceful in his calling to any of the sons of Adam.
+
+But God is not like us and we are not like God. Whom God calls, he will justify. Whom God calls from death to life, that person will live. For:
+
+>Isaiah 55:11 (CSB) so my word that comes from my mouth will not return to me empty, but it will accomplish what I please and will prosper in what I send it to do.”
+
+And
+
+>John 6:44 (CSB) No one can come to me unless the Father who sent me draws him, and I will raise him up on the last day.
+
+And
+
+>John 12:32 (CSB) As for me, if I am lifted up from the earth I will draw all people to myself.”
+
+This is not some sort of "God calls and then a person will struggle and wiggle and think and ponder about that calling." The calling of God is the effectually calling of the Almighty God upon one who is dead in their trespasses and sins.
+
+>John 11:42-44 (CSB) I know that you always hear me, but because of the crowd standing here I said this, so that they may believe you sent me.” After he said this, he shouted with a loud voice, <bgy>“Lazarus, come out! ”</bgy> The dead man came out bound hand and foot with linen strips and with his face wrapped in a cloth. Jesus said to them, “Unwrap him and let him go.”
+
+And we know this because of the Bible--more specifically in Romans:
+
+>Romans 8:30 (CSB) And those he predestined, he also called; and <bgy>those he called, he also justified</bgy>; and those he justified, he also glorified.
+
+Let me contend that the entirety of the gospel of Christ in this verse is summarized and reduced to a simple mathematical equation:
+
+One hundred percent of those predestined (let's call this *w*) equals one hundred percent of those called (*x*) equals one hundred percent of those justified (*y*) equals one hundred percent of those glorified (*z*).
+
+Ergo: `w = x = y = z`
+
+Whatever that [set number](https://theologic.us/confession-1689/1689-03-6-the-free-purpose-of-the-will-of-god#are-effectually-called-unto-faith-in-christ) is, that is the set number of those who will be saved.
+
+Do we know what that number is? As much as I love my Jehovah's Witnesses neighbors, we are not God so no, we do not know what that number is. That is not for us to know. Ours to know is Jesus Christ, Son of God who is God. For:
+
+>John 1:14 (CSB) The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth.
+
+This glorious doctrine, that is, whom God effectually calls, he also freely justifies, is historically summed in the doctrine of Limited Atonement. That is, God has perfectly saved his people from their sins. How do we know he has already accomplished this? Because he sent his Son to live and die and resurrected for his people. And the fact that Jesus has done this is not a myth or a theory, but rather, an historical fact that happened over 2000 years ago.
 
 ### not by infusing righteousness into them, but by pardoning their sins, and by accounting and accepting their persons as righteous;
 
->Romans 4:5–8 (CSB) But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness. Likewise, David also speaks of the blessing of the person to whom God credits righteousness apart from works: Blessed are those whose lawless acts are forgiven and whose sins are covered. Blessed is the person the Lord will never charge with sin.
+>Romans 4:5–8 (CSB) But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness. Likewise, David also speaks of the blessing of the person to whom God credits  righteousness apart from works: Blessed are those whose lawless acts are forgiven and whose sins are covered. Blessed is the person the Lord will never charge with sin.
 
 >Ephesians 1:7 (CSB) In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace
+
+In [Ordo Salutis (the Order of Salvation)](https://theologic.us/doctrine-christ-saves/), there is particular set of what God does in order to save his people. Predestination occurred in the covenant of redemption between the Father and the Son before the creation of time and space--before Genesis 1:1. From that, the Son came after the saints of the Old Testament lived and came before the born again saints of the New Testament. Those are moments in time. 
+
+What does happen, seemingly all at one time, is the work of the Spirit upon the believer. One is that the Spirit gives the heart of the Father and makes his home in the person. There the gift of faith is bestowed. And now the person believes and trusts Christ.
+
+But it is never that God is adding on or infusing his righteousness with our righteousness. We have no righteousness of our own. It does matter how good we think are. We have zero righteousness of ourselves. For:
+
+>Romans 3:10–12 (CSB) as it is written: There is no one righteous, not even one. There is no one who understands; there is no one who seeks God. All have turned away; all alike have become worthless. There is no one who does what is good, not even one.
+
+What is even worse: what we think our righteousness might be is actually dirty, filthy rags before God Almighty:
+
+>Isaiah 64:6 (CSB) All of us have become like something unclean, and all our righteous acts are like a polluted garment; all of us wither like a leaf, and our iniquities carry us away like the wind.
+
+Our self-righteousness is trash before a just and holy God.
+
+How can God infused his righteousness with trash? 
+
+Let me put it another way: how can God simply forgive sin?
+
+TODO:
 
 ### not for anything wrought in them, or done by them, but for Christ's sake alone;
 
