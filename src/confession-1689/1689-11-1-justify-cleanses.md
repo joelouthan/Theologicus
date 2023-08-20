@@ -126,12 +126,66 @@ Praise be to God.
 
 >Philippians 3:8–9 (CSB) More than that, I also consider everything to be a loss in view of the surpassing value of knowing Christ Jesus my Lord. Because of him I have suffered the loss of all things and consider them as dung, so that I may gain Christ and be found in him, not having a righteousness of my own from the law, but one that is through faith in Christ—the righteousness from God based on faith.
 
->Ephesians 2:8–10 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—not from works, so that no one can boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
+Many of us chant, shout, proclaim, preach, & sing: "in Christ alone." But see this: everything that Christ did was to save his people from their sins. In order to save you and me, Christ is our complete propitiation, expiation, imputation, obedience, and righteousness. Nothing we have done or will ever do will ever add to what Christ has done to save us from our sins. We could not have added one bit. Not one thing we have done or will do will sway Christ love for us. Does that make sense?
 
-TODO:
+If you are in Christ now, your obedience is still filthy rags in the sight of God. Only Christ's obedience makes you righteous.
+
+So why obey Christ? God does not need anything--for he is not be served by human hands (Acts 17:25). But we are to do what Christ has command us to do because our neighbor so desperately needs our love--and it starts with the commission of Christ to preach the gospel of Christ to all creatures, everywhere, to the ends of the earth.
+
+The arms of God are wide open. You cannot prepare yourself enough to come to God. You cannot change your mind about God. You cannot repent hard enough fo your sins. You cannot do one good thing to bring yourself to God.
+
+But it is God who sent his only begotten Son, Christ Jesus, fully God and fully man, so that he would fully obey every single commandment of God, perfectly, wholeheartedly, and then die on the cross, so that you can be with God the Father forever.
+
+Remember the 5th chapter of Romans:
+
+>Romans 5:8 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us.
+
+You cannot clean yourself up in order to approach the throne of grace. You and I are wicked sinners. Just stay dirty and come the Fount of Life--whose blood washes away all of our sins, makes us clean the first time, all the time, every second of every day until you come all the way home to him. 
+
+What if you sin? The death Almighty Son of God, fully God and fully man, was so perfect and strong that it already cleansed your sins the moment Christ died on the cross. Yes, that sin, too. Yes, the one you are going to commit one minute from now, one year from now, and one decade from now. Yes, even the one you struggle with every day. God's grace is more. You don't want to sin against God because he is so good. But you and I will fail. That is okay. God already knew that. That is when he sent his Son to live and die for you. And when you and I do, we have an advocate with the Father, Jesus Christ the righteous (1 John 2:1).
+
+>Galatians 2:16 (CSB) and yet because we know that a person is not justified by the works of the law but by faith in Jesus Christ, even we ourselves have believed in Christ Jesus. This was so that we might be justified by faith in Christ and not by the works of the law, because by the works of the law no human being will be justified.
 
 ### which faith they have not of themselves; it is the gift of God.
 
 >John 1:12 (CSB) But to all who did receive him, he gave them the right to be children of God, to those who believe in his name,
 
 >Romans 5:17 (CSB) If by the one man’s trespass, death reigned through that one man, how much more will those who receive the overflow of grace and the gift of righteousness reign in life through the one man, Jesus Christ.
+
+Read the following passage:
+
+>Ephesians 2:8–10 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—not from works, so that no one can boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
+
+Pop quiz: what is the gift of God to believers?
+
+A. Salvation
+B. Grace
+C. Faith
+
+Correct answer: D. All of the above.
+
+You have nothing to give God but the sin that made it necessary to sacrifice his Son on your behalf.
+
+If you do not know this Blessed God, call upon the name of the Lord, and you will be saved instantly. For:
+
+>Romans 10:9–10 (CSB) If you confess with your mouth, “Jesus is Lord,” and believe in your heart that God raised him from the dead, you will be saved. One believes with the heart, resulting in righteousness, and one confesses with the mouth, resulting in salvation.
+
+And
+
+>Acts 2:21 (CSB) Then everyone who calls on the name of the Lord will be saved.
+
+And
+
+>Acts 16:31 (CSB) They said, “Believe in the Lord Jesus, and you will be saved—you and your household.”
+
+And
+
+>John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+
+Again, when is it a good time to be saved by God?
+
+>2 Corinthians 6:2 (CSB) For he says: At an acceptable time I listened to you, and in the day of salvation I helped you.
+
+Don't you see? Now is the acceptable time! Today is the day of salvation!
+
+I dare you to call upon the name of the Lord and you will be saved!
