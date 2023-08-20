@@ -101,7 +101,7 @@
     - [10.3 The Calling of God Independent of Us](confession-1689/1689-10-3-the-calling-of-god-independent-of-us.md)
     - [10.4 The Calling of God Not By Us](confession-1689/1689-10-4-the-calling-of-god-not-by-us.md)
   - [XI. Of Justification](confession-1689/1689-11-0-index.md)
-    - [11.1 How Does God Justify Sinners? God Gives Righteousness](confession-1689/1689-11-1-justify-righteousness.md)
+    - [11.1 How Does God Justify Sinners? God Cleanses Us From All Unrighteousness](confession-1689/1689-11-1-justify-cleanses.md)
     - [11.2 How Does God Justify Sinners? God Gives Faith](confession-1689/1689-11-2-justify-faith.md)
     - [11.3 How Does God Justify Sinners? God Gives His Son](confession-1689/1689-11-3-justify-son.md)
     - [11.4 How Does God Justify Sinners? God Gives His Spirit](confession-1689/1689-11-4-justify-spirit.md)
