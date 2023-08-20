@@ -4,6 +4,8 @@
 
 ## The Text
 
+>2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+
 ## The Chapter
 
 ### Those whom God effectually calleth, he also freely justifieth, not by infusing righteousness into them, but by pardoning their sins, and by accounting and accepting their persons as righteous; not for anything wrought in them, or done by them, but for Christ's sake alone; not by imputing faith itself, the act of believing, or any other evangelical obedience to them, as their righteousness; but by imputing Christ's active obedience unto the whole law, and passive obedience in his death for their whole and sole righteousness by faith, which faith they have not of themselves; it is the gift of God.
@@ -74,7 +76,33 @@ How can God infused his righteousness with trash?
 
 Let me put it another way: how can God simply forgive sin?
 
-TODO:
+There is a teaching among Progressive & Liberal Christians that state since God can simple declared, "Your sins are forgiven--go and sin no more" then Christ death on the cross was not necessary. In other words, Christ did not have to die for our sins. God could have simply forgiven us. Some Liberal Christians suggest, in the name of Social Gospel, that Jesus of Nazareth was a good and moral teacher who was falsely accused, falsely tried and false executed. Christ simply forgive sins and his death was a tragic mistake.
+
+That is an interesting theory. But for that theory to hold up, you will need to disregard the rest of the Bible.
+
+>Leviticus 17:11 (CSB) For the life of a creature is in the blood, and I have appointed it to you to make atonement on the altar for your lives, since it is the lifeblood that makes atonement.
+
+>Hebrews 9:22 (CSB) According to the law almost everything is purified with blood, and without the shedding of blood there is no forgiveness.
+
+Now make no mistake: it was not the blood of the animal sacrifices that washed away our sins. For:
+
+>Hebrews 10:4 (CSB) For it is impossible for the blood of bulls and goats to take away sins.
+
+It is the blood of Christ that washes away our sins. For:
+
+>Hebrews 10:10 (CSB) By this will, we have been sanctified through the offering of the body of Jesus Christ once for all time.
+
+And
+
+>Hebrews 10:14 (CSB) For by one offering he has perfected forever those who are sanctified.
+
+And
+
+>Colossians 2:13-14 (CSB) And when you were dead in trespasses and in the uncircumcision of your flesh, he made you alive with him and forgave us all our trespasses. He erased the certificate of debt, with its obligations, that was against us and opposed to us, and has taken it away by nailing it to the cross.
+
+In order for Christ to save his people from their sins, he must live for his people and then die for his people. And that is the gospel of Christ--because Christ did so *perfectly* for his people--once and for all time. For:
+
+>Hebrews 9:24-28 (CSB) For Christ did not enter a sanctuary made with hands (only a model of the true one) but into heaven itself, so that he might now appear in the presence of God for us. He did not do this to offer himself many times, as the high priest enters the sanctuary yearly with the blood of another. Otherwise, he would have had to suffer many times since the foundation of the world. But now he has appeared one time, at the end of the ages, for the removal of sin by the sacrifice of himself. <bgy>And just as it is appointed for people to die once — and after this, judgment — so also Christ, having been offered once to bear the sins of many, will appear a second time, not to bear sin, but to bring salvation to those who are waiting for him.</bgy>
 
 ### not for anything wrought in them, or done by them, but for Christ's sake alone;
 
@@ -82,11 +110,25 @@ TODO:
 
 >Romans 5:17–19 (CSB) If by the one man’s trespass, death reigned through that one man, how much more will those who receive the overflow of grace and the gift of righteousness reign in life through the one man, Jesus Christ. So then, as through one trespass there is condemnation for everyone, so also through one righteous act there is justification leading to life for everyone. For just as through one man’s disobedience the many were made sinners, so also through the one man’s obedience the many will be made righteous.
 
+**For Christ's sake alone.** You miss this and you miss the gospel.
+
+Many well-intended gospel-centered Evangelicals will start to hold fast "it is all about Christ" but in due time, will slip, much like Adam and Eve, and start to add on to the gospel. In the early 18th century, a controversy arose in Scotland, called the Marrow Controversy, where the General Assembly of Presbyters insisted on the repentance of sins in order to be justified in the sight of God.
+
+Stop right there. If you grew up Evangelical like I did, repenting of sins in order to be justified, seems good and right and orthodox. But it is not so. Look at that teaching a little bit more closer and ask this question, "Who is doing what in order to be justified?" The Marrow Brethren taught that it was not any action that we have done that justifies us, not even our repentance of our sins, but rather, the work of Christ alone. Christ alone justifies us. Christ alone saves us. And what the Marrow Brethren contended for: because of what Christ has done, and you being saved by Christ, you are going to repent of yours sins, because of what Christ has done. The Father gives you a new hear, the Spirit dwells in you because of Christ's live and death on the cross.
+
+Look at it this way: can you ever perfectly repent of your sins? The answer is obviously no. If we cannot perfectly repent of our sins and if justification of God depends on our repentance of our sins, then we are most certainly doomed. But because of Christ, who is perfect in every way, we are perfectly saved.
+
+Praise be to God.
+
+>1 Corinthians 6:11 (CSB) And some of you used to be like this. But you were washed, you were sanctified, you were justified in the name of the Lord Jesus Christ and by the Spirit of our God.
+
 ### not by imputing faith itself, the act of believing, or any other evangelical obedience to them, as their righteousness; but by imputing Christ's active obedience unto the whole law, and passive obedience in his death for their whole and sole righteousness by faith
 
 >Philippians 3:8–9 (CSB) More than that, I also consider everything to be a loss in view of the surpassing value of knowing Christ Jesus my Lord. Because of him I have suffered the loss of all things and consider them as dung, so that I may gain Christ and be found in him, not having a righteousness of my own from the law, but one that is through faith in Christ—the righteousness from God based on faith.
 
 >Ephesians 2:8–10 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—not from works, so that no one can boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
+
+TODO:
 
 ### which faith they have not of themselves; it is the gift of God.
 
