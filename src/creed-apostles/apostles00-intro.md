@@ -115,6 +115,19 @@ And with this creed, declare what they declared: that Jesus Christ is Lord.
 
 ### Books
 
+<img src="/images/theology-institutes-1541-calvin-white.jpg">Institutes of the Christian Religion: Calvin's Own 'Essentials' Edition.  
+John Calvin. Robert White (Translator).  
+Banner of Truth. 2014.  
+[Goodreads](https://www.goodreads.com/book/show/23306187-institutes-of-the-christian-religion)
+
+So I wrap up my Bible Study with my son over Apostles' Creed. And while reading Calvin's 1541 Edition of his Institutes, I get to Chapter 4 and voila:v **Faith, with an Explanation of the Apostles’ Creed** 
+
+I love the provision of God!
+
+As I am reading through it, I will fold in some Calvin into these notes here.
+
+<hr style="clear:both;">
+
 <img src="/images/art-apostles-creed-portrait.png" hidden><img src="/images/theology-all-that-is-God-dolezal.jpg">All That Is in God: Evangelical Theology and the Challenge of Classical Christian Theism.  
 James E. Dolezal.  
 Reformation Heritage Books. 2017.  
