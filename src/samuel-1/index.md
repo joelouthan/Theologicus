@@ -42,10 +42,6 @@ The only thing I can say is, "There's nothing to it but to do it."
 
 ### Commentaries
 
-#### General Commentaries
-
-{{#include ../bibliography/biblio-commentaries.md}}
-
 #### Judges
 
 {{#include ../bibliography/biblio-commentaries-judges.md}}
@@ -57,6 +53,10 @@ The only thing I can say is, "There's nothing to it but to do it."
 #### Samuel
 
 {{#include ../bibliography/biblio-commentaries-samuel.md}}
+
+#### General Commentaries
+
+{{#include ../bibliography/biblio-commentaries.md}}
 
 ### Theology
 
