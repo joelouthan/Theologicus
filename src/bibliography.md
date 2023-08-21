@@ -32,15 +32,15 @@
 
 ### Judges
 
-{{#include ../bibliography/biblio-commentaries-judges.md}}
+{{#include bibliography/biblio-commentaries-judges.md}}
 
 ### Ruth
 
-{{#include ../bibliography/biblio-commentaries-ruth.md}}
+{{#include bibliography/biblio-commentaries-ruth.md}}
 
 ### Samuel
 
-{{#include ../bibliography/biblio-commentaries-samuel.md}}
+{{#include bibliography/biblio-commentaries-samuel.md}}
 
 ### Psalms
 
