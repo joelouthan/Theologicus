@@ -43,8 +43,6 @@ John Calvin succinctly puts it:
 
 >God's word is like the sun: it sheds its light on all to whom it is proclaimed, but it has no effect on the blind. [^calvin-scriptures]
 
-[^calvin-scriptures]: John Calvin. [Institutes of the Christian Religion: Calvin's Own 'Essentials' Edition](https://www.goodreads.com/book/show/23306187-institutes-of-the-christian-religion). 199.
-
 Jesus, Son of God who is God, declared that the Scriptures were about him:
 
 >Luke 24:25–27 (CSB)  He said to them, “How foolish you are, and how slow to believe all that the prophets have spoken! Wasn’t it necessary for the Messiah to suffer these things and enter into his glory?” Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
@@ -119,3 +117,5 @@ But it is only dependent on God who wills us to understanding and maturity:
 ><sup>3</sup> And we will do this if God permits.
 
 What can we do? Pray and ask God to mature us and conform us to the image of His Son so that we might see him clearer and clearer every day.
+
+[^calvin-scriptures]: John Calvin. [Institutes of the Christian Religion: Calvin's Own 'Essentials' Edition](https://www.goodreads.com/book/show/23306187-institutes-of-the-christian-religion). 199.
