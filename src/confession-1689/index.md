@@ -1110,9 +1110,41 @@ The justification of believers under the Old Testament was, in all these respect
 
 All those that are justified, God vouchsafed, in and for the sake of his only Son Jesus Christ, to make partakers of the grace of adoption, by which they are taken into the number, and enjoy the liberties and privileges of the children of God, have his name put upon them, receive the spirit of adoption, have access to the throne of grace with boldness, are enabled to cry Abba, Father, are pitied, protected, provided for, and chastened by him as by a Father, yet never cast off, but sealed to the day of redemption, and inherit the promises as heirs of everlasting salvation.
 
->Genesis 2:17 (CSB) but you must not eat from the tree of the knowledge of good and evil, for on the day you eat from it, you will certainly die.”
+>Ephesians 1:5 (CSB) He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will,
 
->Genesis 1:26–28 (CSB) Then God said, “Let us make man in our image, according to our likeness. They will rule the fish of the sea, the birds of the sky, the livestock, the whole earth, and the creatures that crawl on the earth.” So God created man in his own image; he created him in the image of God; he created them male and female. God blessed them, and God said to them, “Be fruitful, multiply, fill the earth, and subdue it. Rule the fish of the sea, the birds of the sky, and every creature that crawls on the earth.”
+>Galatians 4:4–5 (CSB) When the time came to completion, God sent his Son, born of a woman, born under the law, to redeem those under the law, so that we might receive adoption as sons.
+
+>John 1:12 (CSB) But to all who did receive him, he gave them the right to be children of God, to those who believe in his name,
+
+>Romans 8:17 (CSB) and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
+
+>2 Corinthians 6:18 (CSB) And I will be a Father to you, and you will be sons and daughters to me, says the Lord Almighty.
+
+>Revelation 3:12 (CSB) “The one who conquers I will make a pillar in the temple of my God, and he will never go out again. I will write on him the name of my God and the name of the city of my God—the new Jerusalem, which comes down out of heaven from my God—and my new name.
+
+>Romans 8:15 (CSB) For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!”
+
+>Galatians 4:6 (CSB) And because you are sons, God sent the Spirit of his Son into our hearts, crying, “Abba, Father!”
+
+>Ephesians 2:18 (CSB) For through him we both have access in one Spirit to the Father.
+
+>Psalm 103:13 (CSB) As a father has compassion on his children, so the LORD has compassion on those who fear him.
+
+>Proverbs 14:26 (CSB) In the fear of the LORD one has strong confidence and his children have a refuge.
+
+>1 Peter 5:7 (CSB) casting all your cares on him, because he cares about you.
+
+>Hebrews 12:6 (CSB) for the Lord disciplines the one he loves and punishes every son he receives.
+
+>Isaiah 54:8–9 (CSB) In a surge of anger I hid my face from you for a moment, but I will have compassion on you with everlasting love,” says the LORD your Redeemer. “For this is like the days of Noah to me: when I swore that the water of Noah would never flood the earth again, so I have sworn that I will not be angry with you or rebuke you.
+
+>Lamentations 3:31 (CSB) For the Lord will not reject us forever.
+
+>Ephesians 4:30 (CSB) And don’t grieve God’s Holy Spirit. You were sealed by him for the day of redemption.
+
+>Hebrews 1:14 (CSB) Are they not all ministering spirits sent out to serve those who are going to inherit salvation?
+
+>Hebrews 6:12 (CSB) so that you won’t become lazy but will be imitators of those who inherit the promises through faith and perseverance.
 
 ## Chapter 13: Of Sanctification
 
