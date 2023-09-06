@@ -16,8 +16,9 @@ I want us not only to see God in his word but to see God’s grace in the life o
 
 Our tomorrow is never a guarantee by God.
 
-For:  
->  Proverbs 27:1 (CSB) Don’t boast about tomorrow,  
+For:
+
+>Proverbs 27:1 (CSB) Don’t boast about tomorrow,  
 for you don’t know what a day might bring.
 
 Let us give thanks to God for he has given us grace!
@@ -26,7 +27,7 @@ Let us give thanks to God for he has given us grace!
 
 God gives all grace for you to obey him. For:
 
->Ezekiel 36:24-27 (CSB) “ ‘For I will take you from the nations and gather you from all the countries, and will bring you into your own land. 25 I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. 26 I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. 27 I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
+>Ezekiel 36:24–27 (CSB) “ ‘For I will take you from the nations and gather you from all the countries, and will bring you into your own land. I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
 
 Let us give thanks to God for he has given us grace!
 
