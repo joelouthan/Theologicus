@@ -16,8 +16,8 @@ I want us not only to see God in his word but to see God’s grace in the life o
 
 Our tomorrow is never a guarantee by God.
 
-For:
->Proverbs 27:1 (CSB) Don’t boast about tomorrow,
+For:  
+>  Proverbs 27:1 (CSB) Don’t boast about tomorrow,  
 for you don’t know what a day might bring.
 
 Let us give thanks to God for he has given us grace!
