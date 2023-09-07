@@ -138,7 +138,7 @@
 
 -----------
 
-- [1680 An Orthodox Catechism](orthodox-1680/index.md)
+- [1680 An Orthodox Catechism](catechism-1680/index.md)
 - [Milk for Little Ones]()
 - [The Heidelberg Catechism]()
 - [The Westminster Shorter Catechism]()
