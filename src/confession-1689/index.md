@@ -1148,23 +1148,57 @@ All those that are justified, God vouchsafed, in and for the sake of his only So
 
 ## Chapter 13: Of Sanctification
 
-### 
+### What God Does: The Father Conforms Us
 
-They who are united to Christ, effectually called, and regenerated, having a new heart and a new spirit created in them through the virtue of Christ's death and resurrection, are also farther sanctified, really and personally, through the same virtue, by His Word and Spirit dwelling in them; the dominion of the whole body of sin is destroyed, and the several lusts thereof are more and more weakened and mortified, and they more and more quickened and strengthened in all saving graces, to the practice of all true holiness, without which no man shall see the Lord.
+They who are united to Christ, effectually called, and regenerated, having a new heart and a new spirit created in them through the virtue of Christ's death and resurrection, are also farther sanctified, really and personally, through the same virtue, by his Word and Spirit dwelling in them; the dominion of the whole body of sin is destroyed, and the several lusts of it are more and more weakened and mortified, and they more and more quickened and strengthened in all saving graces, to the practice of all true holiness, without which no man shall see the Lord.
 
-Acts 20:32; Romans 6:5-6; John 17:17; Ephesians 3:16-19; 1 Thessalonians 5:21-23; Romans 6:14; Galatians 5:24; Colossians 1:11; 2 Corinthians 7:1; Hebrews 12:14
+>Acts 20:32 (CSB) “And now I commit you to God and to the word of his grace, which is able to build you up and to give you an inheritance among all who are sanctified.
 
-### 
+>Romans 6:5–6 (CSB) For if we have been united with him in the likeness of his death, we will certainly also be in the likeness of his resurrection. For we know that our old self was crucified with him so that the body ruled by sin might be rendered powerless so that we may no longer be enslaved to sin,
 
-This sanctification is throughout the whole man, yet imperfect in this life; there abideth still some remnants of corruption in every part, whence ariseth a continual and irreconcilable war; the flesh lusting against the Spirit, and the Spirit against the flesh.
+>John 17:17 (CSB) Sanctify them by the truth; your word is truth.
 
-1 Thessalonians 5:23; Romans 7:18-23; Galatians 5:17; 1 Peter 2:11
+>Ephesians 3:16–19 (CSB) I pray that he may grant you, according to the riches of his glory, to be strengthened with power in your inner being through his Spirit, and that Christ may dwell in your hearts through faith. I pray that you, being rooted and firmly established in love, may be able to comprehend with all the saints what is the length and width, height and depth of God’s love, and to know Christ’s love that surpasses knowledge, so that you may be filled with all the fullness of God.
 
-### 
+>1 Thessalonians 5:21–23 (CSB) but test all things. Hold on to what is good. Stay away from every kind of evil. Now may the God of peace himself sanctify you completely. And may your whole spirit, soul, and body be kept sound and blameless at the coming of our Lord Jesus Christ.
 
-In which war, although the remaining corruption for a time may much prevail, yet through the continual supply of strength from the sanctifying Spirit of Christ, the regenerate part doth overcome; and so the saints grow in grace, perfecting holiness in the fear of God, pressing after an heavenly life, in evangelical obedience to all the commands which Christ as Head and King, in His Word hath prescribed them.
+>Romans 6:14 (CSB) For sin will not rule over you, because you are not under the law but under grace.
 
-Romans 7:23; Romans 6:14; Ephesians 4:15-16; 2 Corinthians 3:18; 2 Corinthians 7:1
+>Galatians 5:24 (CSB) Now those who belong to Christ Jesus have crucified the flesh with its passions and desires.
+
+>2 Corinthians 7:1 (CSB) So then, dear friends, since we have these promises, let us cleanse ourselves from every impurity of the flesh and spirit, bringing holiness to completion in the fear of God.
+
+>Hebrews 12:14 (CSB) Pursue peace with everyone, and holiness—without it no one will see the Lord.
+
+>Colossians 1:11 (CSB) being strengthened with all power, according to his glorious might, so that you may have great endurance and patience, joyfully
+
+### What God Does: The Christ Lived and Died for Us
+
+This sanctification is throughout the whole man, yet imperfect in this life; there abides still some remnants of corruption in every part, wherefrom arises a continual and irreconcilable war; the flesh lusting against the Spirit, and the Spirit against the flesh.
+
+>1 Thessalonians 5:23 (CSB) Now may the God of peace himself sanctify you completely. And may your whole spirit, soul, and body be kept sound and blameless at the coming of our Lord Jesus Christ.
+
+>Romans 7:18 (CSB) For I know that nothing good lives in me, that is, in my flesh. For the desire to do what is good is with me, but there is no ability to do it.
+
+>Romans 7:23 (CSB) but I see a different law in the parts of my body, waging war against the law of my mind and taking me prisoner to the law of sin in the parts of my body.
+
+>Galatians 5:17 (CSB) For the flesh desires what is against the Spirit, and the Spirit desires what is against the flesh; these are opposed to each other, so that you don’t do what you want.
+
+>1 Peter 2:11 (CSB) Dear friends, I urge you as strangers and exiles to abstain from sinful desires that wage war against the soul.
+
+### What God Does: The Spirit Makes Us Fully Alive
+
+In which war, although the remaining corruption for a time may much prevail, yet, through the continual supply of strength from the sanctifying Spirit of Christ, the regenerate part does overcome; and so the saints grow in grace, perfecting holiness in the fear of God, pressing after an heavenly life, in evangelical obedience to all the commands which Christ as Head and King, in his Word has prescribed to them.
+
+>Romans 7:23 (CSB) but I see a different law in the parts of my body, waging war against the law of my mind and taking me prisoner to the law of sin in the parts of my body.
+
+>Romans 6:14 (CSB) For sin will not rule over you, because you are not under the law but under grace.
+
+>Ephesians 4:15–16 (CSB) But speaking the truth in love, let us grow in every way into him who is the head—Christ. From him the whole body, fitted and knit together by every supporting ligament, promotes the growth of the body for building itself up in love by the proper working of each individual part.
+
+>2 Corinthians 3:18 (CSB) We all, with unveiled faces, are looking as in a mirror at the glory of the Lord and are being transformed into the same image from glory to glory; this is from the Lord who is the Spirit.
+
+>2 Corinthians 7:1 (CSB) So then, dear friends, since we have these promises, let us cleanse ourselves from every impurity of the flesh and spirit, bringing holiness to completion in the fear of God.
 
 ## Chapter 14: Of Saving Faith
 
