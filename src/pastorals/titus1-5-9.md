@@ -71,7 +71,7 @@ This type of blameless which some translations call "above reproach." What is re
 
 You've heard the phrase, "Where there is smoke, there is fire." God is saying you shouldn't see any smoke. And there is two ways to think about this. One, common sense. "That seems reasonable." 
 
-But the other way is the way of people who have obtain power for themselves and will stop at nothing to hold on that power. They will say things like "What about false accusations?" and "You cannot touch God's annointed." That way of thinking is of Satan--all you are doing is twisting Scripture. Don't go that way.
+But the other way is the way of people who have obtain power for themselves and will stop at nothing to hold on that power. They will say things like "What about false accusations?" and "You cannot touch God's Anointed." That way of thinking is of Satan--all you are doing is twisting Scripture. Don't go that way.
 
 If in your own church, you are close enough to see the fire and the smoke. In somebody's elses church across the country on the internet, you are not close enough. Christ has you. You will be taken care of.
 

@@ -53,4 +53,4 @@ The faith to believe God. The heart to love God. The mind of Christ. The Spirit 
 
 Christ knew who he was--even if people didn't believe him right away. The Triune God made these plans before Genesis 1:1. They didn't need for any of us to the right thing or make the right decision. God would do it. God has complete it because He sent His Son in the power of the Spirit.
 
-God will give us a Deliverer. God will give us a Savior. God will give us the Annointed One--the Messiah of his people. One and done forever.
+God will give us a Deliverer. God will give us a Savior. God will give us the Anointed One--the Messiah of his people. One and done forever.
