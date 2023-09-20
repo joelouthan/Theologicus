@@ -1,4 +1,3 @@
-# Matthew 1:17 Jesus Christ is Our God
 <img class="intro-right" src="/images/art-matthew.jpg">
 
 # Matthew 1:17 Jesus Christ is Our God
