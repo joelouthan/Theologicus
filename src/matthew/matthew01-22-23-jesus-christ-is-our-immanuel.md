@@ -141,6 +141,4 @@ if I make my bed in Sheol, you are there.
 
 ### Immanuel: God is with us.
 
->John 8:56-58 (CSB) Your father Abraham rejoiced to see my day; he saw it and was glad.”
-The Jews replied, “You aren’t fifty years old yet, and you’ve seen Abraham? ”
-Jesus said to them, “Truly I tell you, before Abraham was, I am.”
+>Romans 1:1-4 (CSB) aul, a servant of Christ Jesus, called as an apostle and set apart for <bgy>the gospel of God — which he promised beforehand through his prophets in the Holy Scriptures — concerning his Son, Jesus Christ our Lord, who was a descendant of David according to the flesh and was appointed to be the powerful Son of God according to the Spirit of holiness by the resurrection of the dead.</bgy>
