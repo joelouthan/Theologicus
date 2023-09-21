@@ -1148,7 +1148,7 @@ All those that are justified, God vouchsafed, in and for the sake of his only So
 
 ## Chapter 13: Of Sanctification
 
-### What God Does: The Father Conforms Us
+### 13.1 What God Does: The Father Conforms Us
 
 They who are united to Christ, effectually called, and regenerated, having a new heart and a new spirit created in them through the virtue of Christ's death and resurrection, are also farther sanctified, really and personally, through the same virtue, by his Word and Spirit dwelling in them; the dominion of the whole body of sin is destroyed, and the several lusts of it are more and more weakened and mortified, and they more and more quickened and strengthened in all saving graces, to the practice of all true holiness, without which no man shall see the Lord.
 
@@ -1172,7 +1172,7 @@ They who are united to Christ, effectually called, and regenerated, having a new
 
 >Colossians 1:11 (CSB) being strengthened with all power, according to his glorious might, so that you may have great endurance and patience, joyfully
 
-### What God Does: The Christ Lived and Died for Us
+### 13.2 What God Does: The Christ Lived and Died for Us
 
 This sanctification is throughout the whole man, yet imperfect in this life; there abides still some remnants of corruption in every part, wherefrom arises a continual and irreconcilable war; the flesh lusting against the Spirit, and the Spirit against the flesh.
 
@@ -1186,7 +1186,7 @@ This sanctification is throughout the whole man, yet imperfect in this life; the
 
 >1 Peter 2:11 (CSB) Dear friends, I urge you as strangers and exiles to abstain from sinful desires that wage war against the soul.
 
-### What God Does: The Spirit Makes Us Fully Alive
+### 13.3 What God Does: The Spirit Makes Us Fully Alive
 
 In which war, although the remaining corruption for a time may much prevail, yet, through the continual supply of strength from the sanctifying Spirit of Christ, the regenerate part does overcome; and so the saints grow in grace, perfecting holiness in the fear of God, pressing after an heavenly life, in evangelical obedience to all the commands which Christ as Head and King, in his Word has prescribed to them.
 
