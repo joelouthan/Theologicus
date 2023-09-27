@@ -80,6 +80,10 @@ God is not a figment of mankind's imagination. God was not conjured up by man. M
 
 >Deuteronomy 4:15–16 (CSB) “Diligently watch yourselves—because you did not see any form on the day the LORD spoke to you out of the fire at Horeb—so you don’t act corruptly and make an idol for yourselves in the shape of any figure: a male or female form,
 
+>John 1:18 (CSB) No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
+
+>1 Timothy 1:17 (CSB) Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
+
 The best word to describe the simplicity of God is *aseity*. Webster's properly defines this:
 
 > the quality or state of being self-derived or self-originated specifically : **the absolute self-sufficiency, independence, and autonomy of God**
