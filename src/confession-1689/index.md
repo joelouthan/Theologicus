@@ -1202,21 +1202,69 @@ In which war, although the remaining corruption for a time may much prevail, yet
 
 ## Chapter 14: Of Saving Faith
 
-### 
+### 14.1 What God Gives: The Grace of Faith
 
-The grace of faith, whereby the elect are enabled to believe to the saving of their souls, is the work of the Spirit of Christ in their hearts, and is ordinarily wrought by the ministry of the Word; by which also, and by the administration of baptism and the Lord's supper, prayer, and other means appointed of God, it is increased and strengthened. ( 2 Corinthians 4:13; Ephesians 2:8; Romans 10:14-17; Luke 17:5; 1 Peter 2:2; Acts 20:32
+The grace of faith, whereby the elect are enabled to believe to the saving of their souls, is the work of the Spirit of Christ in their hearts, and is ordinarily wrought by the ministry of the Word; by which also, and by the administration of baptism and the Lord's supper, prayer, and other means appointed of God, it is increased and strengthened.
 
-### 
+>2 Corinthians 4:13 (CSB) And since we have the same spirit of faith in keeping with what is written, I believed, therefore I spoke, we also believe, and therefore speak.
+
+>Ephesians 2:8 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—
+
+>Romans 10:14–17 (CSB) How, then, can they call on him they have not believed in? And how can they believe without hearing about him? And how can they hear without a preacher? And how can they preach unless they are sent? As it is written: How beautiful are the feet of those who bring good news. But not all obeyed the gospel. For Isaiah says, Lord, who has believed our message? So faith comes from what is heard, and what is heard comes through the message about Christ.
+
+>Luke 17:5 (CSB) The apostles said to the Lord, “Increase our faith.”
+
+>1 Peter 2:2 (CSB) Like newborn infants, desire the pure milk of the word, so that by it you may grow up into your salvation,
+
+>Acts 20:32 (CSB) “And now I commit you to God and to the word of his grace, which is able to build you up and to give you an inheritance among all who are sanctified.
+
+### 14.2 What God Gives: The Promise in His Word
 
 By this faith a Christian believeth to be true whatsoever is revealed in the Word for the authority of God himself, and also apprehendeth an excellency therein above all other writings and all things in the world, as it bears forth the glory of God in his attributes, the excellency of Christ in his nature and offices, and the power and fullness of the Holy Spirit in his workings and operations: and so is enabled to cast his soul upon the truth thus believed; and also acteth differently upon that which each particular passage thereof containeth; yielding obedience to the commands, trembling at the threatenings, and embracing the promises of God for this life and that which is to come; but the principal acts of saving faith have immediate relation to Christ, accepting, receiving, and resting upon him alone for justification, sanctification, and eternal life, by virtue of the covenant of grace.
 
-Acts 24:14; Psalms 27:7-10; Psalms 119:72; 2 Timothy 1:12; John 14:14; Isaiah 66:2; Hebrews 11:13; John 1:12; Acts 16:31; Galatians 2:20; Acts 15:11
+>Acts 24:14 (CSB) But I admit this to you: I worship the God of my ancestors according to the Way, which they call a sect, believing everything that is in accordance with the law and written in the prophets.
 
-### 
+>Psalm 27:7–10 (CSB) LORD, hear my voice when I call; be gracious to me and answer me. My heart says this about you: “Seek his face.” LORD, I will seek your face. Do not hide your face from me; do not turn your servant away in anger. You have been my helper; do not leave me or abandon me, God of my salvation. Even if my father and mother abandon me, the LORD cares for me.
+
+>Psalm 119:72 (CSB) Instruction from your lips is better for me than thousands of gold and silver pieces.
+
+>2 Timothy 1:12 (CSB) and that is why I suffer these things. But I am not ashamed, because I know whom I have believed and am persuaded that he is able to guard what has been entrusted to me until that day.
+
+>John 14:14 (CSB) If you ask me anything in my name, I will do it.
+
+>Isaiah 66:2 (CSB) My hand made all these things, and so they all came into being. This is the LORD’s declaration. I will look favorably on this kind of person: one who is humble, submissive in spirit, and trembles at my word.
+
+>Hebrews 11:13 (CSB) These all died in faith, although they had not received the things that were promised. But they saw them from a distance, greeted them, and confessed that they were foreigners and temporary residents on the earth.
+
+>John 1:12 (CSB) But to all who did receive him, he gave them the right to be children of God, to those who believe in his name,
+
+>Acts 16:31 (CSB) They said, “Believe in the Lord Jesus, and you will be saved—you and your household.”
+
+>Galatians 2:20 (CSB) I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
+
+>Acts 15:11 (CSB) On the contrary, we believe that we are saved through the grace of the Lord Jesus in the same way they are.”
+
+### 14.3 What God Gives: The Promise in His Word
 
 This faith, although it be different in degrees, and may be weak or strong, yet it is in the least degree of it different in the kind or nature of it, as is all other saving grace, from the faith and common grace of temporary believers; and therefore, though it may be many times assailed and weakened, yet it gets the victory, growing up in many to the attainment of a full assurance through Christ, who is both the author and finisher of our faith.
 
-Hebrews 5:13-14; Matthew 6:30; Romans 4:19-20; 2 Peter 1:1; Ephesians 6:16; 1 John 5:4-5; Hebrews 6:11-12; Colossians 2:2; Hebrews 12:2
+>Hebrews 5:13–14 (CSB) Now everyone who lives on milk is inexperienced with the message about righteousness, because he is an infant. But solid food is for the mature—for those whose senses have been trained to distinguish between good and evil.
+
+>Matthew 6:30 (CSB) If that’s how God clothes the grass of the field, which is here today and thrown into the furnace tomorrow, won’t he do much more for you—you of little faith?
+
+>Romans 4:19–20 (CSB) He did not weaken in faith when he considered his own body to be already dead (since he was about a hundred years old) and also the deadness of Sarah’s womb. He did not waver in unbelief at God’s promise but was strengthened in his faith and gave glory to God,
+
+>2 Peter 1:1 (CSB) Simeon Peter, a servant and an apostle of Jesus Christ: To those who have received a faith equal to ours through the righteousness of our God and Savior Jesus Christ.
+
+>Ephesians 6:16 (CSB) In every situation take up the shield of faith with which you can extinguish all the flaming arrows of the evil one.
+
+>1 John 5:4–5 (CSB) because everyone who has been born of God conquers the world. This is the victory that has conquered the world: our faith. Who is the one who conquers the world but the one who believes that Jesus is the Son of God?
+
+>Hebrews 6:11–12 (CSB) Now we desire each of you to demonstrate the same diligence for the full assurance of your hope until the end, so that you won’t become lazy but will be imitators of those who inherit the promises through faith and perseverance.
+
+>Colossians 2:2 (CSB) I want their hearts to be encouraged and joined together in love, so that they may have all the riches of complete understanding and have the knowledge of God’s mystery—Christ.
+
+>Hebrews 12:2 (CSB) keeping our eyes on Jesus, the pioneer and perfecter of our faith. For the joy that lay before him, he endured the cross, despising the shame, and sat down at the right hand of the throne of God.
 
 ## Chapter 15: Of Repentance Unto Life and Salvation
 
