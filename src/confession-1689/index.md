@@ -1244,7 +1244,7 @@ By this faith a Christian believeth to be true whatsoever is revealed in the Wor
 
 >Acts 15:11 (CSB) On the contrary, we believe that we are saved through the grace of the Lord Jesus in the same way they are.”
 
-### What God Gives: The Infinite Might of His Salvation
+### 14.3 What God Gives: The Infinite Might of His Salvation
 
 This faith, although it be different in degrees, and may be weak or strong, yet it is in the least degree of it different in the kind or nature of it, as is all other saving grace, from the faith and common grace of temporary believers; and therefore, though it may be many times assailed and weakened, yet it gets the victory, growing up in many to the attainment of a full assurance through Christ, who is both the author and finisher of our faith.
 
