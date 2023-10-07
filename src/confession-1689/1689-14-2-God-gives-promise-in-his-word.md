@@ -4,6 +4,8 @@
 
 ## The Text
 
+>Matthew 4:4 (CSB) He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
+
 ## The Chapter
 
 By this faith a Christian believeth to be true whatsoever is revealed in the Word for the authority of God himself, and also apprehendeth an excellency therein above all other writings and all things in the world, as it bears forth the glory of God in his attributes, the excellency of Christ in his nature and offices, and the power and fullness of the Holy Spirit in his workings and operations: and so is enabled to cast his soul upon the truth thus believed; and also acteth differently upon that which each particular passage thereof containeth; yielding obedience to the commands, trembling at the threatenings, and embracing the promises of God for this life and that which is to come; but the principal acts of saving faith have immediate relation to Christ, accepting, receiving, and resting upon him alone for justification, sanctification, and eternal life, by virtue of the covenant of grace.
