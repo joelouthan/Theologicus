@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
-# Praying Through: Psalm 108
+# Praying Through: Psalm 108 Exalted
 
 ## The Psalm
 

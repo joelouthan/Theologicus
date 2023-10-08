@@ -517,7 +517,7 @@
   - [Psalm 105 Wondrous](psalms/psalm105.md)
   - [Psalm 106 Everlasting](psalms/psalm106.md)
   - [Psalm 107 All-in-all](psalms/psalm107.md)
-  - [Psalm 108](psalms/psalm108.md)
+  - [Psalm 108 Exalted](psalms/psalm108.md)
   - [Psalm 109](psalms/psalm109.md)
   - [Psalm 110](psalms/psalm110.md)
   - [Psalm 111](psalms/psalm111.md)
