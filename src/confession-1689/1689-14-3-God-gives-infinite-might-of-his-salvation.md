@@ -4,6 +4,8 @@
 
 ## The Text
 
+>Mark 9:22-24 (CSB) “And many times it has thrown him into fire or water to destroy him. But if you can do anything, have compassion on us and help us.” Jesus said to him, “ ‘If you can’? Everything is possible for the one who believes.” Immediately the father of the boy cried out, “I do believe; help my unbelief! ”
+
 ## The Chapter
 
 This faith, although it be different in degrees, and may be weak or strong, yet it is in the least degree of it different in the kind or nature of it, as is all other saving grace, from the faith and common grace of temporary believers; and therefore, though it may be many times assailed and weakened, yet it gets the victory, growing up in many to the attainment of a full assurance through Christ, who is both the author and finisher of our faith.
@@ -37,3 +39,5 @@ This faith, although it be different in degrees, and may be weak or strong, yet 
 ### who is both the author and finisher of our faith
 
 >Hebrews 12:2 (CSB) keeping our eyes on Jesus, the source and perfecter of our faith. For the joy that lay before him, he endured the cross, despising the shame, and sat down at the right hand of the throne of God.
+
+>Galatians 6:14 (CSB) But as for me, I will never boast about anything except the cross of our Lord Jesus Christ. The world has been crucified to me through the cross, and I to the world.
