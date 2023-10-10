@@ -4,7 +4,7 @@
 
 ## The Text
 
->Mark 9:22-24 (CSB) “And many times it has thrown him into fire or water to destroy him. But if you can do anything, have compassion on us and help us.” Jesus said to him, “ ‘If you can’? Everything is possible for the one who believes.” Immediately the father of the boy cried out, “I do believe; help my unbelief! ”
+>Mark 9:24 (CSB) Immediately the father of the boy cried out, “I do believe; help my unbelief!”
 
 ## The Chapter
 
@@ -29,6 +29,8 @@ This faith, although it be different in degrees, and may be weak or strong, yet 
 >Ephesians 6:16 (CSB) In every situation take up the shield of faith with which you can extinguish all the flaming arrows of the evil one.
 
 >1 John 5:4–5 (CSB) because everyone who has been born of God conquers the world. This is the victory that has conquered the world: our faith. And who is the one who conquers the world but the one who believes that Jesus is the Son of God?
+
+>Romans 8:31–37 (CSB) What, then, are we to say about these things? If God is for us, who is against us? He did not even spare his own Son but gave him up for us all. How will he not also with him grant us everything? Who can bring an accusation against God’s elect? God is the one who justifies. Who is the one who condemns? Christ Jesus is the one who died, but even more, has been raised; he also is at the right hand of God and intercedes for us. Who can separate us from the love of Christ? Can affliction or distress or persecution or famine or nakedness or danger or sword? As it is written: Because of you we are being put to death all day long; we are counted as sheep to be slaughtered. **No, in all these things we are more than conquerors through him who loved us.**
 
 ### growing up in many to the attainment of a full assurance through Christ
 
