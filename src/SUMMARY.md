@@ -115,7 +115,7 @@
   - [XIV. Of Saving Faith](confession-1689/1689-14-0-index.md)
     - [14.1 What God Gives: The Grace of Faith](confession-1689/1689-14-1-God-gives-grace-of-faith.md)
     - [14.2 What God Gives: The Promise in His Word](confession-1689/1689-14-2-God-gives-promise-in-his-word.md)
-    - [14.3 What God Gives: The Infinite Might of His Salvation](confession-1689/1689-14-3-God-gives-infinite-might-of-his-salvation.md)
+    - [14.3 What God Gives: God](confession-1689/1689-14-3-God-gives-God.md)
   - [XV. Of Repentance Unto Life and Salvation](confession-1689/1689-15-0-index.md)
   - [XVI. Of Good Works](confession-1689/1689-16-0-index.md)
   - [XVII. Of the Perseverance of the Saints](confession-1689/1689-17-0-index.md)
