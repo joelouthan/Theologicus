@@ -55,11 +55,11 @@ God came to us to save us from our sins:
 
 >Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
-Notice both at the end of Luke's account of the Lord's prayer.
+Notice at the end of Luke's account of the Lord's prayer:
 
 >Luke 11:9-13 (CSB) “So I say to you, ask, and it will be given to you. Seek, and you will find. Knock, and the door will be opened to you. For everyone who asks receives, and the one who seeks finds, and to the one who knocks, the door will be opened. What father among you, if his son asks for a fish, will give him a snake instead of a fish? Or if he asks for an egg, will give him a scorpion? If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him? ”
 
-My friend, I have zero guarantees in life but just this one: if you turn to God ask for God you will get God.
+My friend, I have zero guarantees in life but just this one: if you turn to God, ask for God, you will get God.
 
 You will get the Almighty God, Creator of heavens and the earth and hell. You will get the Lord who holds the entire universe actively with his mind. You will get God who alone is holy, holy, holy. You will get God who alone is love. You will get his only begotten Son who lived for us and by his bloodied gruesome death on the cross, conquered sin, Satan, demons, hell and death--put all of the forces of hell to open shame. You will get the true pure righteousness of Christ--when the Fathers looks upon you, he will truly declare what he once declare, "This is my son, in whom I am well-pleased." You will get the Spirit who will seal you and keep you and guide you and comfort you and teach you and remind you of all that Christ has done for you.
 
@@ -117,7 +117,25 @@ Christ spoke no lies. That absolutely came true. Peter, so sure that there would
 
 Peter had the little faith. How did Christ respond to him?
 
-Christ came to him, supped with him, and drew near to him.
+Christ came to him, supped with him, and drew near to him. And because God alone is wise and good, he kept Peter and restored Peter to the head of his church.
+
+Think about that. Our modern day sensibilies would have disqualified Peter for publicly deny his knowledge of Christ. Surely, you want to quote Christ:
+
+>Matthew 10:33 (CSB) But whoever denies me before others, I will also deny him before my Father in heaven.
+
+Oh, just like God spoke to Adam and told him, "if you eat of the tree, you will sure die?"
+
+But how does the Living God respond? Fast wrath or instant mercies?
+
+How did God respond to Adam and Eve? Instant mercies.
+
+How did Christ respond to Peter? Instant mercies.
+
+>1 John 1:9 (CSB) If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
+
+Turn to the Christ. Infinitely faster than you can snap your fingers, the Lord God Almighty will forgive you and make you righteous.
+
+Make no mistake: our sin is what nailed Christ to cross. But the children of God are going to sin--a lot. A lot. A lot. But the depth of my sin cannot overwhelm and cancel out the flood of the grace of Christ. We will sin but his grace upon grace abounds even more.
 
 Peter's self-assured, prideful, self-reliant self failed him over and over. But his tiny faith, given to him by Christ, was enough for Christ to come back to him over and over again.
 
