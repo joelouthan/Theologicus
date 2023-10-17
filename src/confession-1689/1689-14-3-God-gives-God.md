@@ -22,9 +22,9 @@ This faith, although it be different in degrees, and may be weak or strong, yet 
 
 Too many churches teach and too many Christians falsely believe that faith comes within themselves and generated from within themselves and it is all based on what they can do to strengthen their faith.
 
-Brother and sister, how is that working out? You have been told that if your faith is stronger, then God would do what you want him to do. How did that work out for you? That is because faith in the One True God is not Paganism. When it comes to the Father, Son, & Spirit, it is never that we do something or did not do something and God responds accordingly. No! Everything that God does is based on his own will and his own good pleasure. It is based on God who is maxed out good and maxed out wise.
+Brother and sister, how is that working out? You have been told that if your faith is stronger, then God would do what you want him to do. How did that work out for you? That is because faith in the One True God is not Paganism. When it comes to the Father, Son, & Spirit, it is never that we do something, did not do something and God responds accordingly. No! Everything that God does is based on his own will and his own good pleasure. It is based on God who is maxed out good and maxed out wise.
 
-And yes, he hears our prayers. Why? Even with your tiniest faith, you are in communion with the Triune God because of the mercy the Father has for your, sealed by the Spirit through the perfect life of the Son. You are in union with God. That is why he hears your prayers. Not because of your faith, but because of his mercy.
+And yes, he hears our prayers. Why? Even with your tiniest faith, you are in communion with the Triune God because of the mercy the Father has for you, sealed by the Spirit through the perfect life of the Son. You are in union with God. That is why he hears your prayers. Not because of your faith, but because of his mercy that he is so willing to lavish on us. And we know this to be absolutely true because gave his only begotten Son--not just once but forever and ever.
 
 ### yet it is in the least degree of it different in the kind or nature of it, as is all other saving grace, from the faith and common grace of temporary believers
 
