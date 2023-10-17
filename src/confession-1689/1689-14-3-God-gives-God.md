@@ -139,4 +139,4 @@ Make no mistake: our sin is what nailed Christ to cross. But the children of God
 
 Peter's self-assured, prideful, self-reliant self failed him over and over. But his tiny faith, given to him by Christ, was enough for Christ to come back to him over and over again.
 
-God knows that we are weak. God knows we are little. God knows that we will get swayed by every wind of doctrine. He knew this. That is why he sent his Almighty Son to live and die for us.
+God knows that we are weak. God knows we are little. God knows that we will get swayed by every wind of doctrine. He knew this. That is why he sent his Almighty Son to live and die for us so that we would be with him for all of eternity. Amen.
