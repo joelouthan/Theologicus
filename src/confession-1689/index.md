@@ -1268,13 +1268,13 @@ This faith, although it be different in degrees, and may be weak or strong, yet 
 
 ## Chapter 15: Of Repentance Unto Life and Salvation
 
-### God Gives More: Repentance
+### 15.1 God Gives More: Repentance
 
 Such of the elect as are converted at riper years, having sometime lived in the state of nature, and therein served divers lusts and pleasures, God in their effectual calling giveth them repentance unto life.
 
->Titus 3:2–5 (CSB) to slander no one, to avoid fighting, and to be kind, always showing gentleness to all people. For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit.
+>Titus 3:3–7 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior so that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
-### God Gives More: Renewal
+### 15.2 God Gives More: Renewal
 
 Whereas there is none that doth good and sinneth not, and the best of men may, through the power and deceitfulness of their corruption dwelling in them, with the prevalency of temptation, fall into great sins and provocations; God hath, in the covenant of grace, mercifully provided that believers so sinning and falling be renewed through repentance unto salvation.
 
@@ -1282,7 +1282,7 @@ Whereas there is none that doth good and sinneth not, and the best of men may, t
 
 >Luke 22:31–32 (CSB) “Simon, Simon, look out. Satan has asked to sift you like wheat. But I have prayed for you that your faith may not fail. And you, when you have turned back, strengthen your brothers.”
 
-### God Gives More: Spirit
+### 15.3 God Gives More: Spirit
 
 This saving repentance is an evangelical grace, whereby a person, being by the Holy Spirit made sensible of the manifold evils of his sin, doth, by faith in Christ, humble himself for it with godly sorrow, detestation of it, and self-abhorrency, praying for pardon and strength of grace, with a purpose and endeavour, by supplies of the Spirit, to walk before God unto all well-pleasing in all things.
 
@@ -1298,7 +1298,7 @@ This saving repentance is an evangelical grace, whereby a person, being by the H
 
 >Psalm 119:128 (CSB) I carefully follow all your precepts and hate every false way.
 
-### God Gives More: Ongoing
+### 15.4 God Gives More: Ongoing
 
 As repentance is to be continued through the whole course of our lives, upon the account of the body of death, and the motions thereof, so it is every man's duty to repent of his particular known sins particularly.
 
@@ -1306,7 +1306,7 @@ As repentance is to be continued through the whole course of our lives, upon the
 
 >1 Timothy 1:13–15 (CSB) even though I was formerly a blasphemer, a persecutor, and an arrogant man. But I received mercy because I acted out of ignorance in unbelief, and the grace of our Lord overflowed, along with the faith and love that are in Christ Jesus. This saying is trustworthy and deserving of full acceptance: “Christ Jesus came into the world to save sinners”—and I am the worst of them.
 
-### God Gives More: Preservation
+### 15.5 God Gives More: Preservation
 
 Such is the provision which God hath made through Christ in the covenant of grace for the preservation of believers unto salvation; that although there is no sin so small but it deserves damnation; yet there is no sin so great that it shall bring damnation on them that repent; which makes the constant preaching of repentance necessary.
 
