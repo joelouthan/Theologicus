@@ -39,6 +39,8 @@ And throughout my life, I never turned away from porn and anger and resentment a
 
 And I was a slave to my own addiction. And when the Internet came about, it was a tool that fed my addiction on a rate that no one could have ever imagined. (So much so, I actually distributed porn on the Internet for a while. If you had ever looked at porn in the early 2000s, chances are it was from the work I produced.)
 
+---
+
 ### are converted at riper years, having sometime lived in the state of nature, and therein served divers lusts and pleasures
 
 This was absolutely me. Early in my 20s, I was already given over to my own sin. (Romans 1:21-25). And I always claimed to know God but why and how? Just because I raised my hand back in Children's Church when asked if you didn't want to go to hell.
@@ -212,6 +214,8 @@ I have been saved for about 17 years. Every day of my saved life I have had to c
 >John 3:14–17 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life. For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
 
 >John 3:36 (CSB) The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
+
+---
 
 ### God in their effectual calling giveth them repentance unto life.
 
