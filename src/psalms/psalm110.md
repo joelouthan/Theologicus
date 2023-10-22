@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
-# Praying Through: Psalm 110
+# Praying Through: Psalm 110 Conquerer
 
 ## The Psalm
 
@@ -27,3 +27,28 @@
 Lord
 </div>
 
+I was a long rejector
+  of your great gospel
+  a treason traitor
+  of your great rule
+  a magnificient hater
+  of your great love
+  a terrible sinner
+  of your great holiness.
+
+But you have conquered
+  my greatest and only enemy
+  my own sin
+  and have put my sin to open shame
+  because you have taken my sin upon yourself
+  and exposed yourself to open shame
+  for my sake
+  for my sake
+  you died
+  so I might live to you forever.
+
+Be glorified
+  in my life
+  today.
+
+Amen.
