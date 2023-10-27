@@ -140,9 +140,9 @@ You know God commands you to repent. But how can he command you to do something 
 
 Lift your head, turn your eyes upon the Christ. He is the author and perfecter of your faith. (Hebrews 12:2) He is the one who gives you the faith to repent. (Acts 11:18) He is the one who gives you the faith to believe. (Ephesians 2:8-9) He is the one who gives you the faith to trust. (Romans 10:17)
 
-You are deep in your sins? Take your eyes off yourself because you cannot save yourself! You are a vile and wicked sinner. You need someone good and holy outside of yourself to save you. Every time you want to look to yourself to save yourself, you will only find more sin and more wickedness. But look upon Christ and be saved. For:
+You are deep in your sins? Take your eyes off yourself because you cannot save yourself! You are a vile and wicked sinner. You need someone good and holy outside of yourself to save you. Every time you want to look to yourself to save yourself, you will only find more sin and more wickedness.
 
->John 3:14–15 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
+But just like Moses lifted the brazen serpent into the air for the Israelites to be saved from the venomous results of their own sin, so too the Son of Man will be lifted up so that his people can be raised from life, indwelt with God himself, and cleansed from all unrighteousness. It is only then can we turn our eyes upon Jesus and be saved!
 
 >Turn your eyes upon Jesus  
 >Look full in his wonderful face  
