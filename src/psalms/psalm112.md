@@ -1,8 +1,29 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
-# Praying Through: Psalm 112
+# Praying Through: Psalm 112 Light
 
 ## The Psalm
+
+>Psalm 112 (CSB)  
+><sup>1</sup> Hallelujah! Happy is the person who fears the LORD, taking great delight in his commands. 
+>
+><sup>2</sup> His descendants will be powerful in the land; the generation of the upright will be blessed. 
+>
+><sup>3</sup> Wealth and riches are in his house, and his righteousness endures forever. 
+>
+><sup>4</sup> Light shines in the darkness for the upright. He is gracious, compassionate, and righteous. 
+>
+><sup>5</sup> Good will come to the one who lends generously and conducts his business fairly. 
+>
+><sup>6</sup> He will never be shaken. The righteous one will be remembered forever. 
+>
+><sup>7</sup> He will not fear bad news; his heart is confident, trusting in the LORD. 
+>
+><sup>8</sup> His heart is assured; he will not fear. In the end he will look in triumph on his foes. 
+>
+><sup>9</sup> He distributes freely to the poor; his righteousness endures forever. His horn will be exalted in honor. 
+>
+><sup>10</sup> The wicked one will see it and be angry; he will gnash his teeth in despair. The desire of the wicked leads to ruin.
 
 ## The Prayer
 

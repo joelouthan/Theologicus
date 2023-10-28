@@ -526,7 +526,7 @@
   - [Psalm 109 Merciful](psalms/psalm109.md)
   - [Psalm 110 Conquerer](psalms/psalm110.md)
   - [Psalm 111 Great](psalms/psalm111.md)
-  - [Psalm 112](psalms/psalm112.md)
+  - [Psalm 112 Light](psalms/psalm112.md)
   - [Psalm 113](psalms/psalm113.md)
   - [Psalm 114](psalms/psalm114.md)
   - [Psalm 115](psalms/psalm115.md)

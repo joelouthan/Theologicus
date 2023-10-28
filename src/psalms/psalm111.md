@@ -31,3 +31,24 @@
 Lord
 </div>
 
+You have sent redemption
+  to me
+
+You have kept your promise
+  to me
+
+You have been compassionate
+  and merciful
+  to me
+
+Because you have given me
+  your precious Son
+  Jesus Christ
+  forever and ever.
+
+I will worship you
+  and praise you alone
+  for you name is great
+  and greatly to be praised.
+
+Amen.
