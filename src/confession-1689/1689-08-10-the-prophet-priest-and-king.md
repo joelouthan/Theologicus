@@ -4,7 +4,8 @@
 
 ## The Text
 
-TODO:
+>John 19:19-22 (CSB) Pilate also had a sign made and put on the cross. It said: JESUS OF NAZARETH, THE KING OF THE JEWS. Many of the Jews read this sign, because the place where Jesus was crucified was near the city, and it was written in Aramaic, Latin, and Greek. So the chief priests of the Jews said to Pilate, “Don’t write, ‘The king of the Jews,’ but that he said, ‘I am the king of the Jews.’ ”
+Pilate replied, “What I have written, I have written.”
 
 ## The Chapter
 
