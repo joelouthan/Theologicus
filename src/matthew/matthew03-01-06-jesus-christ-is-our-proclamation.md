@@ -2,6 +2,10 @@
 
 # Matthew 3:1-6 Jesus Christ is Our Proclamation
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?*
+
+*Trying to answer the question, "How is Jesus Christ our All-in-all?*
+
 ## The Text
 
 >Matthew 3:1–6 (CSB)  

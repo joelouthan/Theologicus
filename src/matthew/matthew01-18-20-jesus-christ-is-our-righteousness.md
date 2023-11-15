@@ -2,6 +2,8 @@
 
 # Matthew 1:18-20 Jesus Christ is Our Righteousness
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?*
+
 ## The Text
 
 >Matthew 1:18-20 (CSB) The birth of Jesus Christ came about this way: After his mother Mary had been engaged to Joseph, it was discovered before they came together that she was pregnant from the Holy Spirit. So her husband, Joseph, being a righteous man, and not wanting to disgrace her publicly, decided to divorce her secretly.

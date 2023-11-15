@@ -2,6 +2,8 @@
 
 # Matthew 1:21 Jesus Christ is Our Savior
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?*
+
 ## The Text
 
 >Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”

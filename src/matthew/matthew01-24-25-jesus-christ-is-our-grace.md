@@ -2,6 +2,8 @@
 
 # Matthew 1:24-25 Jesus Christ is Our Grace
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?*
+
 ## The Text
 
 > Matthew 1:24-25 (CSB) When Joseph woke up, he did as the Lord’s angel had commanded him. He married her but did not have sexual relations with her until she gave birth to a son. And he named him Jesus.

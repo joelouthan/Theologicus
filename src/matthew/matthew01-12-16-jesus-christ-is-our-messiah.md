@@ -2,6 +2,8 @@
 
 # Matthew 1:12-16 Jesus Christ is Our Messiah
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?*
+
 ## The Text
 
 >Matthew 1:12–16 (CSB)  

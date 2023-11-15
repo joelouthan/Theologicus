@@ -2,6 +2,8 @@
 
 # Matthew 1:7–12 Jesus Christ is Our Lineage
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?*
+
 ## The Text
 
 >Matthew 1:7–11 (CSB)  

@@ -2,6 +2,8 @@
 
 # Matthew 1:17 Jesus Christ is Our God
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?*
+
 ## The Text
 
 >Matthew 1:17 (CSB) So all the generations from Abraham to David were fourteen generations; and from David until the exile to Babylon, fourteen generations; and from the exile to Babylon until the Messiah, fourteen generations.

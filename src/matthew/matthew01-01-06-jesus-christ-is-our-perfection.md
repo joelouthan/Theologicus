@@ -2,6 +2,8 @@
 
 # Matthew 1:1-6 Jesus Christ is Our Perfection
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?*
+
 ## The Text
 
 >Matthew 1:1–6 (CSB)  

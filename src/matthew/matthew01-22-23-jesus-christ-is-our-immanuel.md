@@ -2,6 +2,8 @@
 
 # Matthew 1:22-23 Jesus Christ is Our Immanuel
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?*
+
 ## The Text
 
 >Matthew 1:22-23 (CSB) Now all this took place to fulfill what was spoken by the Lord through the prophet:  

@@ -2,6 +2,8 @@
 
 # Matthew 1:1 Jesus Christ is the Good News
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?*
+
 ## The Text
 
 >Matthew 1:1 (CSB) An account of the genealogy of Jesus Christ, the Son of David, the Son of Abraham
