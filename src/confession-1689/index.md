@@ -1318,49 +1318,133 @@ Such is the provision which God hath made through Christ in the covenant of grac
 
 ## Chapter 16: Of Good Works
 
-### 
+### 16.1 God Gives Abundantly: Goodness
 
-Good works are only such as God hath commanded in his Holy Word, and not such as without the warrant thereof are devised by men out of blind zeal, or upon any pretence of good intentions.
+Good works are only such as God has commanded in his Holy Word, and not such as without the warrant thereof are devised by men out of blind zeal, or upon any pretense of good intentions.
 
-Micah 6:8; Hebrews 13:21; Matthew 15:9; Isaiah 29:13
+>Micah 6:8 (CSB) Mankind, he has told each of you what is good and what it is the LORD requires of you: to act justly, to love faithfulness, and to walk humbly with your God.
 
-### 
+>Hebrews 13:21 (CSB) equip you with everything good to do his will, working in us what is pleasing in his sight, through Jesus Christ, to whom be glory forever and ever. Amen.
 
-These good works, done in obedience to God's commandments, are the fruits and evidences of a true and lively faith; and by them believers manifest their thankfulness, strengthen their assurance, edify their brethren, adorn the profession of the gospel, stop the mouths of the adversaries, and glorify God, whose workmanship they are, created in Christ Jesus thereunto, that having their fruit unto holiness they may have the end eternal life.
+>Matthew 15:9 (CSB) They worship me in vain, teaching as doctrines human commands.”
 
-James 2:18-22; Psalms 116:12-13; 1 John 2:3-5; 2 Peter 1:5-11; Matthew 5:16; 1 Timothy 6:1; 1 Peter 2:15; Philippians 1:11; Ephesians 2:10; Romans 6:22
+>Isaiah 29:13 (CSB) The Lord said: These people approach me with their speeches to honor me with lip-service, yet their hearts are far from me, and human rules direct their worship of me.
 
-### 
+### 16.2 God Gives Abundantly: Christ
 
-Their ability to do good works is not at all of themselves, but wholly from the Spirit of Christ; and that they may be enabled thereunto, besides the graces they have already received, there is necessary an actual influence of the same Holy Spirit, to work in them to will and to do of his good pleasure; yet they are not hereupon to grow negligent, as if they were not bound to perform any duty, unless upon a special motion of the Spirit, but they ought to be diligent in stirring up the grace of God that is in them.
+These good works, done in obedience to God’s commandments, are the fruits and evidences of a true and lively faith; and by them believers manifest their thankfulness, strengthen their assurance, edify their brethren, adorn the profession of the gospel, stop the mouths of the adversaries, and glorify God, whose workmanship they are, created in Christ Jesus thereunto, that having their fruit unto holiness they may have the end eternal life.
 
-John 15:4-5; 2 Corinthians 3:5; Philippians 2:13; Philippians 2:12; Hebrews 6:11-12; Isaiah 64:7
+>James 2:18 (CSB) But someone will say, “You have faith, and I have works.” Show me your faith without works, and I will show you faith by my works.
 
-### 
+>James 2:22 (CSB) You see that faith was active together with his works, and by works, faith was made complete,
+
+>Psalm 116:12–13 (CSB) How can I repay the LORD for all the good he has done for me? I will take the cup of salvation and call on the name of the LORD.
+
+>1 John 2:3 (CSB) This is how we know that we know him: if we keep his commands.
+
+>1 John 2:5 (CSB) But whoever keeps his word, truly in him the love of God is made complete. This is how we know we are in him:
+
+>2 Peter 1:5–11 (CSB) For this very reason, make every effort to supplement your faith with goodness, goodness with knowledge, knowledge with self-control, self-control with endurance, endurance with godliness, godliness with brotherly affection, and brotherly affection with love. For if you possess these qualities in increasing measure, they will keep you from being useless or unfruitful in the knowledge of our Lord Jesus Christ. The person who lacks these things is blind and shortsighted and has forgotten the cleansing from his past sins. Therefore, brothers and sisters, make every effort to confirm your calling and election, because if you do these things you will never stumble. For in this way, entry into the eternal kingdom of our Lord and Savior Jesus Christ will be richly provided for you.
+
+>Matthew 5:16 (CSB) In the same way, let your light shine before others, so that they may see your good works and give glory to your Father in heaven.
+
+>1 Timothy 6:1 (CSB) All who are under the yoke as slaves should regard their own masters as worthy of all respect, so that God’s name and his teaching will not be blasphemed.
+
+>1 Peter 2:15 (CSB) For it is God’s will that you silence the ignorance of foolish people by doing good.
+
+>Philippians 1:11 (CSB) filled with the fruit of righteousness that comes through Jesus Christ to the glory and praise of God.
+
+>Ephesians 2:10 (CSB) For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
+
+>Romans 6:22 (CSB) But now, since you have been set free from sin and have become enslaved to God, you have your fruit, which results in sanctification—and the outcome is eternal life!
+
+### 16.3 God Gives Abundantly: Spirit
+
+Their ability to do good works is not all of themselves, but wholly from the Spirit of Christ; and that they may be enabled thereunto, besides the graces they have already received, there is necessary an actual influence of the same Holy Spirit, to work in them and to will and to do of his good pleasure; yet they are not bound to perform any duty, unless upon a special motion of the Spirit, but they ought to be diligent in stirring up the grace of God that is in them.
+
+>John 15:4–5 (CSB) Remain in me, and I in you. Just as a branch is unable to produce fruit by itself unless it remains on the vine, neither can you unless you remain in me. I am the vine; you are the branches. The one who remains in me and I in him produces much fruit, because you can do nothing without me.
+
+>2 Corinthians 3:5 (CSB) It is not that we are competent in ourselves to claim anything as coming from ourselves, but our adequacy is from God.
+
+>Philippians 2:13 (CSB) For it is God who is working in you both to will and to work according to his good purpose.
+
+>Philippians 2:12 (CSB) Therefore, my dear friends, just as you have always obeyed, so now, not only in my presence but even more in my absence, work out your own salvation with fear and trembling.
+
+>Hebrews 6:11–12 (CSB) Now we desire each of you to demonstrate the same diligence for the full assurance of your hope until the end, so that you won’t become lazy but will be imitators of those who inherit the promises through faith and perseverance.
+
+>Isaiah 64:7 (CSB) No one calls on your name, striving to take hold of you. For you have hidden your face from us and made us melt because of our iniquity.
+
+### 16.4 God Gives Abundantly: Truly
 
 They who in their obedience attain to the greatest height which is possible in this life, are so far from being able to supererogate, and to do more than God requires, as that they fall short of much which in duty they are bound to do.
 
-Job 9:2-3; Galatians 5:17; Luke 17:10
+>Job 9:2–3 (CSB) Yes, I know what you’ve said is true, but how can a person be justified before God? If one wanted to take him to court, he could not answer God once in a thousand times.
 
-### 
+>Galatians 5:17 (CSB) For the flesh desires what is against the Spirit, and the Spirit desires what is against the flesh; these are opposed to each other, so that you don’t do what you want.
 
-We cannot by our best works merit pardon of sin or eternal life at the hand of God, by reason of the great disproportion that is between them and the glory to come, and the infinite distance that is between us and God, whom by them we can neither profit nor satisfy for the debt of our former sins; but when we have done all we can, we have done but our duty, and are unprofitable servants; and because as they are good they proceed from his Spirit, and as they are wrought by us they are defiled and mixed with so much weakness and imperfection, that they cannot endure the severity of God's punishment.
+>Luke 17:10 (CSB) In the same way, when you have done all that you were commanded, you should say, ‘We are unworthy servants; we’ve only done our duty.’ ”
 
-Romans 3:20; Ephesians 2:8-9; Romans 4:6; Galatians 5:22-23; Isaiah 64:6; Psalms 143:2
+### 16.5 God Gives Abundantly: Salvation
 
-### 
+We cannot by our best works merit pardon of sin or eternal life at the hand of God, by reason of the great disproportion that is between them and the glory to come, and the infinite distance that is between us and God, whom by them we can neither profit nor satisfy for the debt of our former sins; but when we have done all we can, we have done but our duty, and are unprofitable servants; and because they are good they proceed from his Spirit, and as they are wrought by us they are defiled and mixed with so much weekness and imperfection, that they cannot endure the severity of God’s punishment.
 
-Yet notwithstanding the persons of believers being accepted through Christ, their good works also are accepted in him; not as though they were in this life wholly unblameable and unreprovable in God's sight, but that he, looking upon them in his Son, is pleased to accept and reward that which is sincere, although accompanied with many weaknesses and imperfections.
+>Romans 3:20 (CSB) For no one will be justified in his sight by the works of the law, because the knowledge of sin comes through the law.
 
-Ephesians 1:6; 1 Peter 2:5; Matthew 25:21-23; Hebrews 6:10
+>Ephesians 2:8–9 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—not from works, so that no one can boast.
 
-### 
+>Romans 4:6 (CSB) Likewise, David also speaks of the blessing of the person to whom God credits righteousness apart from works:
 
-Works done by unregenerate men, although for the matter of them they may be things which God commands, and of good use both to themselves and others; yet because they proceed not from a heart purified by faith, nor are done in a right manner according to the word, nor to a right end, the glory of God, they are therefore sinful, and cannot please God, nor make a man meet to receive grace from God, and yet their neglect of them is more sinful and displeasing to God.
+>Galatians 5:22–23 (CSB) But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control. The law is not against such things.
 
-2 Kings 10:30; 1 Kings 21:27-29; Genesis 4:5; Hebrews 11:4-6; 1 Corinthians 13:1; Matthew 6:2-5; Amos 5:21,
-                                        
-22; Romans 9:16; Titus 3:5; Job 21:14-15; Matthew 25:41-43
+>Isaiah 64:6 (CSB) All of us have become like something unclean, and all our righteous acts are like a polluted garment; all of us wither like a leaf, and our iniquities carry us away like the wind.
+
+>Psalm 43:2 (CSB) For you are the God of my refuge. Why have you rejected me? Why must I go about in sorrow because of the enemy’s oppression?
+
+### 16.6 God Gives Abundantly: Righteousness
+
+Yet notwithstanding the persons of believers being accepted through Christ, their good works also are accepted in him; not as though they were in this life wholly unblamable and unreprovable in God’s sight, but that he, looking upon them in his Son, is pleased to accept and reward that which is sincere, although accompanied with many weaknesses and imperfections.
+
+>Ephesians 1:5 (CSB) He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will,
+
+>1 Peter 1:5 (CSB) You are being guarded by God’s power through faith for a salvation that is ready to be revealed in the last time.
+
+>Matthew 25:21 (CSB) “His master said to him, ‘Well done, good and faithful servant! You were faithful over a few things; I will put you in charge of many things. Share your master’s joy.’
+
+>Matthew 25:23 (CSB) “His master said to him, ‘Well done, good and faithful servant! You were faithful over a few things; I will put you in charge of many things. Share your master’s joy.’
+
+>Hebrews 6:10 (CSB) For God is not unjust; he will not forget your work and the love you demonstrated for his name by serving the saints—and by continuing to serve them.
+
+### 16.7 God Gives Abundantly: Grace
+
+Works done by unregenerate men, although for the matter of them they may be things which God commands, and of good use both to themselves and to others; yet because they proceed not from a heart purified by faith, nor are done in a right manner according to the Word, nor to a right end, the glory of God, they are therfore sinful, and cannot please God, nor make a man meet to receive the grace from God, and yet their neglect for them is more sinful and displeasing to God.
+
+>2 Kings 10:30 (CSB) Nevertheless, the LORD said to Jehu, “Because you have done well in carrying out what is right in my sight and have done to the house of Ahab all that was in my heart, four generations of your sons will sit on the throne of Israel.”
+
+>1 Kings 21:27 (CSB) When Ahab heard these words, he tore his clothes, put sackcloth over his body, and fasted. He lay down in sackcloth and walked around subdued.
+
+>1 Kings 21:29 (CSB) “Have you seen how Ahab has humbled himself before me? I will not bring the disaster during his lifetime, because he has humbled himself before me. I will bring the disaster on his house during his son’s lifetime.”
+
+>Genesis 4:5 (CSB) but he did not have regard for Cain and his offering. Cain was furious, and he looked despondent.
+
+>Hebrews 11:4 (CSB) By faith Abel offered to God a better sacrifice than Cain did. By faith he was approved as a righteous man, because God approved his gifts, and even though he is dead, he still speaks through his faith.
+
+>Hebrews 11:6 (CSB) Now without faith it is impossible to please God, since the one who draws near to him must believe that he exists and that he rewards those who seek him.
+
+>1 Corinthians 13:1 (CSB) If I speak human or angelic tongues but do not have love, I am a noisy gong or a clanging cymbal.
+
+>Matthew 6:2 (CSB) So whenever you give to the poor, don’t sound a trumpet before you, as the hypocrites do in the synagogues and on the streets, to be applauded by people. Truly I tell you, they have their reward.
+
+>Matthew 6:5 (CSB) “Whenever you pray, you must not be like the hypocrites, because they love to pray standing in the synagogues and on the street corners to be seen by people. Truly I tell you, they have their reward.
+
+>Amos 5:21–22 (CSB) I hate, I despise, your feasts! I can’t stand the stench of your solemn assemblies. Even if you offer me your burnt offerings and grain offerings, I will not accept them; I will have no regard for your fellowship offerings of fattened cattle.
+
+>Romans 9:16 (CSB) So then, it does not depend on human will or effort but on God who shows mercy.
+
+>Titus 3:5 (CSB) he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit.
+
+>Job 21:14–15 (CSB) Yet they say to God, “Leave us alone! We don’t want to know your ways. Who is the Almighty, that we should serve him, and what will we gain by pleading with him?”
+
+>Matthew 25:41–43 (CSB) “Then he will also say to those on the left, ‘Depart from me, you who are cursed, into the eternal fire prepared for the devil and his angels! For I was hungry and you gave me nothing to eat; I was thirsty and you gave me nothing to drink; I was a stranger and you didn’t take me in; I was naked and you didn’t clothe me, sick and in prison and you didn’t take care of me.
 
 ## Chapter 17: Of The Perseverance of the Saints
 
