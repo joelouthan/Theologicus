@@ -1386,7 +1386,7 @@ They who in their obedience attain to the greatest height which is possible in t
 
 ### 16.5 God Gives Abundantly: Salvation
 
-We cannot by our best works merit pardon of sin or eternal life at the hand of God, by reason of the great disproportion that is between them and the glory to come, and the infinite distance that is between us and God, whom by them we can neither profit nor satisfy for the debt of our former sins; but when we have done all we can, we have done but our duty, and are unprofitable servants; and because they are good they proceed from his Spirit, and as they are wrought by us they are defiled and mixed with so much weekness and imperfection, that they cannot endure the severity of God’s punishment.
+We cannot by our best works merit pardon of sin or eternal life at the hand of God, by reason of the great disproportion that is between them and the glory to come, and the infinite distance that is between us and God, whom by them we can neither profit nor satisfy for the debt of our former sins; but when we have done all we can, we have done but our duty, and are unprofitable servants; and because they are good they proceed from his Spirit, and as they are wrought by us they are defiled and mixed with so much weakness and imperfection, that they cannot endure the severity of God’s punishment.
 
 >Romans 3:20 (CSB) For no one will be justified in his sight by the works of the law, because the knowledge of sin comes through the law.
 
