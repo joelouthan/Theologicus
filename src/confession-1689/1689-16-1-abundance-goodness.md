@@ -10,13 +10,13 @@ Good works are only such as God has commanded in his Holy Word, and not such as 
 
 ## The Confession
 
-### Only God is good: Good works are only such as God has commanded in his Holy Word
+### Only God is Good: Good works are only such as God has commanded in his Holy Word
 
 >Micah 6:8 (CSB) Mankind, he has told each of you what is good and what it is the LORD requires of you: to act justly, to love faithfulness, and to walk humbly with your God.
 
 >Hebrews 13:21 (CSB) equip you with everything good to do his will, working in us what is pleasing in his sight, through Jesus Christ, to whom be glory forever and ever. Amen.
 
-### Only God is good: and not such as without the warrant thereof are devised by men out of blind zeal, or upon any pretense of good intentions
+### Only God is Good: and not such as without the warrant thereof are devised by men out of blind zeal, or upon any pretense of good intentions
 
 >Matthew 15:9 (CSB) They worship me in vain, teaching as doctrines human commands.”
 
