@@ -27,3 +27,41 @@
 Lord
 </div>
 
+**YOU HAVE BEEN MERCIFUL TO ME!**
+
+**YOU HAVE BEEN GRACIOUS TO ME!**
+
+**YOU HAVE BEEN SO LOVING TO ME!**
+
+**I HAVE SINNED AGAINST YOU AND ONLY YOU!**
+
+**I HAVE SINNED AGAINST YOU AND ONLY YOU!**
+
+**I HAVE SINNED AGAINST YOU AND ONLY YOU!**
+
+**I HAVE SINNED AGAINST YOU AND ONLY YOU!**
+
+**HOW DID YOU RESPOND TO MY WICKEDNESS?**
+
+**YOU SENT YOUR SON TO SAVE ME FROM MY GRIEVOUS SINS!**
+
+**YOU LOVE ME!**
+
+**YOU LOVE ME!**
+
+**YOU LOVE ME!**
+
+**YOU LOVE ME!**
+
+**YOU LOVE ME!**
+
+**YOU LOVE ME!**
+
+**YOU LOVE ME!**
+
+I will always forget your love for me.
+
+But you will never stop loving me
+  because you never started loving me.
+
+Amen.
