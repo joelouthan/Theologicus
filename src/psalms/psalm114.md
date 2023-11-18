@@ -4,6 +4,23 @@
 
 ## The Psalm
 
+>Psalm 114 (CSB)  
+><sup>1</sup> When Israel came out of Egypt— the house of Jacob from a people who spoke a foreign language— 
+>
+><sup>2</sup> Judah became his sanctuary, Israel, his dominion. 
+>
+><sup>3</sup> The sea looked and fled; the Jordan turned back. 
+>
+><sup>4</sup> The mountains skipped like rams, the hills, like lambs. 
+>
+><sup>5</sup> Why was it, sea, that you fled? Jordan, that you turned back? 
+>
+><sup>6</sup> Mountains, that you skipped like rams? Hills, like lambs? 
+>
+><sup>7</sup> Tremble, earth, at the presence of the Lord, at the presence of the God of Jacob, 
+>
+><sup>8</sup> who turned the rock into a pool, the flint into a spring.
+
 ## The Prayer
 
 <div style="font-variant: small-caps;">
