@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
-# Praying Through: Psalm 114
+# Praying Through: Psalm 114 Saving
 
 ## The Psalm
 
