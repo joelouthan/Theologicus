@@ -47,25 +47,25 @@
 Lord
 </div>
 
-I have cling mightily
-  to my worthless idols
-  to my wicked deeds
-  to my selfish desires
+I have cling mightily  
+  to my worthless idols  
+  to my wicked deeds  
+  to my selfish desires  
   to my own righteousness
 
-And you
-  you alone
-  have rescued me
-  from the pit I have dug
-  from the sin I have committed
-  from the death I have earned
+And you  
+  you alone  
+  have rescued me  
+  from the pit I have dug  
+  from the sin I have committed  
+  from the death I have earned  
   from the hell I have deserved
 
-In my little life
-  be glorified
-  I have nowhere else to turn
-  you alone
-  have the words
+In my little life  
+  be glorified  
+  I have nowhere else to turn  
+  you alone  
+  have the words  
   to eternal life
 
 Amen.
