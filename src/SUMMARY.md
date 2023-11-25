@@ -536,7 +536,7 @@
   - [Psalm 112 Light](psalms/psalm112.md)
   - [Psalm 113 Loving](psalms/psalm113.md)
   - [Psalm 114 Saving](psalms/psalm114.md)
-  - [Psalm 115](psalms/psalm115.md)
+  - [Psalm 115 Trustworthy](psalms/psalm115.md)
   - [Psalm 116](psalms/psalm116.md)
   - [Psalm 117](psalms/psalm117.md)
   - [Psalm 118](psalms/psalm118.md)

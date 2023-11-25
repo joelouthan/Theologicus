@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
-# Praying Through: Psalm 115 Trusting
+# Praying Through: Psalm 115 Trustworthy
 
 ## The Psalm
 
