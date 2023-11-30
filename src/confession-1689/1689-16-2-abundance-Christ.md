@@ -4,6 +4,8 @@
 
 ## The Text
 
+>John 10:10 (CSB) A thief comes only to steal and kill and destroy. I have come so that they may have life and have it in abundance.
+
 ## The Chapter
 
 These good works, done in obedience to God’s commandments, are the fruits and evidences of a true and lively faith; and by them believers manifest their thankfulness, strengthen their assurance, edify their brethren, adorn the profession of the gospel, stop the mouths of the adversaries, and glorify God, whose workmanship they are, created in Christ Jesus thereunto, that having their fruit unto holiness they may have the end eternal life.
