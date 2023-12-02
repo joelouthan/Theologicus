@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
-# Praying Through: Psalm 116
+# Praying Through: Psalm 116 Compassionate
 
 ## The Psalm
 
@@ -45,7 +45,28 @@
 
 ## The Prayer
 
-<div style="font-variant: small-caps;">
-Lord
+<div style="font-weight: 950">
+LORD
 </div>
 
+**YOU**
+
+**HAVE**
+
+**SAVED**
+
+**ME!**
+
+**I**
+
+**WILL**
+
+**BLESS**
+
+**YOUR**
+
+**HOLY**
+
+**NAME**
+
+**FOREVER!**
