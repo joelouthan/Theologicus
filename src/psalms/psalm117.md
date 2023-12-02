@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
-# Praying Through: Psalm
+# Praying Through: Psalm 117 Glorified
 
 ## The Psalm
 

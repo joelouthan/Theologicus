@@ -45,28 +45,30 @@
 
 ## The Prayer
 
-<div style="font-weight: 950">
+<div style="font-weight: 950; font-size: 30px; text-align: center;">
 LORD
+
+YOU
+
+HAVE
+
+SAVED
+
+ME!
+
+SO I
+
+WILL
+
+BLESS
+
+YOUR
+
+HOLY
+
+NAME
+
+FOREVER!
+
+AMEN!
 </div>
-
-**YOU**
-
-**HAVE**
-
-**SAVED**
-
-**ME!**
-
-**I**
-
-**WILL**
-
-**BLESS**
-
-**YOUR**
-
-**HOLY**
-
-**NAME**
-
-**FOREVER!**
