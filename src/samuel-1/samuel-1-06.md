@@ -4,9 +4,14 @@
 
 ## The Word
 
+## The Passage
+
+---
+
 ## The Study
 
-### 
+###
+
+---
 
 ## The Psalm
-
