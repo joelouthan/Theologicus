@@ -1,10 +1,10 @@
 <img class="intro-right" src="/images/art-matthew.jpg">
 
-# Matthew 2 Jesus Christ is Our King of Kings
+# Matthew 2 Jesus Christ is Our King
 
 *Trying to answer the question, "How is Jesus Christ our All-in-all?*
 
-## Matthew 2:1-12 He is Our King
+## Matthew 2:1-12 He is Our Ruler
 
 ### The Text
 
