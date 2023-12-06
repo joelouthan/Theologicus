@@ -45,9 +45,7 @@ So, what makes us think we get to choose what is good and then do our chosen goo
 
 >Isaiah 29:13 (CSB) The Lord said: These people approach me with their speeches to honor me with lip-service, yet their hearts are far from me, and human rules direct their worship of me.
 
-And this is the portion of the confession that rails and counters two thoughts that have permeated the modern church: pietism and revivalism.[^theocast]
-
-Pietism is simply the notion that we must always look inside of ourselves and our affections to make sure that we are Christians and that we love God. Revivalism is the notion that we are saved based on how we feel. Do you feel good? You must be saved.
+TODO: Christ-centeredness vs. Focusing on self (Naval gazing, self-help, etc.)
 
 But with all of our sincerity and our zeal and our passion for God is not the litmus test to determine our salvation. Because think about it: are you always affection towards God? Do you always feel good about God?
 
@@ -60,5 +58,3 @@ You and I cannot do good things with a perfect heart. Our affections cannot be h
 We must have the Almighty Holy One of God to look upon our wickedness, save us from our sin and give us rest.
 
 Blessed be his holy name that our salvation is never determined on us in any way. If it were, we are all doomed. But since our salvation is completely, wholly, totally dependent on the risen Son of God, then and only then we are saved to God forever and ever.
-
-[^theocast]: Let me give credit where credit is due. I didn't know the formal names of these two movements until I was introduced to the ministry of Theocast ([https://theocast.org](https://theocast.org)) I was like, "That's it. That is what I am seeing and cannot articulate. That is the culture I am a part of and cannot explain." So, I am indebted to them for helping me understand what I am seeing and experiencing.
