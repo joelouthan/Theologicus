@@ -45,9 +45,9 @@ So, what makes us think we get to choose what is good and then do our chosen goo
 
 >Isaiah 29:13 (CSB) The Lord said: These people approach me with their speeches to honor me with lip-service, yet their hearts are far from me, and human rules direct their worship of me.
 
-TODO: Christ-centeredness vs. Focusing on self (Naval gazing, self-help, etc.)
+We can, with every good intention within us, be the most passionate, the most zealous, seeming the most pure intentions, and even presumably, do the most good and that would not get us closer to God nor make us good in the sight of God.
 
-But with all of our sincerity and our zeal and our passion for God is not the litmus test to determine our salvation. Because think about it: are you always affection towards God? Do you always feel good about God?
+All of our sincerity and our zeal and our passion for God is not the litmus test to determine our salvation. Because think about it: are you always affection towards God? Do you always feel good about God?
 
 Let me press the real question: when was the last time you were sinless?
 
