@@ -41,7 +41,6 @@
   My God,
 </div>
 
-
 Yet, you transported from the spiritual to the material. You cut across space and time. You _personally_ opened my eyes, gave words for my throat, opened my eyes, filled my heart, and gave me understanding so that I may know you. You gave me rest for my soul, removed the curse from my tongue, made me your son and you glorified me.
 
 You called out to me so that I might have life. You spoke to me because I am your friend. You whisper to me because you are always near to me.
