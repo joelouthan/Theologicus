@@ -25,7 +25,6 @@
   O Lord,
 </div>
 
-
 You have not forgotten me.
 You have not hidden your lovely face from me.
 Your comfort and wisdom warm my soul.

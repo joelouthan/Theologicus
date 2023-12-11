@@ -47,7 +47,6 @@
 Eternity
 </div>
 
-
 What is my life, Lord
   that you were so sweet to me
   that you were so tender

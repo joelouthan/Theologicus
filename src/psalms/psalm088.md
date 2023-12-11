@@ -48,7 +48,6 @@
 Salvation
 </div>
 
-
 From the moment, I laid dead in the pit of hell
   in the death of my own sin
   in the torment of sins against me

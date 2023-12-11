@@ -53,7 +53,6 @@
   Dear Lord,
 </div>
 
-
 I will not and cannot list what I _think_ you have not done for me. That is preposterous! What you have done for me, in me, and through me is too great to even list. But I thank you so much. I thank you for you are absolutely good, absolutely merciful, absolutely gracious, and absolutely love. These I know of you and know you well.
 
 God, you are high and exalted far above all creation, including any little thing I might create with my mind and my hands. I thank you for those many gifts that you have given me. I thank you for the life that you have given me. I thank you for the loves that you have given me. I thank you all.

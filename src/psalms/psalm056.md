@@ -39,7 +39,6 @@
 You Are My Trust
 </div>
 
-
 I have spent all of my life
 Being scared
 Being fearful of man

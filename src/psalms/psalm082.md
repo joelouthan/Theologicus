@@ -29,7 +29,6 @@
 My Rightly and Only Divine
 </div>
 
-
 You, O Lord, are high
   above all the earth
   you are exalted

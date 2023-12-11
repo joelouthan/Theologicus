@@ -29,7 +29,6 @@
 Worthy
 </div>
 
-
 You have picked me
   a cistern of destruction
   a vessel to rightfully receive your wrath

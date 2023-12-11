@@ -65,7 +65,6 @@
 You Are My King
 </div>
 
-
 Before Christ
   I was without strength
   I would succumb to the enemy

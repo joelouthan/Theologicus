@@ -10,7 +10,6 @@
 
 <div style="font-variant: small-caps;">My Judge and Mercy Alone</div>
 
-
 Every sin against me
    does not counter
    any of my sins.

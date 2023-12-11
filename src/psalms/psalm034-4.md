@@ -13,7 +13,6 @@
 Essence of Faith
 </div>
 
-
 For all of my life
   I have pretended to be in fear of nothing
 

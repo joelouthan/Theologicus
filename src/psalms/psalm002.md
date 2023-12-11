@@ -35,7 +35,6 @@
   My Lord,
 </div>
 
-
 I am set apart, this is true. But set apart by you to you.
 
 I reach out to the world, plead to the world, and with the Spirit, invite the world to come into Your loving embrace.

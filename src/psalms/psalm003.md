@@ -29,7 +29,6 @@
   My God,
 </div>
 
-
 In my finite perception, my circumstances would seem to say I am in despair. I feel that. I feel that onslaught. I feel that pressure.
 Many would say, ”Ah, your God has failed. Your God is not good. Your God does not deliver. Your God does not save.”
 

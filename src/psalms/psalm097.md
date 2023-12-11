@@ -35,7 +35,6 @@
 Righteousness
 </div>
 
-
 For you, O Lord
   are high
   above all the earth

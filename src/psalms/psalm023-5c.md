@@ -12,7 +12,6 @@
 My Lord
 </div>
 
-
 I am reminded of all of your sweet blessings.
 
 You are my inheritance.

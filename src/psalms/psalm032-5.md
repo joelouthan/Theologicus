@@ -10,7 +10,6 @@
 
 <div style="font-variant: small-caps;">The Cover of my Iniquity</div>
 
-
 How long, O Lord,
    when I have not confess to you
    when I have spoken of my evil

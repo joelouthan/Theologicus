@@ -43,7 +43,6 @@
   O Father,
 </div>
 
-
 You are God of the Universe. Holy, righteous, just. High above my idols. High above my sins. High above my faults. High above the twisted wickedness of my own heart. In no way could I have ever approach you.
 
 But you, O Lord, abundant in mercy and rich in grace, made the way. You sent your Son to come get me. Now I am yours.

@@ -13,7 +13,6 @@
 The Absolute Longings of my Heart
 </div>
 
-
 My God
   I have suffered so much due
   to all the sin I’ve committed

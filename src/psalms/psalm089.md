@@ -117,7 +117,6 @@
 Security
 </div>
 
-
 I know that
   you are my eternity to eternity
   the steadfast love that has always been there

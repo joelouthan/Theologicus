@@ -47,7 +47,6 @@
 My Lord of All
 </div>
 
-
 You called upon me
   and I am your servant
   and I heard your voice

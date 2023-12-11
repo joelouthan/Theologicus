@@ -12,7 +12,6 @@
 My Fear and my Joy
 </div>
 
-
 I sit
   and make no excuses
   for my sin blinds me

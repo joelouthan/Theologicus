@@ -12,7 +12,6 @@
 God of my little belief
 </div>
 
-
 Oh how many times, O Lord,
   have I whispered nothings
   gave half-hearted thanks

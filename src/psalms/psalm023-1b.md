@@ -12,7 +12,6 @@
 My Lord Above,
 </div>
 
-
 I thank you for your perfect provision.
 
 You are my Good Father in heaven

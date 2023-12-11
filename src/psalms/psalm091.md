@@ -43,7 +43,6 @@
 Almighty God
 </div>
 
-
 I remember all the times when my Grandma would pray this prayer over me. When she did, I never knew why.
 
 But the dangers and the turmoil and the devastation I would face,

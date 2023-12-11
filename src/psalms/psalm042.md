@@ -35,7 +35,6 @@
 Only Giver of Life
 </div>
 
-
 When you found me
   I was a swollen corpse
   at the bottom of the ocean

@@ -21,7 +21,6 @@
 My Only Vindicator
 </div>
 
-
 When will I know
   when those who would cause me harm
   have hurt me

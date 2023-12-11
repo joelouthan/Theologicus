@@ -31,7 +31,6 @@
 You Are My Dwelling
 </div>
 
-
 I will sing
   of all of your done
   of your salvation of my soul

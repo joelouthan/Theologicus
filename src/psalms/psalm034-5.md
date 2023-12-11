@@ -13,7 +13,6 @@
 Fairest of ten-thousands
 </div>
 
-
 My God.
   Keep me close to you.
   Let me see your face.

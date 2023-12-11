@@ -23,7 +23,6 @@
 Goodness
 </div>
 
-
 I will sing!
   And I will shout!
   I will praise the Lord of Hosts!

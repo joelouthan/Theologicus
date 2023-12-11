@@ -13,7 +13,6 @@
 Deliverer from Death
 </div>
 
-
 People of God,
   inhabitants of the world
   dwellers in the city

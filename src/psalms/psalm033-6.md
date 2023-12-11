@@ -12,7 +12,6 @@
 Creator and Redeemer
 </div>
 
-
 You are majestic
   and altogether mighty.
 

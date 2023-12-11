@@ -27,7 +27,6 @@
   O Lord,
 </div>
 
-
 I would say to you, “I have not forgotten you.” But what about those times I succumb to the wickedness of my heart, to the depravity of the world, or to the lies of Satan? What about those times?
 
 What about those times when I am devoid of strength and I do not turn to the one who has my infinite strength?

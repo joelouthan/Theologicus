@@ -35,7 +35,6 @@
   My Lord,
 </div>
 
-
 I have gone everywhere. I have not found any good apart from you.
 
 When I turn away from you or try to find _not You_, my sorrow and grief run deep. It crushes my hearts and buries my soul.

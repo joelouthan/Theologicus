@@ -31,7 +31,6 @@
 You Are My Faithful Love
 </div>
 
-
 Everything that I have
   And all that I got
   It is in you.

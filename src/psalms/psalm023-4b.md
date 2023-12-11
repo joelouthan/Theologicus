@@ -12,7 +12,6 @@
 My Only Lord
 </div>
 
-
 Death, sin, hell, and Satan
   I still fear them
   I still alarmed at their presence

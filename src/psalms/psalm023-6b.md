@@ -12,7 +12,6 @@
 O Lord,
 </div>
 
-
 Tender mercies,
   you have given me
   every single day that I life.

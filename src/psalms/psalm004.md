@@ -29,7 +29,6 @@
   Dear God,
 </div>
 
-
 Help!
 
 You have helped me in the past and this time I still need you.

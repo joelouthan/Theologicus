@@ -4,12 +4,28 @@
 
 ## The Psalm
 
+>Psalm 67 (CSB)  
+><sup></sup> For the choir director: with stringed instruments. A psalm. A song. 
+>
+><sup>1</sup> May God be gracious to us and bless us; may he make his face shine upon us Selah 
+>
+><sup>2</sup> so that your way may be known on earth, your salvation among all nations. 
+>
+><sup>3</sup> Let the peoples praise you, God; let all the peoples praise you. 
+>
+><sup>4</sup> Let the nations rejoice and shout for joy, for you judge the peoples with fairness and lead the nations on earth. Selah 
+>
+><sup>5</sup> Let the peoples praise you, God, let all the peoples praise you. 
+>
+><sup>6</sup> The earth has produced its harvest; God, our God, blesses us. 
+>
+><sup>7</sup> God will bless us, and all the ends of the earth will fear him.
+
 ## The Prayer
 
 <div style="font-variant: small-caps;">
 Worthy is Your Grace
 </div>
-
 
 I will never stop
   writing words

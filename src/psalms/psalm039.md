@@ -39,7 +39,6 @@
 The King of my Soul,
 </div>
 
-
 In fury,
   wrath
   injustice

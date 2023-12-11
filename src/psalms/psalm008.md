@@ -31,7 +31,6 @@
   My Lord, Our Lord,
 </div>
 
-
 Your name is known throughout all the earth.
 Your fame knows no bounds.
 Your glory will not be given to another.

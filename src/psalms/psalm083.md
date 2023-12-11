@@ -49,7 +49,6 @@
 Conqueror
 </div>
 
-
 Whatever life and death and grief and sadness and sin
   presses down my life
   grinds my bone into dust

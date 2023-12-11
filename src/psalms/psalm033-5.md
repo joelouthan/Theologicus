@@ -12,7 +12,6 @@
 My Eternal Righteousness
 </div>
 
-
 I have spent a lifetime
   ignoring this precious truth
   that you loved the world so much

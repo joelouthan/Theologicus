@@ -13,7 +13,6 @@
 All of my desires and affections
 </div>
 
-
 What did your Son say?
   Eat of my flesh
   Drink of my blood

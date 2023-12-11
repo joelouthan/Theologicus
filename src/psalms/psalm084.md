@@ -37,7 +37,6 @@
 Home
 </div>
 
-
 You are my joy
   my haven
   my safe place

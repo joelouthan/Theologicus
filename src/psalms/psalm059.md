@@ -47,7 +47,6 @@
 You Are My Stronghold
 </div>
 
-
 I pray
   that all of my sworn enemies
   have sought to destroy me

@@ -12,7 +12,6 @@
 The Lyrics of the Sweetest Songs
 </div>
 
-
 With my voice
   with every breath
   I will shout out

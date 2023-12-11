@@ -13,7 +13,6 @@
 My One Rock
 </div>
 
-
 I examine my life
   filled with despair
   chaos

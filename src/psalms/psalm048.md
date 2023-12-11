@@ -41,7 +41,6 @@
 You Are My Dwelling
 </div>
 
-
 I have been surrounded
   by all iniquity
   temptation waits for me

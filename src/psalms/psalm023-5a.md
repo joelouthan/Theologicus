@@ -12,7 +12,6 @@
 My God,
 </div>
 
-
 I have been crushed and
   discarded a hundred times.
   But, I have warred against you

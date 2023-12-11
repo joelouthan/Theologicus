@@ -57,7 +57,6 @@
 My Everlasting Father,
 </div>
 
-
 I will never forget
   the moment
   when I stood

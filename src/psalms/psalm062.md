@@ -4,12 +4,38 @@
 
 ## The Psalm
 
+>Psalm 62 (CSB)  
+><sup></sup> For the choir director: according to Jeduthun. A psalm of David. 
+>
+><sup>1</sup> I am at rest in God alone; my salvation comes from him. 
+>
+><sup>2</sup> He alone is my rock and my salvation, my stronghold; I will never be shaken. 
+>
+><sup>3</sup> How long will you threaten a man? Will all of you attack as if he were a leaning wall or a tottering fence? 
+>
+><sup>4</sup> They only plan to bring him down from his high position. They take pleasure in lying; they bless with their mouths, but they curse inwardly. Selah 
+>
+><sup>5</sup> Rest in God alone, my soul, for my hope comes from him. 
+>
+><sup>6</sup> He alone is my rock and my salvation, my stronghold; I will not be shaken. 
+>
+><sup>7</sup> My salvation and glory depend on God, my strong rock. My refuge is in God. 
+>
+><sup>8</sup> Trust in him at all times, you people; pour out your hearts before him. God is our refuge. Selah 
+>
+><sup>9</sup> Common people are only a vapor; important people, an illusion. Together on a scale, they weigh less than a vapor. 
+>
+><sup>10</sup> Place no trust in oppression or false hope in robbery. If wealth increases, don’t set your heart on it. 
+>
+><sup>11</sup> God has spoken once; I have heard this twice: strength belongs to God, 
+>
+><sup>12</sup> and faithful love belongs to you, Lord. For you repay each according to his works.
+
 ## The Prayer
 
 <div style="font-variant: small-caps;">
 You Are My Rest
 </div>
-
 
 Most of my life
   I have fought against you

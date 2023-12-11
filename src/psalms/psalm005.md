@@ -37,7 +37,6 @@
   My King and my God,
 </div>
 
-
 My heart grieves. My soul groans. I am in need of your Spirit.
 
 My own pride has kept me far from you. My own arrogance has caused you to look away. Yet, I am in need of your holiness—the very thing that keeps me far is the very thing that keeps me close.

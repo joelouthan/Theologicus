@@ -12,7 +12,6 @@
 Great God,
 </div>
 
-
 I am reminded what Christ declared:
 You alone are good.
 

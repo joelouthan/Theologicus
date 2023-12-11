@@ -10,7 +10,6 @@
 
 <div style="font-variant: small-caps;">Lover of my soul</div>
 
-
 You are the only being
   when you speak
   things actually happen

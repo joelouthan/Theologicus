@@ -69,7 +69,6 @@
 Forever
 </div>
 
-
 My wars
   I rage against you
   I have trespasses against you

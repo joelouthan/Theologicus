@@ -10,7 +10,6 @@
 
 <div style="font-variant: small-caps;">My Dearest God</div>
 
-
 You were mindful of me,
   before the foundations of the world
   were formed by you.

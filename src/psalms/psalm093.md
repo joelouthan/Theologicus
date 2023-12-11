@@ -21,7 +21,6 @@
 Majesty
 </div>
 
-
 You are the God
   of all splendor and grace
 

@@ -10,7 +10,6 @@
 
 <div style="font-variant: small-caps;">My Only Redeemer</div>
 
-
 I am filled with iniquity,
    Lord, look at my sins?
    How can you not count

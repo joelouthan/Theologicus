@@ -4,12 +4,34 @@
 
 ## The Psalm
 
+>Psalm 64 (CSB)  
+><sup></sup> For the choir director. A psalm of David. 
+>
+><sup>1</sup> God, hear my voice when I am in anguish. Protect my life from the terror of the enemy. 
+>
+><sup>2</sup> Hide me from the scheming of wicked people, from the mob of evildoers, 
+>
+><sup>3</sup> who sharpen their tongues like swords and aim bitter words like arrows, 
+>
+><sup>4</sup> shooting from concealed places at the blameless. They shoot at him suddenly and are not afraid. 
+>
+><sup>5</sup> They adopt an evil plan; they talk about hiding traps and say, “Who will see them?” 
+>
+><sup>6</sup> They devise crimes and say, “We have perfected a secret plan.” The inner man and the heart are mysterious. 
+>
+><sup>7</sup> But God will shoot them with arrows; suddenly, they will be wounded. 
+>
+><sup>8</sup> They will be made to stumble; their own tongues work against them. All who see them will shake their heads. 
+>
+><sup>9</sup> Then everyone will fear and will tell about God’s work, for they will understand what he has done. 
+>
+><sup>10</sup> The righteous one rejoices in the LORD and takes refuge in him; all those who are upright in heart will offer praise.
+
 ## The Prayer
 
 <div style="font-variant: small-caps;">
 You Are My Goodness
 </div>
-
 
 The worst
   has absolutely befallen me

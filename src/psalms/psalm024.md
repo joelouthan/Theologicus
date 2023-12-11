@@ -31,7 +31,6 @@
 
 <div style="font-variant: small-caps;">My Ascended God</div>
 
-
 All of Creation is yours.
   It belongs to you,
   And you rule overall.

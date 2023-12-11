@@ -57,7 +57,6 @@
 Vengeance
 </div>
 
-
 The sins against me
   when the people should have
   cared for me

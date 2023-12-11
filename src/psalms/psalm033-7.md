@@ -10,7 +10,6 @@
 
 <div style="font-variant: small-caps;">God of the Cosmic</div>
 
-
 The galaxies fall right into the palm of your hand,
   the universe are in your grasp
   the stars are named by you

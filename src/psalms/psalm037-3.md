@@ -13,7 +13,6 @@
 The Only One Worthy of My Trust
 </div>
 
-
 What is my life, O Lord,
   that I have spent
   most of my years

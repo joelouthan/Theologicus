@@ -35,7 +35,6 @@
 You Are My Quick Answer
 </div>
 
-
 No matter what has happened to me
 For I have been
 molested

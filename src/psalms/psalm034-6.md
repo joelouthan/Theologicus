@@ -13,7 +13,6 @@
 My everything 
 </div>
 
-
 I lack.
   I am weak.
   I have nothing.

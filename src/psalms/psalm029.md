@@ -33,7 +33,6 @@
 
 <div style="font-variant: small-caps;">My Blessed Redeemer,</div>
 
-
 Who is like you,
     splendid in majesty
     high and exalted

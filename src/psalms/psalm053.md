@@ -25,7 +25,6 @@
 You Are My Mercy
 </div>
 
-
 My presence
   My life
   My words

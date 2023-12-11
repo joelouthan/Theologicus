@@ -43,7 +43,6 @@
 Faithfulness
 </div>
 
-
 I worship you
   Almighty God
   there is none like you.

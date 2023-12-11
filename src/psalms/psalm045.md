@@ -47,7 +47,6 @@
 You Are My Bridegroom
 </div>
 
-
 And now
   you are finished
   my Lord

@@ -31,7 +31,6 @@
 Wonder
 </div>
 
-
 I remember
   within this year
   how I sinned against you

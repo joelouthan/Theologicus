@@ -12,7 +12,6 @@
 My Lord and my God,
 </div>
 
-
 Even when I was dead,
   you called my name.
 

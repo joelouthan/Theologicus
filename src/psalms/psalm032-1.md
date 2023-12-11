@@ -10,7 +10,6 @@
 
 <div style="font-variant: small-caps;">My Only Good</div>
 
-
 How many times have I have sin against you
    done wickedness in your sight
    submitted myself to perversion

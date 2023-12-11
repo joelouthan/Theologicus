@@ -23,7 +23,6 @@
   O Lord,
 </div>
 
-
 How could I possibly worship you? I am not worthy to commune with you and be with you. I sin even now. My heart strays. My soul wanders.
 
 Yet, you, O God, are not far from me. When I am in the wilderness, you are closer than a whisper. When I have fallen, you set me back up on solid ground and you rejoice over me with singing. When I ran away from you, you sent your Son to live the life I could not live and die in my place for my sins.

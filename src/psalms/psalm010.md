@@ -47,7 +47,6 @@
   O Lord,
 </div>
 
-
 My sin wakes me up from my slumber.
 
 At my weakest, my iniquities flood my mind.

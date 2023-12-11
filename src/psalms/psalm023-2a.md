@@ -12,7 +12,6 @@
 My Lord
 </div>
 
-
 You are the Prince of Peace. 
 
 Where you are,

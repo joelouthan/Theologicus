@@ -12,7 +12,6 @@
 My God
 </div>
 
-
 Because of everything your Son has done for me,
   I now walk in the power of Your Spirit.
 

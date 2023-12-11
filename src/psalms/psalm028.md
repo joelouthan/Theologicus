@@ -29,7 +29,6 @@
 
 <div style="font-variant: small-caps;">My Blessed Lord</div>
 
-
 How many times, my God,
   must you rescue me?
 

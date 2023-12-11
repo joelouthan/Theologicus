@@ -10,7 +10,6 @@
 
 <div style="font-variant: small-caps;">My God</div>
 
-
 While I tried to ignore
   and even 
   excuse the pain caused me.

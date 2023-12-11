@@ -12,7 +12,6 @@
 To the Rock of Ages
 </div>
 
-
 The world
   and the Prince of the Air
   and his demons

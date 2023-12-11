@@ -35,7 +35,6 @@
 You Are My Refuge
 </div>
 
-
 You alone
   are my righteousness
   and my exalted Lord

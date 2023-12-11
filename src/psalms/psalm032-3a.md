@@ -12,7 +12,6 @@
 My Only Comfort in Life
 </div>
 
-
 I will never forget
   the darkness enveloping me
   my emotions drained out of me

@@ -39,7 +39,6 @@
 Savior of All
 </div>
 
-
 I will guard my mouth
   and my heart
   to not speak ill

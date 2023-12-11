@@ -33,7 +33,6 @@
 Thanksgiving
 </div>
 
-
 So what then can I say?  
 So what then can I do?  
 All I can do is simply thank you.

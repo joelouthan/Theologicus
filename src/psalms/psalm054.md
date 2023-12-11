@@ -27,7 +27,6 @@
 You Are My Deliverer
 </div>
 
-
 I have seen so many evils in my life
   And I thought I had so many enemies
   Because they have wounded me

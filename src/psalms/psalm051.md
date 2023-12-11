@@ -51,7 +51,6 @@
 You Are My Restoration
 </div>
 
-
 I cannot fall back into wickedness
   I cannot sin again
   I cannot be apart from you

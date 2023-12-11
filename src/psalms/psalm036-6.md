@@ -13,7 +13,6 @@
 My Only Path
 </div>
 
-
 I search this earth
   for something that is good and holy
   none I can find

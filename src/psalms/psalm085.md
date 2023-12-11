@@ -39,7 +39,6 @@
 Grace
 </div>
 
-
 Just as you looked upon Noah
   saw his wickedness
   foolishness
