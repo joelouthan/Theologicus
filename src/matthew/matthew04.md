@@ -2,6 +2,8 @@
 
 # Matthew 4
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?*
+
 ><sup>1</sup> Then Jesus was led up by the Spirit into the wilderness to be tempted by the devil. 
 >
 ><sup>2</sup> After he had fasted forty days and forty nights, he was hungry. 

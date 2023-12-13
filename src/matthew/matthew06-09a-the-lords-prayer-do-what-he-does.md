@@ -1,7 +1,14 @@
 <img class="intro-right" src="/images/art-matthew.jpg">
 
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 6:9a Pray Like This--Do What He Does
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?"*
+
+## The Text
+
+## The Devotion
 ## Pray Then Like This
 
 >Matthew 6:9 (CSB) Therefore, you should pray like this

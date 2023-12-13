@@ -2,6 +2,8 @@
 
 # Matthew 2
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?*
+
 ><sup>1</sup> After Jesus was born in Bethlehem of Judea in the days of King Herod, wise men from the east arrived in Jerusalem, 
 >
 ><sup>2</sup> saying, “Where is he who has been born king of the Jews? For we saw his star at its rising and have come to worship him.” 

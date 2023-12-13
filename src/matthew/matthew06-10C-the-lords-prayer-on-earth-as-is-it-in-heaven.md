@@ -1,7 +1,14 @@
 <img class="intro-right" src="/images/art-matthew.jpg">
 
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 6:10c Pray Like This: On Earth As It Is In Heaven
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?"*
+
+## The Text
+
+## The Devotion
 ## Pray Then Like This
 
 >Matthew 6:10c (CSB) on earth as it is in heaven

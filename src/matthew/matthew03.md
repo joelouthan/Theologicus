@@ -2,6 +2,8 @@
 
 # Matthew 3
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?*
+
 ><sup>1</sup> In those days John the Baptist came, preaching in the wilderness of Judea 
 >
 ><sup>2</sup> and saying, “Repent, because the kingdom of heaven has come near!” 

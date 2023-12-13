@@ -1,7 +1,14 @@
 <img class="intro-right" src="/images/art-matthew.jpg">
 
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 6:5-13 Pray Like This--An Introduction
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?"*
+
+## The Text
+
+## The Devotion
 ## Pray Then Like This
 
 >Matthew 6:5-15 (CSB) “Whenever you pray, you must not be like the hypocrites, because they love to pray standing in the synagogues and on the street corners to be seen by people. Truly I tell you, they have their reward. But when you pray, go into your private room, shut your door, and pray to your Father who is in secret. And your Father who sees in secret will reward you. When you pray, don’t babble like the Gentiles, since they imagine they’ll be heard for their many words. Don’t be like them, because your Father knows the things you need before you ask him.

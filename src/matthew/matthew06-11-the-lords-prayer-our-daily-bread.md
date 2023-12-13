@@ -1,7 +1,14 @@
 <img class="intro-right" src="/images/art-matthew.jpg">
 
+<img class="intro-right" src="/images/art-matthew.jpg">
+
 # Matthew 6:11 Pray Like This: Give Us This Day Our Daily Bread
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?"*
+
+## The Text
+
+## The Devotion
 ## Pray Then Like This
 
 >Matthew 6:11 (CSB) Give us today our daily bread.

@@ -2,6 +2,8 @@
 
 # Matthew 1
 
+*Trying to answer the question, "How is Jesus Christ our All-in-all?*
+
 ><sup>1</sup> An account of the genealogy of Jesus Christ, the Son of David, the Son of Abraham: 
 >
 ><sup>2</sup> Abraham fathered Isaac, Isaac fathered Jacob, Jacob fathered Judah and his brothers, 
