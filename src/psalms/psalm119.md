@@ -2,7 +2,6 @@
 
 # Psalm 119
 
->Psalm 119 (CSB)  
 ><sup>1</sup> How happy are those whose way is blameless, who walk according to the LORD’s instruction! 
 >
 ><sup>2</sup> Happy are those who keep his decrees and seek him with all their heart. 
