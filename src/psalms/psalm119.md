@@ -1,6 +1,6 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
-# Psalm 119 The Living Word
+# Psalm 119
 
 >Psalm 119 (CSB)  
 ><sup>1</sup> How happy are those whose way is blameless, who walk according to the LORD’s instruction! 
