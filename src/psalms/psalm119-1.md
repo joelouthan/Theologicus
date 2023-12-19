@@ -22,7 +22,7 @@ If I have kept your ways
 
 And sin continues to hunt me down  
   and stalk me  
-  waiting to tear me to shred  
+  waiting to tear me to shreds  
   my own sin  
   devours me from the inside out  
   infected my thoughts continuously  
