@@ -59,9 +59,9 @@ I share
   crying  
   interceding  
   and praying  
-  because you have saw our iniquity  
+  because you have seen my iniquity  
   and you have withheld your mercy  
-  and you have judged our land  
+  and you have judged my land  
   unholy and unpleasing  
   to you.
 
@@ -75,7 +75,7 @@ My God,
   now  
   today  
   right now  
-  so that i can be with you.
+  so that I can be with you.
 
 Every person  
   that I have ever come across  
