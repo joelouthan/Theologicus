@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 118 You Are God
 
 ## The Psalm
@@ -70,33 +77,33 @@ Lord
 </div>
 
 You alone are good  
-  lovely  
-  and pure  
-  fairest of all  
-  most beautiful  
-  most holy  
-  most righteous  
-  most just  
-  most merciful  
-  most gracious  
-  most loving  
-  most kind  
-  most gentle  
-  most patient  
-  most faithful  
-  most true  
-  most wise  
-  most powerful  
-  most glorious  
-  most high  
-  most exalted  
-  most worthy  
-  most wonderful  
-  most awesome  
-  most majestic  
-  most excellent  
-  most perfect  
-  and most beautiful.
+* lovely  
+* and pure  
+* fairest of all  
+* most beautiful  
+* most holy  
+* most righteous  
+* most just  
+* most merciful  
+* most gracious  
+* most loving  
+* most kind  
+* most gentle  
+* most patient  
+* most faithful  
+* most true  
+* most wise  
+* most powerful  
+* most glorious  
+* most high  
+* most exalted  
+* most worthy  
+* most wonderful  
+* most awesome  
+* most majestic  
+* most excellent  
+* most perfect  
+* and most beautiful.
 
 For you alone are God alone.
 

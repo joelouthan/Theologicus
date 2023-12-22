@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 50
 
 ## The Psalm
@@ -60,51 +67,51 @@ You Are My Judge
 </div>
 
 My sins before you
-  can stretch to the furthest galaxies
-  can fill the oceans
-  can corrupt my soul
-  can tangle my flesh
-  can rot my mind
-  can breaks my heart
-  can steal any love I have in me.
+* can stretch to the furthest galaxies
+* can fill the oceans
+* can corrupt my soul
+* can tangle my flesh
+* can rot my mind
+* can breaks my heart
+* can steal any love I have in me.
 
 At one time
-  you counted me wicked
-  because I was wicked
-  I was treasonous
-  because I made war against you
-  with my mind
-  my heart
-  and my desires.
+* you counted me wicked
+* because I was wicked
+* I was treasonous
+* because I made war against you
+* with my mind
+* my heart
+* and my desires.
 
 But you, O God
-  in your great mercies
-  and your lavish grace
-  gave me your Son
-  to live and die
-  in my place
-  for my sins.
+* in your great mercies
+* and your lavish grace
+* gave me your Son
+* to live and die
+* in my place
+* for my sins.
 
 You granted me a new heart
-  your Spirit
-  new desires
-  for you.
+* your Spirit
+* new desires
+* for you.
 
 You have given me faith
-  to exalt you
-  to worship you
-  to run to you
-  to lay at your feet
-  to hope in you
-  to trust in you
-  to obey your every word.
+* to exalt you
+* to worship you
+* to run to you
+* to lay at your feet
+* to hope in you
+* to trust in you
+* to obey your every word.
 
 Keep your love on me
-  Do not let me stray
-  I do not want to lose you love
-  you are all that I have
-  I have nothing else
-  where else can I go.
+* Do not let me stray
+* I do not want to lose you love
+* you are all that I have
+* I have nothing else
+* where else can I go.
 
 Be exalted, my Lord.
 

@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 111 Great
 
 ## The Psalm
@@ -32,23 +39,23 @@ Lord
 </div>
 
 You have sent redemption
-  to me
+* to me
 
 You have kept your promise
-  to me
+* to me
 
 You have been compassionate
-  and merciful
-  to me
+* and merciful
+* to me
 
 Because you have given me
-  your precious Son
-  Jesus Christ
-  forever and ever.
+* your precious Son
+* Jesus Christ
+* forever and ever.
 
 I will worship you
-  and praise you alone
-  for you name is great
-  and greatly to be praised.
+* and praise you alone
+* for you name is great
+* and greatly to be praised.
 
 Amen.

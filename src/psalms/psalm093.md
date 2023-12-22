@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 93 Majesty
 
 ## The Psalm
@@ -22,34 +29,34 @@ Majesty
 </div>
 
 You are the God
-  of all splendor and grace
+* of all splendor and grace
 
 Your beauty is
-  beyond my comprehension
+* beyond my comprehension
 
 Your power is
-  the definition of amazing
+* the definition of amazing
 
 Your grace is
-  always undeserving
+* always undeserving
 
 Your mercy
-  will never come to an end
+* will never come to an end
 
 Because of you
-  I am alive
-  I am free
-  I am your child
-  and I will worship you
-  because you are great
-  holy
-  righteous
-  just
-  grace
-  mercy
-  perfect
-  love
-  almighty
+* I am alive
+* I am free
+* I am your child
+* and I will worship you
+* because you are great
+* holy
+* righteous
+* just
+* grace
+* mercy
+* perfect
+* love
+* almighty
 
 Be exalted, my Lord
-  today
+* today

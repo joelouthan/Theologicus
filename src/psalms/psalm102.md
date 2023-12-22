@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 102 Forever
 
 ## The Psalm
@@ -70,34 +77,34 @@ Forever
 </div>
 
 My wars
-  I rage against you
-  I have trespasses against you
-  I have sin mightily against you
-  I have rejected everything that you are
-  I have thought, "I can sin but there is no God and he does not care."
+* I rage against you
+* I have trespasses against you
+* I have sin mightily against you
+* I have rejected everything that you are
+* I have thought, "I can sin but there is no God and he does not care."
 
 But you looked upon me
-  my foolishness
-  my iniquity
-  my rebellion
-  and did the only thing that you are capable of.
+* my foolishness
+* my iniquity
+* my rebellion
+* and did the only thing that you are capable of.
 
 You saved me
-  you spared my life
-  you revealed your Son
-  and you gave me your heart
-  and your Spirit
-  and your grace
-  and your mercy
-  and your glory
-  and repentance
-  and faith
-  and love.
+* you spared my life
+* you revealed your Son
+* and you gave me your heart
+* and your Spirit
+* and your grace
+* and your mercy
+* and your glory
+* and repentance
+* and faith
+* and love.
 
 And you do it everyday
-  now until forever
-  because I am yours
-  you are mine
-  forevermore.
+* now until forever
+* because I am yours
+* you are mine
+* forevermore.
 
 Amen.

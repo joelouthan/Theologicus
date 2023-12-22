@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 113 Loving
 
 ## The Psalm
@@ -64,6 +71,6 @@ Lord
 I will always forget your love for me.
 
 But you will never stop loving me
-  because you never started loving me.
+* because you never started loving me.
 
 Amen.

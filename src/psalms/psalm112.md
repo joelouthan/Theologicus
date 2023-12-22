@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 112 Light
 
 ## The Psalm
@@ -32,14 +39,14 @@ Lord
 </div>
 
 When you sent your Son
-  to open my eyes
-  to open my ears
-  to unmute my tongue
-  to open my mind
-  to make his home in my heart.
+* to open my eyes
+* to open my ears
+* to unmute my tongue
+* to open my mind
+* to make his home in my heart.
 
 I see the light of the world
-  and I no longer love the darkness.
+* and I no longer love the darkness.
 
 I am your child forever.
 

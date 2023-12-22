@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 72 King
 
 ## The Psalm
@@ -54,27 +61,27 @@ King
 </div>
 
 I sit and wait
-  for your command
-  you are my King.
+* for your command
+* you are my King.
 
 I will pray
-  for your love
-  you are my Lord.
+* for your love
+* you are my Lord.
 
 I will obey
-  in your grace
-  you are my Savior
+* in your grace
+* you are my Savior
 
 I will run the race
-  in your strength
-  you are my Life.
+* in your strength
+* you are my Life.
 
 I will fly
-  in your freedom
-  you are my Redeemer.
+* in your freedom
+* you are my Redeemer.
 
 I will worship
-  in your love
-  you are God.
+* in your love
+* you are God.
 
 Amen.

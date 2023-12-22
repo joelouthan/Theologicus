@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 86 Protector
 
 ## The Psalm
@@ -47,31 +54,31 @@ Protector
 </div>
 
 You have been my God
-  since my birth
-  you have protected me
-  from the attacks of the world
-  you have shielded me
-  from the attacks of the enemy
+* since my birth
+* you have protected me
+* from the attacks of the world
+* you have shielded me
+* from the attacks of the enemy
 
 Moreso
-  you have been my shelter
-  when I had no roof
-  you have been my tower
-  when I was in constant danger
-  you have been my hope
-  when I was drowning in despair
-  you have been my home
-  when I had no one who loved me
-  you have been my God
-  when my idols have destroyed me.
+* you have been my shelter
+* when I had no roof
+* you have been my tower
+* when I was in constant danger
+* you have been my hope
+* when I was drowning in despair
+* you have been my home
+* when I had no one who loved me
+* you have been my God
+* when my idols have destroyed me.
 
 In my life and love and heart and strength,
-  I will glorify you for all of my days
-  You are my sweetest King
-  and one day, I will rest in your throne room
-  to worship you
-  and to look upon your lovely face
-  for all of my days.
+* I will glorify you for all of my days
+* You are my sweetest King
+* and one day, I will rest in your throne room
+* to worship you
+* and to look upon your lovely face
+* for all of my days.
 
 Thank you, my God and Protector.
 

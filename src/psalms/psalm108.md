@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 108 Exalted
 
 ## The Psalm
@@ -40,32 +47,32 @@ Lord
 </div>
 
 I faced my absolute enemies  
-  they are crouching  
-  waiting for me to slip and fall  
-  so that they can pounce  
-  and devour my heart and soul  
+* they are crouching  
+* waiting for me to slip and fall  
+* so that they can pounce  
+* and devour my heart and soul  
 
 And I have fallen  
-  a million times  
-  this week  
-  this day  
-  this hour  
-  I am helpless  
-  the dogs  
-  they chew on my bones  
+* a million times  
+* this week  
+* this day  
+* this hour  
+* I am helpless  
+* the dogs  
+* they chew on my bones  
 
 But all that I know  
-  is that your Son  
-  bled and died for me  
-  and has put these dogs  
-  to open shame  
-  I am in Christ alone  
-  and I am safe  
+* is that your Son  
+* bled and died for me  
+* and has put these dogs  
+* to open shame  
+* I am in Christ alone  
+* and I am safe  
 
 No matter what evil befalls me  
-  I will sing praises to your name  
-  O Lord  
-  because you alone are worthy  
-  and worthy to be praised  
+* I will sing praises to your name  
+* O Lord  
+* because you alone are worthy  
+* and worthy to be praised  
 
 Amen

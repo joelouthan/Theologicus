@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 83 Conqueror
 
 ## The Psalm
@@ -50,42 +57,42 @@ Conqueror
 </div>
 
 Whatever life and death and grief and sadness and sin
-  presses down my life
-  grinds my bone into dust
-  breaks my heart into a billion pieces
-  and drags my soul into hell
+* presses down my life
+* grinds my bone into dust
+* breaks my heart into a billion pieces
+* and drags my soul into hell
 
 You are my God
-  and my Lord
-  and my King
-  and my Great Love.
+* and my Lord
+* and my King
+* and my Great Love.
 
 And you have not forgotten me
-  no forsaken me
-  you have loved me since forever
-  and you will love me forever
-  You have always preserved my life
-  and you have given me real hope
-  in my hour of desperate need.
+* no forsaken me
+* you have loved me since forever
+* and you will love me forever
+* You have always preserved my life
+* and you have given me real hope
+* in my hour of desperate need.
 
 Because of what you have done
-  because of your work on your cross
-  you saved me
-  moreso, you conquered my true enemies
-  sin
-  Satan
-  demons
-  hell
-  death.
+* because of your work on your cross
+* you saved me
+* moreso, you conquered my true enemies
+* sin
+* Satan
+* demons
+* hell
+* death.
 
 I don't to have to hate anyone who does me harm
-  I pray that you would save them to the utmost
-  and that they will know your great love for them
-  for all of their days.
+* I pray that you would save them to the utmost
+* and that they will know your great love for them
+* for all of their days.
 
 You are my Great Conqueror
-  and your conquest is finish.
-  Allow me to herald your great gospel
-  "Repent, for the kingdom of God is here!"
+* and your conquest is finish.
+* Allow me to herald your great gospel
+* "Repent, for the kingdom of God is here!"
 
 Amen

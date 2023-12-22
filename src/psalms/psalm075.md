@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 75 Judge
 
 ## The Psalm
@@ -34,23 +41,23 @@ My Judge
 </div>
 
 I lived my life  
-  as the absolute chief of sinners  
-  fulfilling my heart's desires  
-  for all the lustful and rage-filled wickedness  
-  blaspheming your holy name  
-  attempting to weaken and mock those who worship you  
-  and violently opposing your holy name.
+* as the absolute chief of sinners  
+* fulfilling my heart's desires  
+* for all the lustful and rage-filled wickedness  
+* blaspheming your holy name  
+* attempting to weaken and mock those who worship you  
+* and violently opposing your holy name.
 
 But you, my Christ,
-  rule and reign  
-  as the absolute chief of grace  
-  and gives the most mercy  
-  in your steadfast kindness  
-  to sinners just like me.
+* rule and reign  
+* as the absolute chief of grace  
+* and gives the most mercy  
+* in your steadfast kindness  
+* to sinners just like me.
 
 Keep me in your love  
-  and keep my heart towards you  
-  you are my King Jesus  
-  and you are the judge and keeper of my life.
+* and keep my heart towards you  
+* you are my King Jesus  
+* and you are the judge and keeper of my life.
 
 Amen.

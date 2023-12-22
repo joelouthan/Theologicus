@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 98 Wonder
 
 ## The Psalm
@@ -32,29 +39,29 @@ Wonder
 </div>
 
 I remember
-  within this year
-  how I sinned against you
-  and trespass your holy name
+* within this year
+* how I sinned against you
+* and trespass your holy name
 
 What did you do
-  what was your response?
+* what was your response?
 
 You took my top prayers
-  and in your beauty might
-  and answered them one by one
+* and in your beauty might
+* and answered them one by one
 
 I sinned against you
-  you saved my oldest son
+* you saved my oldest son
 
 I war against you
-  you dwelled in the heart of my youngest son
+* you dwelled in the heart of my youngest son
 
 I blasphemed you
-  but you were faithful to my children
+* but you were faithful to my children
 
 I sought out deceit 
-  and yet, you let me
-  preach your holy word
+* and yet, you let me
+* preach your holy word
 
 Is there no end to you mercies to me?
 
@@ -63,12 +70,12 @@ Is there no limit to your grace that you have stacked upon grace for me?
 Is there no space that can contain your tenderness for me?
 
 From what I have seen
-  and I have experienced
-  and I know
-  that if I took your love to me
-  and poured into the universe
-  you would have infinite more love
-  just for me
+* and I have experienced
+* and I know
+* that if I took your love to me
+* and poured into the universe
+* you would have infinite more love
+* just for me
 
 I will praise your holy name
-  because you are my great God
+* because you are my great God

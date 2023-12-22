@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 88 Salvation
 
 ## The Psalm
@@ -49,23 +56,23 @@ Salvation
 </div>
 
 From the moment, I laid dead in the pit of hell
-  in the death of my own sin
-  in the torment of sins against me
-  in the agony of my trespasses
-  in the torture of my soul
-  and my eyes closed
-  and I could not move
-  and lay
-  and I am dead.
+* in the death of my own sin
+* in the torment of sins against me
+* in the agony of my trespasses
+* in the torture of my soul
+* and my eyes closed
+* and I could not move
+* and lay
+* and I am dead.
 
 You gave me life
-  and your light shined into my soul
-  your actions wiped my wickedness away
-  your grace gave me hope
-  your death gave me your life
-  your life is my worship to you in heaven forever.
+* and your light shined into my soul
+* your actions wiped my wickedness away
+* your grace gave me hope
+* your death gave me your life
+* your life is my worship to you in heaven forever.
 
 You are the God
-  who instantly saves.
+* who instantly saves.
 
 Be glorified in my life today.

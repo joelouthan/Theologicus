@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 15
 
 ## The Psalm
@@ -20,7 +27,7 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-  O Lord,
+O Lord,
 </div>
 
 How could I possibly worship you? I am not worthy to commune with you and be with you. I sin even now. My heart strays. My soul wanders.

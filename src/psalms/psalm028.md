@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 28
 
 ## The Psalm
@@ -30,24 +37,24 @@
 <div style="font-variant: small-caps;">My Blessed Lord</div>
 
 How many times, my God,
-  must you rescue me?
+* must you rescue me?
 
 How many times, O Lord,
-  will you come running
-  when I call your name?
+* will you come running
+* when I call your name?
 
 But I am wicked and violent man,
-  and violence has me surrounded on all sides?
+* and violence has me surrounded on all sides?
 
 But you, O my Lord, rescued me
-  saved me
-  because you loved me
-  from the very beginning.
+* saved me
+* because you loved me
+* from the very beginning.
 I need you, Lord,
-  now more than ever.
+* now more than ever.
 I am in desperate need of your hand
-  to rescue me
-  from despair
-  and violence.
+* to rescue me
+* from despair
+* and violence.
 Be my blessed Rock
-  forever. Amen.
+* forever. Amen.

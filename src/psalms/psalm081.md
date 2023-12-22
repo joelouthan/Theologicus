@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 81 God
 
 ## The Psalm
@@ -46,16 +53,16 @@ My Only God
 My your grace alone, I knew you when I was young. I knew you and did not love you nor run to you. I was infected by sin and kept turning to sin rather to the healer of my soul. I was broken and did not desire wholeness but rather to the despair that kept me broken. My heart was hardened and instead of crying for a new one, I kept it cold and frozen through my deeds and thoughts.
 
 Still,
-  you saved me.
+* you saved me.
 
 You washed me clean of my sin
-  in your precious Spirit.
+* in your precious Spirit.
 
 You made me whole
-  by the blood covering of your Son.
+* by the blood covering of your Son.
 
 You took my dead heart
-  and gave me your own soft heart.
+* and gave me your own soft heart.
 
 This is what you have done.
 

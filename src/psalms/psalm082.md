@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 82 Divine
 
 ## The Psalm
@@ -30,27 +37,27 @@ My Rightly and Only Divine
 </div>
 
 You, O Lord, are high
-  above all the earth
-  you are exalted
-  far above all other gods.
+* above all the earth
+* you are exalted
+* far above all other gods.
 
 All of the idols that I have worshiped for all of my life
-  I place them into your presence
-  so you will break their hands
-  and snap their necks
-  and sever their heads
-  to kill them all off.
+* I place them into your presence
+* so you will break their hands
+* and snap their necks
+* and sever their heads
+* to kill them all off.
 
 Moreso, I repent of all the times
-  I was a god
-  that I made it about me
-  and my needs and desires.
-  Without your gracious and soft heart
-  without your Spirit dwelling in me
-  without your Christ that came and rescue me
-  I would die and fall like any other idol.
+* I was a god
+* that I made it about me
+* and my needs and desires.
+* Without your gracious and soft heart
+* without your Spirit dwelling in me
+* without your Christ that came and rescue me
+* I would die and fall like any other idol.
 
 I love you, Lord, and all that is in me
-  I will bless your holy name forever.
+* I will bless your holy name forever.
 
 Amen

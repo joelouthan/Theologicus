@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 97 Righteousness
 
 ## The Psalm
@@ -36,37 +43,37 @@ Righteousness
 </div>
 
 For you, O Lord
-  are high
-  above all the earth
+* are high
+* above all the earth
 
 And you alone
-  are exalted
-  far above
-  all of my gods
+* are exalted
+* far above
+* all of my gods
 
 I thought
-  that what I did was good enough
-  to have nothing to do with you
-  and wanted everything you provide
-  to worship your gifts
-  instead of worshipping the Giver
+* that what I did was good enough
+* to have nothing to do with you
+* and wanted everything you provide
+* to worship your gifts
+* instead of worshipping the Giver
 
 But you were none content
-  with my life unto death
-  you will not let your son perish
-  nor see corruption
+* with my life unto death
+* you will not let your son perish
+* nor see corruption
 
 You gave me a new heart
-  renewed mind
-  gift of repentance 
-  and Your Spirit
-  because you were thoughtful
-  mindful
-  gracious
-  to give me your Son
+* renewed mind
+* gift of repentance 
+* and Your Spirit
+* because you were thoughtful
+* mindful
+* gracious
+* to give me your Son
 
 Now I get to sing
-  now I get to worship
-  now I get to proclaim
-  you are my Lord
-  and you are my great God!
+* now I get to worship
+* now I get to proclaim
+* you are my Lord
+* and you are my great God!

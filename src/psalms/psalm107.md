@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 107 All-in-all
 
 ## The Psalm
@@ -98,38 +105,38 @@ Lord
 </div>
 
 You are my forever  
-  Jesus  
-  Lamb of God  
-  and only your name  
-  is worthy of praise  
-  forever.
+* Jesus  
+* Lamb of God  
+* and only your name  
+* is worthy of praise  
+* forever.
 
 You are my covenant  
-  my rescuer  
-  my redeemer  
-  my portion  
-  and my destiny.
+* my rescuer  
+* my redeemer  
+* my portion  
+* and my destiny.
 
 Who is like you  
-  O Lord  
-  that while my own sins  
-  and the sins of others  
-  keep seeking my death  
-  and despair,
-  you keep pulling me out  
-  and bringing me closer  
-  to your heart?
+* O Lord  
+* that while my own sins  
+* and the sins of others  
+* keep seeking my death  
+* and despair,
+* you keep pulling me out  
+* and bringing me closer  
+* to your heart?
 
 You have rescued me  
-  not just seven  
-  but beyond seventy times seven.
+* not just seven  
+* but beyond seventy times seven.
 
 Who is like you, O My God?  
-  I will worship you  
-  for all of my days.
-  I will praise your holy name  
-  with all that is in me  
-  I will bless your name  
-  forever.
+* I will worship you  
+* for all of my days.
+* I will praise your holy name  
+* with all that is in me  
+* I will bless your name  
+* forever.
 
 Amen.

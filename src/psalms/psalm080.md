@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 80 Restorer
 
 ## The Psalm
@@ -54,8 +61,8 @@ Restorer
 Save me, O God!
 
 If you do not save me, I will perish  
-  For I will die in my iniquity  
-  I will be crushed for my wickedness.
+* For I will die in my iniquity  
+* I will be crushed for my wickedness.
 
 You know I come from dust
 
@@ -64,19 +71,19 @@ You know I am weak and frail
 You know I cannot turn to you apart from you
 
 You are the only God and there is none beside you  
-  and you are the God of grace
-  you are the God of mercy
-  you are the God of steadfast love
+* and you are the God of grace
+* you are the God of mercy
+* you are the God of steadfast love
 
 Apart from You  
-  I will not be saved.
+* I will not be saved.
 
 Save me  
-  from my sins  
-  from my fallen  
-  from my own life  
-  from my own righteousness 
-  from myself
+* from my sins  
+* from my fallen  
+* from my own life  
+* from my own righteousness 
+* from myself
 
 Save me, my God.
 

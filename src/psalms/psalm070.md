@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 70 Rescuer
 
 ## The Psalm
@@ -24,18 +31,18 @@ Rescuer
 </div>
 
 How many times
-  do I fall back into the depths of the ocean
-  to drown in my own sin
-  to return back to my vomit
-  to die another death
-  to run away from you?
+* do I fall back into the depths of the ocean
+* to drown in my own sin
+* to return back to my vomit
+* to die another death
+* to run away from you?
 
-  How many times
-    do you love me
-    do you care for me
-    do you keep me
-    do you find me
-    do you rescue me
+* How many times
+*  do you love me
+*  do you care for me
+*  do you keep me
+*  do you find me
+*  do you rescue me
 
 How many stars are there?
 
@@ -50,6 +57,6 @@ How many waves of sun?
 What is that number?
 
 Doesn't compare
-  to your unending love for me.
+* to your unending love for me.
 
 Amen.

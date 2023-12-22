@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 87 Dwelling
 
 ## The Psalm
@@ -28,45 +35,45 @@ Dwelling
 </div>
 
 Where is my home
-  and my heart
-  and my love
-  and my belongings
-  and my rest?
+* and my heart
+* and my love
+* and my belongings
+* and my rest?
 
 None other
-  than your Blessed Son
-  who is my King of kings
-  but who is my friend
-  and my oldest brother
-  and my love and satisfaction.
+* than your Blessed Son
+* who is my King of kings
+* but who is my friend
+* and my oldest brother
+* and my love and satisfaction.
 
 You have proven yourself over
-  time and time again
-  that you are mine
-  and I am yours
-  forevermore.
+* time and time again
+* that you are mine
+* and I am yours
+* forevermore.
 
 And there is nothing
-  that can harm me
-  hurt me
-  damage me
-  or separate me
-  from your precious love.
+* that can harm me
+* hurt me
+* damage me
+* or separate me
+* from your precious love.
 
 You are my God
-  and my Christ
-  my keeper
-  and my Lord
-  You are exalted
-  far above
-  all of my gods.
+* and my Christ
+* my keeper
+* and my Lord
+* You are exalted
+* far above
+* all of my gods.
 
 I will exalt you
-  till my last heartbeat
-  till my dying breath
-  till my final thought
-  I will worship you
-  I will glorify you
-  forever.
+* till my last heartbeat
+* till my dying breath
+* till my final thought
+* I will worship you
+* I will glorify you
+* forever.
 
 Amen.

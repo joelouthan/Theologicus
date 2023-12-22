@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 2
 
 ## The Psalm
@@ -32,7 +39,7 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-  My Lord,
+My Lord,
 </div>
 
 I am set apart, this is true. But set apart by you to you.

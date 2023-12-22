@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 14
 
 ## The Psalm
@@ -24,7 +31,7 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-  O Lord,
+O Lord,
 </div>
 
 I would say to you, “I have not forgotten you.” But what about those times I succumb to the wickedness of my heart, to the depravity of the world, or to the lies of Satan? What about those times?

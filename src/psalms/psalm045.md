@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 45
 
 ## The Psalm
@@ -48,24 +55,24 @@ You Are My Bridegroom
 </div>
 
 And now
-  you are finished
-  my Lord
-  and now all the kingdoms
-  power
-  glory
-  belong to you alone.
+* you are finished
+* my Lord
+* and now all the kingdoms
+* power
+* glory
+* belong to you alone.
 
 Yours is the kingdom
-  and you are exalted above all.
+* and you are exalted above all.
 
 Yours is the treasure
-  for you alone
-  are the rightful heir
-  to all of Creation.
+* for you alone
+* are the rightful heir
+* to all of Creation.
 
 Be exalted, O God
-  I shall worship you
-  all of my days
-  there is none like you.
+* I shall worship you
+* all of my days
+* there is none like you.
 
 Amen.

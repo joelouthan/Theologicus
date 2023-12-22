@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 23:4d The Comfort of Your Power
 
 ## The Psalm
@@ -9,7 +16,7 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-  My God,
+My God,
 </div>
 
 It is the might and strength of your protection on my life and heart that gives me peace.

@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 34:7
 
 ## The Psalm
@@ -17,18 +24,18 @@ We know that
 sins crouched for us.
 
 We know that the devil
-  sets his snares for our souls.
+* sets his snares for our souls.
 We know that the world
-  beckons our hearts towards death.
+* beckons our hearts towards death.
 But you alone are
-  worthy to be praised
+* worthy to be praised
 
 You alone are
-  holy and holy and holy
+* holy and holy and holy
 
 You alone are
-  righteous
-  for there is none like you
+* righteous
+* for there is none like you
 
 I will worship you
 
@@ -47,15 +54,15 @@ I will trust in your Son
 Because you have loved me
 
 Because your Son
-  lived and died for me
+* lived and died for me
 
 Because your Spirit
-  bears witness with my spirit
-  that I am a son of God.
+* bears witness with my spirit
+* that I am a son of God.
 
 That you dwell wholly within me.
 
 And with you in me
-  I will bless your holy name forever.
+* I will bless your holy name forever.
 
 Amen.

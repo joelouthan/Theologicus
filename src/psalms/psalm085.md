@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 85 Grace
 
 ## The Psalm
@@ -40,48 +47,48 @@ Grace
 </div>
 
 Just as you looked upon Noah
-  saw his wickedness
-  foolishness
-  worthlessness
-  and depravity
+* saw his wickedness
+* foolishness
+* worthlessness
+* and depravity
 
-  you looked upon my sins
-  and counted them up
-  and they are endless
-  and every one of my sins
-  was treasonous act
-  against your holiness
+* you looked upon my sins
+* and counted them up
+* and they are endless
+* and every one of my sins
+* was treasonous act
+* against your holiness
 
 But just as you looked upon Noah
-  and gave him grace
-  you looked upon my estate
-  and gave me grace
-  I did nothing to deserve it
-  I did everything to reject it
-  but still you loved me
-  knew me
-  and saved me.
+* and gave him grace
+* you looked upon my estate
+* and gave me grace
+* I did nothing to deserve it
+* I did everything to reject it
+* but still you loved me
+* knew me
+* and saved me.
 
 There will be one day
-  I will stand in front of your precious Son
-  and the account of my sins will be listed off
-  and others' sins will not compare to my own
-  because I am the chief of sinners
+* I will stand in front of your precious Son
+* and the account of my sins will be listed off
+* and others' sins will not compare to my own
+* because I am the chief of sinners
 
 Call my sins out
-  every last one of them
-  because even it was one sin or a billionth sin
-  I will still need Your only begotten Son
-  Jesus Christ
-  to forgive me of all of my sins
-  and to cleanse me of all unrighteousness
-  to remove my transgressions as far as the east is from the west
+* every last one of them
+* because even it was one sin or a billionth sin
+* I will still need Your only begotten Son
+* Jesus Christ
+* to forgive me of all of my sins
+* and to cleanse me of all unrighteousness
+* to remove my transgressions as far as the east is from the west
 
 I am in desperate need
-  of the grace that only Christ can give.
+* of the grace that only Christ can give.
 
 Name my sins
-  so even my wickedness
-  will glorify His name
-  because salvation belongs to the Lord
-  You are the only one mighty to save me.
+* so even my wickedness
+* will glorify His name
+* because salvation belongs to the Lord
+* You are the only one mighty to save me.

@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 109 Merciful
 
 ## The Psalm
@@ -76,58 +83,58 @@ Lord
 </div>
 
 I am not the one  
-  who is upright  
-  and blameless  
+* who is upright  
+* and blameless  
 
 I am the one  
-  who is wicked  
-  full of malice  
-  and anger  
-  and unholiness  
-  and unrighteousness  
-  blameful  
-  in all of my ways.  
+* who is wicked  
+* full of malice  
+* and anger  
+* and unholiness  
+* and unrighteousness  
+* blameful  
+* in all of my ways.  
 
 I am the sinful one  
-  who wars against you  
-  who battles against your holy name  
-  who trespasses with every beat of my heart  
-  I am the one who is guilty  
-  and deserving of your great wrath.  
+* who wars against you  
+* who battles against your holy name  
+* who trespasses with every beat of my heart  
+* I am the one who is guilty  
+* and deserving of your great wrath.  
 
 Nonetheless  
-  you saw me in my sin  
-  and you loved me  
-  you saw me as your enemy  
-  and set out  
-  not to destroy me  
-  but to save me  
-  not just spared from your wrath  
-  but to be your child  
-  forever and ever.  
+* you saw me in my sin  
+* and you loved me  
+* you saw me as your enemy  
+* and set out  
+* not to destroy me  
+* but to save me  
+* not just spared from your wrath  
+* but to be your child  
+* forever and ever.  
 
 I know this  
-  because you have sent  
-  your only begotten Son  
-  to live and die for me  
-  so I can die and live with you  
-  forever and ever.
+* because you have sent  
+* your only begotten Son  
+* to live and die for me  
+* so I can die and live with you  
+* forever and ever.
 
 And I know this  
-  because your Holy Spirit  
-  dwells in me  
-  never to leave me  
-  but to bear witness with my Spirit  
-  that I belong to you  
-  and you belong to me  
-  forever and ever.
+* because your Holy Spirit  
+* dwells in me  
+* never to leave me  
+* but to bear witness with my Spirit  
+* that I belong to you  
+* and you belong to me  
+* forever and ever.
 
 I will always fail  
-  but you are the strength of my heart  
-  and my portion forever.  
+* but you are the strength of my heart  
+* and my portion forever.  
 
 Save me, Lord  
-  I am in need of saving.  
+* I am in need of saving.  
 
 Amen.
 

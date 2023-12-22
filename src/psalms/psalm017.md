@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 17
 
 ## The Psalm
@@ -40,7 +47,7 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-  O Father,
+O Father,
 </div>
 
 You are God of the Universe. Holy, righteous, just. High above my idols. High above my sins. High above my faults. High above the twisted wickedness of my own heart. In no way could I have ever approach you.

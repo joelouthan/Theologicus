@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 90 Eternity
 
 ## The Psalm
@@ -48,47 +55,47 @@ Eternity
 </div>
 
 What is my life, Lord
-  that you were so sweet to me
-  that you were so tender
-  that you thought of me
-  and preserved me?
+* that you were so sweet to me
+* that you were so tender
+* that you thought of me
+* and preserved me?
 
 How many times
-  should have perished in my own sin
-  should have been destroyed by sin
-  should have been wiped because of others' sin?
+* should have perished in my own sin
+* should have been destroyed by sin
+* should have been wiped because of others' sin?
 
 I cannot count that high
-  my mind cannot comprehend
-  my life is always at risk
-  I shall lose to my life
-  at a mere whim
+* my mind cannot comprehend
+* my life is always at risk
+* I shall lose to my life
+* at a mere whim
 
 Once more
-  the times I should have died
-  and I shall descend into your just wrath
-  and into the torments of hell
-  and I shall have been held captive
-  for my sins 
-  and my disease
-  and my wickedness
-  and my treason
-  and my evils.
+* the times I should have died
+* and I shall descend into your just wrath
+* and into the torments of hell
+* and I shall have been held captive
+* for my sins 
+* and my disease
+* and my wickedness
+* and my treason
+* and my evils.
 
 Why did you spare me?
-  Why are you so caring?
-  Why do you love me so?
+* Why are you so caring?
+* Why do you love me so?
 
 You took pity upon me
-  and you knew I was made from dust
-  and you spared me
-  Moreso, you lifted me up
-  and gave me a seat at your table
-  and made me your son like your Son
-  and you gave me everything.
+* and you knew I was made from dust
+* and you spared me
+* Moreso, you lifted me up
+* and gave me a seat at your table
+* and made me your son like your Son
+* and you gave me everything.
 
 I cannot begin to answer any of these questions
-  but I will worship you for all of my days
-  because you are my Lord and my God forever.
+* but I will worship you for all of my days
+* because you are my Lord and my God forever.
 
 Amen

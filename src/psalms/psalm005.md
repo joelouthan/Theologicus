@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 5
 
 ## The Psalm
@@ -34,7 +41,7 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-  My King and my God,
+My King and my God,
 </div>
 
 My heart grieves. My soul groans. I am in need of your Spirit.

@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 46
 
 ## The Psalm
@@ -36,30 +43,30 @@ You Are My Refuge
 </div>
 
 You alone
-  are my righteousness
-  and my exalted Lord
-  who rules and reigns in the heavens.
+* are my righteousness
+* and my exalted Lord
+* who rules and reigns in the heavens.
 
 Majesty
-  and my Love
-  who can do what you have done?
+* and my Love
+* who can do what you have done?
 
 My circumstances
-  and my time here on earth
-  do not define me
-  nor do my sins
-  nor do my actions
-  nor do my desires
-  nor does my heart.
+* and my time here on earth
+* do not define me
+* nor do my sins
+* nor do my actions
+* nor do my desires
+* nor does my heart.
 
 Only you
-  King Jesus
-  give me all of my identity
-  and worth
-  and value.
+* King Jesus
+* give me all of my identity
+* and worth
+* and value.
 
 Nothing else
-  just you.
-  My Lord and my Rock.
+* just you.
+* My Lord and my Rock.
 
 Amen.

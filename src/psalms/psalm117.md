@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 117 Glorified
 
 ## The Psalm
@@ -16,14 +23,14 @@ Lord
 </div>
 
 For all of my life  
-  and all of my days  
-  I will sing of your praises  
-  for you alone have been so good to me  
-  you alone have loved me  
-  and you alone have saved me from my wickedness.
+* and all of my days  
+* I will sing of your praises  
+* for you alone have been so good to me  
+* you alone have loved me  
+* and you alone have saved me from my wickedness.
 
 For all that is in me  
-  I will bless your glorious name  
-  forevermore.
+* I will bless your glorious name  
+* forevermore.
 
 Amen.

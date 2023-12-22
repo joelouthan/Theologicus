@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 63
 
 ## The Psalm
@@ -36,23 +43,23 @@ You Are My God
 </div>
 
 My enemies feebly
-  failed to destroy me
-  They attacked me from all sides
-  They have punctured my heart 
-  with all of their fiery arrows
-  surely I was dead
-  my soul was gone.
+* failed to destroy me
+* They attacked me from all sides
+* They have punctured my heart 
+* with all of their fiery arrows
+* surely I was dead
+* my soul was gone.
 
 But I belong to you
-  you are my everlasting God
-  who have sent His Son
-  to live and die for me
-  so that I will never perish
-  but have everlasting life.
+* you are my everlasting God
+* who have sent His Son
+* to live and die for me
+* so that I will never perish
+* but have everlasting life.
 
 Your love
-  is what my life runs on.
-  Be my everything
-  and be with me forever.
+* is what my life runs on.
+* Be my everything
+* and be with me forever.
 
 Amen.

@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 99 Awe
 
 ## The Psalm
@@ -30,25 +37,25 @@ Awe
 </div>
 
 You are gracious and kind
-  and my heart is limited
+* and my heart is limited
 
 You are merciful and loving
-  and my soul can only bear so much
+* and my soul can only bear so much
 
 You dwell in me
-  and I have spent most of life
-  rejecting you
+* and I have spent most of life
+* rejecting you
 
 You are glorious
-  and I tightly squint my eyes
-  because they ache from your light
+* and I tightly squint my eyes
+* because they ache from your light
 
 I have seen your great power and might
-  and rarely do I believe
+* and rarely do I believe
 
 You alone are awe-inspiring
-  and I often settle for less
+* and I often settle for less
 
 Yet, I am yours
-  and you are mine
-  forever
+* and you are mine
+* forever

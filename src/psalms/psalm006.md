@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 6
 
 ## The Psalm
@@ -30,7 +37,7 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-  My Holy Lord Above All,
+My Holy Lord Above All,
 </div>
 
 My deeds have warranted not your affections but your attentions—attention to correct my path. However , it is not simply that, it is more serious, more deadly than that.

@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 65
 
 ## The Psalm
@@ -40,16 +47,16 @@ Worthy is the Lamb
 </div>
 
 There is none like you
-  the Savior of my soul
-  the Love of my heart
-  the Giver of my salvation
-  the Redeemer of my existence
-  the Absorber of my just wrath
-  the Remover of my sins
-  the Adopter of this child
-  the Mercy of my every morning
-  the Grace upon your grace
-  the Love that steadfastly me so.
+* the Savior of my soul
+* the Love of my heart
+* the Giver of my salvation
+* the Redeemer of my existence
+* the Absorber of my just wrath
+* the Remover of my sins
+* the Adopter of this child
+* the Mercy of my every morning
+* the Grace upon your grace
+* the Love that steadfastly me so.
 
 I love you Lord
-  and I will forever praise your holy name.
+* and I will forever praise your holy name.

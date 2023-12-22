@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 8
 
 ## The Psalm
@@ -28,7 +35,7 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-  My Lord, Our Lord,
+My Lord, Our Lord,
 </div>
 
 Your name is known throughout all the earth.

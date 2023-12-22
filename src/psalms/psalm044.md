@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 44
 
 ## The Psalm
@@ -66,39 +73,39 @@ You Are My King
 </div>
 
 Before Christ
-  I was without strength
-  I would succumb to the enemy
-  day and night.
+* I was without strength
+* I would succumb to the enemy
+* day and night.
 
 Before Christ
-  I was without glory
-  I would lose all of my battles
-  and torn to pieces.
+* I was without glory
+* I would lose all of my battles
+* and torn to pieces.
 
 Before Christ
-  I was filled with sin
-  my consequences
-  and my enemies
-  would have surely put me to death.
+* I was filled with sin
+* my consequences
+* and my enemies
+* would have surely put me to death.
 
 But Christ
-  stepped in
-  rescued me
-  clothed me
-  gave me food
-  gave me strength
-  gave me protection
-  and gave me the one thing I never have
-  everlasting love.
+* stepped in
+* rescued me
+* clothed me
+* gave me food
+* gave me strength
+* gave me protection
+* and gave me the one thing I never have
+* everlasting love.
 
 Dear God,
-  Let me have your Son
-  as my friend
-  my beloved
-  my Savior
-  my love
-  my brother
-  and my King
-  Forever.
+* Let me have your Son
+* as my friend
+* my beloved
+* my Savior
+* my love
+* my brother
+* and my King
+* Forever.
 
 Amen.

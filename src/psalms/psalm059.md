@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 59
 
 ## The Psalm
@@ -48,44 +55,44 @@ You Are My Stronghold
 </div>
 
 I pray
-  that all of my sworn enemies
-  have sought to destroy me
-  kill me
-  hurt me
-  maim me
-  torture me
-  and weaken me
-  that they would all
-  be saved
-  by your hand
-  with your love
-  in the blood of your Son
-  by the power of your Spirit.
+* that all of my sworn enemies
+* have sought to destroy me
+* kill me
+* hurt me
+* maim me
+* torture me
+* and weaken me
+* that they would all
+* be saved
+* by your hand
+* with your love
+* in the blood of your Son
+* by the power of your Spirit.
 
 I will say this once
-  because they are not my enemies
-  but prisoners of war
-  a war they cannot see
-  and death is already upon them.
+* because they are not my enemies
+* but prisoners of war
+* a war they cannot see
+* and death is already upon them.
 
 Be merciful to them, Lord,
-  answer my prayer
-  save them
-  so we can worship you
-  Almighty God
-  for there is none like you.
+* answer my prayer
+* save them
+* so we can worship you
+* Almighty God
+* for there is none like you.
 
 I would like to see their face
-  in the light of your love
-  in the light of grace
-  in the luxury of your mercy.
+* in the light of your love
+* in the light of grace
+* in the luxury of your mercy.
 
 I love you Lord
-  and I know you will save
-  your people
-  from their sins
-  because all of what your Son
-  has done for us.
+* and I know you will save
+* your people
+* from their sins
+* because all of what your Son
+* has done for us.
 
 Thank you.
 I praise you.

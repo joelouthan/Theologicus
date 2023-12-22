@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 96 Song
 
 ## The Psalm
@@ -38,17 +45,17 @@ Song
 </div>
 
 I will exhaust my breath
-  I will give whatever I have
-  I will deplete my resources
-  I will squeeze my heart
-  I will sacrifice my voice
-  I will waste my life
-  to search you out
-  to testify of your goodness
-  to glorify your holy name
-  to proclaim your salvation
-  to preach your word
-  to sing your name
-  to the everlasting
-  you are my God
-  forever
+* I will give whatever I have
+* I will deplete my resources
+* I will squeeze my heart
+* I will sacrifice my voice
+* I will waste my life
+* to search you out
+* to testify of your goodness
+* to glorify your holy name
+* to proclaim your salvation
+* to preach your word
+* to sing your name
+* to the everlasting
+* you are my God
+* forever

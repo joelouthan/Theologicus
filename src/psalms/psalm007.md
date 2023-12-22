@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 7
 
 ## The Psalm
@@ -44,7 +51,7 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-  O Lord my God,
+O Lord my God,
 </div>
 
 It might feel like the world is against me. I might feel like I am a being persecuted. But the real battle is not the world versus me but rather, my own sin and my own iniquities versus the spirit inside of me.

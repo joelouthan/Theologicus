@@ -1,5 +1,12 @@
 <img class="intro-right" src="/images/art-paris-psalter.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # Praying Through: Psalm 94 Vengeance
 
 ## The Psalm
@@ -58,35 +65,35 @@ Vengeance
 </div>
 
 The sins against me
-  when the people should have
-  cared for me
-  tender towards me
-  love me
-  cherish me
+* when the people should have
+* cared for me
+* tender towards me
+* love me
+* cherish me
 
 Instead
-  I was forgotten
-  forsaken
-  betrayed
-  hated
-  unloved
+* I was forgotten
+* forsaken
+* betrayed
+* hated
+* unloved
 
 But you appeared
-  you saved me
-  and nothing I have done
-  brought you to me
-  everything that I have done
-  should have attracted your wrath
+* you saved me
+* and nothing I have done
+* brought you to me
+* everything that I have done
+* should have attracted your wrath
 
 Those who forgotten me
-  you are closer than whisper
-  those who forsaken me
-  you dwell in me
-  those who have betrayed me
-  you have adopted me
-  those who have hated me 
-  you have loved me
-  those who despite me
-  I am my Beloved
-  and you are mine
-  forever 
+* you are closer than whisper
+* those who forsaken me
+* you dwell in me
+* those who have betrayed me
+* you have adopted me
+* those who have hated me 
+* you have loved me
+* those who despite me
+* I am my Beloved
+* and you are mine
+* forever 
