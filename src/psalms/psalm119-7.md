@@ -18,3 +18,18 @@
 <div style="font-variant: small-caps;">
 My Living Word
 </div>
+
+Now that you have given me your Son
+* your Spirit
+* your Word
+* your heart
+* I can praise you
+* I get to worship you
+* I able to adore you
+* I abide in you
+* forever.
+
+On this day
+* be glorified.
+
+Amen.
