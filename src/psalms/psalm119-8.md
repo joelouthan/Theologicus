@@ -18,3 +18,7 @@
 <div style="font-variant: small-caps;">
 My Living Word
 </div>
+
+Your Son has kept your statutes.
+* Therefore you will never abandon me.
+* *Selah*
