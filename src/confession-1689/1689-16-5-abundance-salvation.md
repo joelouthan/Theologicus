@@ -10,7 +10,7 @@ We cannot by our best works merit pardon of sin or eternal life at the hand of G
 
 ## The Confession
 
-### Only God Saves: we cannot saves ourselves
+### Only God Saves: we cannot save ourselves
 
 >Romans 3:20 (CSB) For no one will be justified in his sight by the works of the law, because the knowledge of sin comes through the law.
 

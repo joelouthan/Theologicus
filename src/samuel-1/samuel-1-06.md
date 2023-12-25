@@ -55,7 +55,11 @@
 
 ## The Study
 
-###
+><sup>1</sup> When the ark of the LORD had been in Philistine territory for seven months, 
+>
+><sup>2</sup> the Philistines summoned the priests and the diviners and pleaded, “What should we do with the ark of the LORD? Tell us how we can send it back to its place.” 
+
+### No Other Gods: 
 
 ---
 

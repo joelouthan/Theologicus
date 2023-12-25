@@ -21,3 +21,4 @@
 
 ## The Devotion
 
+### Christ is Our Preached Word: we now seen a great light
