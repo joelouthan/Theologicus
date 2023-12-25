@@ -11,6 +11,8 @@
 
 ## The Psalm
 
+>Psalms 119:9 (CSB) How can a young man keep his way pure? By keeping your word.
+
 ## The Prayer
 
 <div style="font-variant: small-caps;">
