@@ -59,7 +59,73 @@
 >
 ><sup>2</sup> the Philistines summoned the priests and the diviners and pleaded, “What should we do with the ark of the LORD? Tell us how we can send it back to its place.” 
 
+### No Other Gods: We Cannot Worship Other Gods and the God of Gods
+
+---
+
+><sup>3</sup> They replied, “If you send the ark of Israel’s God away, do not send it without an offering. Send back a guilt offering to him, and you will be healed. Then the reason his hand hasn’t been removed from you will be revealed.” 
+>
+><sup>4</sup> They asked, “What guilt offering should we send back to him?” And they answered, “Five gold tumors and five gold mice corresponding to the number of Philistine rulers, since there was one plague for both you and your rulers. 
+>
+><sup>5</sup> Make images of your tumors and of your mice that are destroying the land. Give glory to Israel’s God, and perhaps he will stop oppressing you, your gods, and your land. 
+
+### No Other Gods: We Have All Exchanged God For Other Gods
+
+>Romans 1:21-25 (CSB) For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. Claiming to be wise, they became fools and exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles. Therefore God delivered them over in the desires of their hearts to sexual impurity, so that their bodies were degraded among themselves. They exchanged the truth of God for a lie, and worshiped and served what has been created instead of the Creator, who is praised forever. Amen.
+
+---
+
+><sup>6</sup> Why harden your hearts as the Egyptians and Pharaoh hardened theirs? When he afflicted them, didn’t they send Israel away, and Israel left? 
+
 ### No Other Gods: 
+
+---
+
+><sup>7</sup> “Now then, prepare one new cart and two milk cows that have never been yoked. Hitch the cows to the cart, but take their calves away and pen them up. 
+>
+><sup>8</sup> Take the ark of the LORD, place it on the cart, and put the gold objects that you’re sending him as a guilt offering in a box beside the ark. Send it off and let it go its way. 
+>
+><sup>9</sup> Then watch: If it goes up the road to its homeland toward Beth-shemesh, it is the LORD who has made this terrible trouble for us. However, if it doesn’t, we will know that it was not his hand that punished us—it was just something that happened to us by chance.” 
+>
+><sup>10</sup> The men did this: They took two milk cows, hitched them to the cart, and confined their calves in the pen. 
+>
+><sup>11</sup> Then they put the ark of the LORD on the cart, along with the box containing the gold mice and the images of their tumors. 
+>
+><sup>12</sup> The cows went straight up the road to Beth-shemesh. They stayed on that one highway, lowing as they went; they never strayed to the right or to the left. The Philistine rulers were walking behind them to the territory of Beth-shemesh. 
+>
+><sup>13</sup> The people of Beth-shemesh were harvesting wheat in the valley, and when they looked up and saw the ark, they were overjoyed to see it. 
+>
+><sup>14</sup> The cart came to the field of Joshua of Beth-shemesh and stopped there near a large rock. The people of the city chopped up the cart and offered the cows as a burnt offering to the LORD. 
+>
+><sup>15</sup> The Levites removed the ark of the LORD, along with the box containing the gold objects, and placed them on the large rock. That day the people of Beth-shemesh offered burnt offerings and made sacrifices to the LORD. 
+
+### No Other Gods: God is the Only God That Gives to Us
+
+>Matthew 1:21–23 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.” Now all this took place to fulfill what was spoken by the Lord through the prophet: See, the virgin will become pregnant and give birth to a son, and they will name him Immanuel, which is translated “God is with us.”
+
+---
+
+><sup>16</sup> When the five Philistine rulers observed this, they returned to Ekron that same day. 
+>
+><sup>17</sup> As a guilt offering to the LORD, the Philistines had sent back one gold tumor for each city: Ashdod, Gaza, Ashkelon, Gath, and Ekron. 
+>
+><sup>18</sup> The number of gold mice also corresponded to the number of Philistine cities of the five rulers, the fortified cities and the outlying villages. The large rock on which the ark of the LORD was placed is still in the field of Joshua of Beth-shemesh today. 
+
+### No Other Gods: TODO:
+
+---
+
+><sup>19</sup> God struck down the people of Beth-shemesh because they looked inside the ark of the LORD. He struck down seventy persons. The people mourned because the LORD struck them with a great slaughter.
+
+### No Other Gods: TODO:
+
+---
+
+><sup>20</sup> The people of Beth-shemesh asked, “Who is able to stand in the presence of the LORD this holy God? To whom should the ark go from here?” 
+>
+><sup>21</sup> They sent messengers to the residents of Kiriath-jearim, saying, “The Philistines have returned the ark of the LORD. Come down and get it.”
+
+### No Other Gods: TODO:
 
 ---
 
