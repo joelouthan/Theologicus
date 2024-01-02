@@ -111,13 +111,19 @@
 >
 ><sup>18</sup> The number of gold mice also corresponded to the number of Philistine cities of the five rulers, the fortified cities and the outlying villages. The large rock on which the ark of the LORD was placed is still in the field of Joshua of Beth-shemesh today. 
 
-### No Other Gods: TODO:
+### No Other Gods: Worshiping God at Our Convenience Will Not Save Us
+
+>Matthew 7:21–23 (CSB) “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father in heaven. On that day many will say to me, ‘Lord, Lord, didn’t we prophesy in your name, drive out demons in your name, and do many miracles in your name?’ Then I will announce to them, ‘I never knew you. Depart from me, you lawbreakers!’
+
+For the moment vs. for all of eternity
 
 ---
 
 ><sup>19</sup> God struck down the people of Beth-shemesh because they looked inside the ark of the LORD. He struck down seventy persons. The people mourned because the LORD struck them with a great slaughter.
 
-### No Other Gods: TODO:
+### No Other Gods: God is Holy
+
+>Isaiah 6:1–5 (CSB) In the year that King Uzziah died, I saw the Lord seated on a high and lofty throne, and the hem of his robe filled the temple. Seraphim were standing above him; they each had six wings: with two they covered their faces, with two they covered their feet, and with two they flew. And one called to another: Holy, holy, holy is the LORD of Armies; his glory fills the whole earth. The foundations of the doorways shook at the sound of their voices, and the temple was filled with smoke. Then I said: Woe is me for I am ruined because I am a man of unclean lips and live among a people of unclean lips, and because my eyes have seen the King, the LORD of Armies.
 
 ---
 
@@ -125,7 +131,9 @@
 >
 ><sup>21</sup> They sent messengers to the residents of Kiriath-jearim, saying, “The Philistines have returned the ark of the LORD. Come down and get it.”
 
-### No Other Gods: TODO:
+### No Other Gods: God is the Only One Who Can Save Us from His Wrath
+
+>John 3:36 (CSB) The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 
 ---
 
