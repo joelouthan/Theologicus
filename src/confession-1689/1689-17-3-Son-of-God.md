@@ -34,4 +34,66 @@ And though they may, through the temptation of Satan and of the world, the preva
 
 ### Christ Saves: yet shall they renew their repentance and be preserved through faith in Christ Jesus to the end
 
->Luke 22:32–62 (CSB) But I have prayed for you that your faith may not fail. And you, when you have turned back, strengthen your brothers.” “Lord,” he told him, “I’m ready to go with you both to prison and to death.” “I tell you, Peter,” he said, “the rooster will not crow today until you deny three times that you know me.” He also said to them, “When I sent you out without money-bag, traveling bag, or sandals, did you lack anything?” “Not a thing,” they said. Then he said to them, “But now, whoever has a money-bag should take it, and also a traveling bag. And whoever doesn’t have a sword should sell his robe and buy one. For I tell you, what is written must be fulfilled in me: And he was counted among the lawless. Yes, what is written about me is coming to its fulfillment.” “Lord,” they said, “look, here are two swords.” “That is enough!” he told them. He went out and made his way as usual to the Mount of Olives, and the disciples followed him. When he reached the place, he told them, “Pray that you may not fall into temptation.” Then he withdrew from them about a stone’s throw, knelt down, and began to pray, “Father, if you are willing, take this cup away from me—nevertheless, not my will, but yours, be done.” Then an angel from heaven appeared to him, strengthening him. Being in anguish, he prayed more fervently, and his sweat became like drops of blood falling to the ground. When he got up from prayer and came to the disciples, he found them sleeping, exhausted from their grief. “Why are you sleeping?” he asked them. “Get up and pray, so that you won’t fall into temptation.” While he was still speaking, suddenly a mob came, and one of the Twelve named Judas was leading them. He came near Jesus to kiss him, but Jesus said to him, “Judas, are you betraying the Son of Man with a kiss?” When those around him saw what was going to happen, they asked, “Lord, should we strike with the sword?” Then one of them struck the high priest’s servant and cut off his right ear. But Jesus responded, “No more of this!” And touching his ear, he healed him. Then Jesus said to the chief priests, temple police, and the elders who had come for him, “Have you come out with swords and clubs as if I were a criminal? Every day while I was with you in the temple, you never laid a hand on me. But this is your hour—and the dominion of darkness.” They seized him, led him away, and brought him into the high priest’s house. Meanwhile Peter was following at a distance. They lit a fire in the middle of the courtyard and sat down together, and Peter sat among them. When a servant saw him sitting in the light, and looked closely at him, she said, “This man was with him too.” But he denied it: “Woman, I don’t know him.” After a little while, someone else saw him and said, “You’re one of them too.” “Man, I am not!” Peter said. About an hour later, another kept insisting, “This man was certainly with him, since he’s also a Galilean.” But Peter said, “Man, I don’t know what you’re talking about!” Immediately, while he was still speaking, a rooster crowed. Then the Lord turned and looked at Peter. So Peter remembered the word of the Lord, how he had said to him, “Before the rooster crows today, you will deny me three times.” And he went outside and wept bitterly.
+>Luke 22:32–62 (CSB)  
+><sup>32</sup> But I have prayed for you that your faith may not fail. And you, when you have turned back, strengthen your brothers.” 
+>
+><sup>33</sup> “Lord,” he told him, “I’m ready to go with you both to prison and to death.” 
+>
+><sup>34</sup> “I tell you, Peter,” he said, “the rooster will not crow today until you deny three times that you know me.” 
+>
+><sup>35</sup> He also said to them, “When I sent you out without money-bag, traveling bag, or sandals, did you lack anything?” “Not a thing,” they said. 
+>
+><sup>36</sup> Then he said to them, “But now, whoever has a money-bag should take it, and also a traveling bag. And whoever doesn’t have a sword should sell his robe and buy one. 
+>
+><sup>37</sup> For I tell you, what is written must be fulfilled in me: And he was counted among the lawless. Yes, what is written about me is coming to its fulfillment.” 
+>
+><sup>38</sup> “Lord,” they said, “look, here are two swords.” “That is enough!” he told them. 
+>
+><sup>39</sup> He went out and made his way as usual to the Mount of Olives, and the disciples followed him. 
+>
+><sup>40</sup> When he reached the place, he told them, “Pray that you may not fall into temptation.” 
+>
+><sup>41</sup> Then he withdrew from them about a stone’s throw, knelt down, and began to pray, 
+>
+><sup>42</sup> “Father, if you are willing, take this cup away from me—nevertheless, not my will, but yours, be done.” 
+>
+><sup>43</sup> Then an angel from heaven appeared to him, strengthening him. 
+>
+><sup>44</sup> Being in anguish, he prayed more fervently, and his sweat became like drops of blood falling to the ground. 
+>
+><sup>45</sup> When he got up from prayer and came to the disciples, he found them sleeping, exhausted from their grief. 
+>
+><sup>46</sup> “Why are you sleeping?” he asked them. “Get up and pray, so that you won’t fall into temptation.” 
+>
+><sup>47</sup> While he was still speaking, suddenly a mob came, and one of the Twelve named Judas was leading them. He came near Jesus to kiss him, 
+>
+><sup>48</sup> but Jesus said to him, “Judas, are you betraying the Son of Man with a kiss?” 
+>
+><sup>49</sup> When those around him saw what was going to happen, they asked, “Lord, should we strike with the sword?” 
+>
+><sup>50</sup> Then one of them struck the high priest’s servant and cut off his right ear. 
+>
+><sup>51</sup> But Jesus responded, “No more of this!” And touching his ear, he healed him. 
+>
+><sup>52</sup> Then Jesus said to the chief priests, temple police, and the elders who had come for him, “Have you come out with swords and clubs as if I were a criminal? 
+>
+><sup>53</sup> Every day while I was with you in the temple, you never laid a hand on me. But this is your hour—and the dominion of darkness.” 
+>
+><sup>54</sup> They seized him, led him away, and brought him into the high priest’s house. Meanwhile Peter was following at a distance. 
+>
+><sup>55</sup> They lit a fire in the middle of the courtyard and sat down together, and Peter sat among them. 
+>
+><sup>56</sup> When a servant saw him sitting in the light, and looked closely at him, she said, “This man was with him too.” 
+>
+><sup>57</sup> But he denied it: “Woman, I don’t know him.” 
+>
+><sup>58</sup> After a little while, someone else saw him and said, “You’re one of them too.” “Man, I am not!” Peter said. 
+>
+><sup>59</sup> About an hour later, another kept insisting, “This man was certainly with him, since he’s also a Galilean.” 
+>
+><sup>60</sup> But Peter said, “Man, I don’t know what you’re talking about!” Immediately, while he was still speaking, a rooster crowed. 
+>
+><sup>61</sup> Then the Lord turned and looked at Peter. So Peter remembered the word of the Lord, how he had said to him, “Before the rooster crows today, you will deny me three times.” 
+>
+><sup>62</sup> And he went outside and wept bitterly.
+
