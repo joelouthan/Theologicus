@@ -1,22 +1,6 @@
 <img class="intro-right" src="/images/art-1689.png">
 
 # 1689 Baptist Confession of Faith, Chapter 8.8 The Work of the Lord"
-author: Joseph Louthan
-publishDate: 2023-12-20
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.8 Of Christ the Mediator"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "The Bible never says the birth, the work, the cross, the resurrection, and the ascension of Christ made salvation possible."
 
 <style type="text/css">
     ol { list-style-type: upper-alpha; }

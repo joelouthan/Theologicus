@@ -1,15 +1,5 @@
 # Westminster Larger Catechism (HTML)"
-author: Joseph Louthan
-publishDate: 2019-11-04
-categories:
-  - Sources
-tags:
-  - Catechism
-series:
-  - 'Kid Devotions: Luke'
-css: "prayers"
-showtoc: false
-draft: true*Note: I wanted a plain text file of this Catechism with one caveat. Notice at the end of the question, there should be two spaces. I did that so that the Answer will follow immediately on the next line after the Question in order to pair them together within Markdown.*
+*Note: I wanted a plain text file of this Catechism with one caveat. Notice at the end of the question, there should be two spaces. I did that so that the Answer will follow immediately on the next line after the Question in order to pair them together within Markdown.*
 
 ### Westminster Larger Catechism
 

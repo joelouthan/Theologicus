@@ -1,22 +1,6 @@
 <img class="intro-right" src="/images/art-1689.png">
 
 # 1689 Baptist Confession of Faith, Chapter 8.3 The Son of Man"
-author: Joseph Louthan
-publishDate: 2023-11-15
-categories:
-  - Confessions
-tags:
-  - "1689"
-series:
-  - "1689.8 Of Christ the Mediator"
-  - "1689 Baptist Confession of Faith"
-cover:
-  image: '/images/banners/1689.png'
-tocopen: true
-css: "prayers"
-draft: false
-
-description: "In the humanity of Christ, it could be easily not remembered that, in everything that Christ is, he is absolutely fully God. So within that, Christ, who is God, is eternal, immutable (does not change), impassible (without passions) and co-equal with Father and Spirit. Why is this so important?"
 
 <style>
 r { color: Red }
