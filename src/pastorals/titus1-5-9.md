@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-titus.jpg">
+<img class="intro-right" src="art-titus.jpg">
 
 # Titus 1:5-9 Minister Like This: Love God
 

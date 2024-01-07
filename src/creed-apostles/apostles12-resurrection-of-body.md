@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-apostles-creed.png">
+<img class="intro-right" src="art-apostles-creed.png">
 
 # The Apostles' Creed: The Resurrection of the Body
 

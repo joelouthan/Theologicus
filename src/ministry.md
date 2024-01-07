@@ -2,7 +2,7 @@
 
 ## About
 
-<img class="profile-pic" style="width:179px" src="/images/jlouthan-ai-starry-back-500-01.png">
+<img class="profile-pic" style="width:179px" src="jlouthan-ai-starry-back-500-01.png">
 Trying to waste my time with God. Preacher of the Gospel. Writing at Theologicus. StarCraft 2 Elderly.
 
 >No pen, no words, no image can express to you the loveliness of my only, only Lord Jesus.

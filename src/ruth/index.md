@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-ruth-naomi.jpg">
+<img class="intro-right" src="art-ruth-naomi.jpg">
 
 # Ruth: An Introduction & Resources
 
@@ -32,7 +32,7 @@ Join us for the story of Ruth.
 
 ### It Goes Without Say
 
-<img src="/images/art-ruth-naomi-portrait.jpg" hidden><img src="/images/bible-csb-study.jpg">Christian Standard Bible  
+<img src="art-ruth-naomi-portrait.jpg" hidden><img src="bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
 [Goodreads](https://www.goodreads.com/book/show/30746885-csb-study-bible)
 
@@ -44,7 +44,7 @@ Note: I use the [Christian Standard Bible](https://csbible.com) version on this 
 
 <hr style="clear:both;">
 
-<img src="/images/bible-esv-reformation-study-sproul.jpg">ESV Reformation Study Bible  
+<img src="bible-esv-reformation-study-sproul.jpg">ESV Reformation Study Bible  
 Commentary & Edited by R.C. Sproul.  
 Ligonier Ministries. March 16, 2015.  
 [Goodreads](https://www.goodreads.com/book/show/53529503-esv-reformation-study-bible?ac=1&from_search=true&qid=KXDsGlDfkm&rank=1)
@@ -53,31 +53,31 @@ I don't have much to say except this: if I was restricted to one Study Bible, th
 
 <hr style="clear:both;">
 
-<img src="/images/bible-esv-study.jpg">ESV Study Bible  
+<img src="bible-esv-study.jpg">ESV Study Bible  
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
 
 Incredible resource.
 
-<img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
+<img style="margin-left: 10px; float: right; width: 50px" src="icon-bible-olive-tree.png" src="icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
 <hr style="clear:both;">
 
-<img src="/images/bible-key-word-study-nasb.jpg">Hebrew Greek Key Word Study Bible.  
+<img src="bible-key-word-study-nasb.jpg">Hebrew Greek Key Word Study Bible.  
 New American Standard Bible 1977.  
 AMG International. 2008.  
 [Goodreads](https://www.goodreads.com/book/show/52820732-the-hebrew-greek-key-word-study-bible?from_search=true&from_srp=true&qid=P0A6P8R3yU&rank=2)
 
 <hr style="clear:both;">
 
-<img src="/images/bible-spirit-reformation-study-niv.jpg">Spirit of the Reformation Study Bible.  
+<img src="bible-spirit-reformation-study-niv.jpg">Spirit of the Reformation Study Bible.  
 NIV 1984.  
 Zondervan. 2003.  
 [Goodreads](https://www.goodreads.com/book/show/3421584-niv-spirit-of-the-reformation-study-bible)
 
 <hr style="clear:both;">
 
-<img src="/images/bible-life-application-study-niv.jpg">Life Application Study Bible.  
+<img src="bible-life-application-study-niv.jpg">Life Application Study Bible.  
 NIV 2011.  
 Zondervan. 2011.  
 [Goodreads](https://www.goodreads.com/book/show/14330625-niv-life-application-study-bible-second-edition)
@@ -86,63 +86,63 @@ Zondervan. 2011.
 
 ### Commentaries & Books
 
-<img src="/images/commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
+<img src="commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
 by John Calvin.  
 Baker. 2009.  
 [Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-totc-judges-ruth-cundall-morris.jpg">Judges and Ruth: An Introduction and Commentary (Tyndale Old Testament Commentary)  
+<img src="commentary-totc-judges-ruth-cundall-morris.jpg">Judges and Ruth: An Introduction and Commentary (Tyndale Old Testament Commentary)  
 by Arthur E. Cundall & Leon L. Morris.  
 IVP Academic. June 1, 1968.  
 [Goodreads](https://www.goodreads.com/book/show/5128427-judges-and-ruth)
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-ruth-bitter-and-sweet-piper.jpg">A Sweet and Bitter Providence: Sex, Race, and the Sovereignty of God  
+<img src="commentary-ruth-bitter-and-sweet-piper.jpg">A Sweet and Bitter Providence: Sex, Race, and the Sovereignty of God  
 by John Piper.  
 Crossway. January 1, 2010.  
 [Goodreads](https://www.goodreads.com/book/show/6641627-a-sweet-and-bitter-providence)
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-esther-ruth-duguid.jpg">Esther & Ruth (Reformed Expository Commentary)  
+<img src="commentary-esther-ruth-duguid.jpg">Esther & Ruth (Reformed Expository Commentary)  
 by Iain M. Duguid.  
 P & R Publishing. October 1, 2005.  
 [Goodreads](https://www.goodreads.com/book/show/1494459.Esther_Ruth)
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-judges-ruth-webb.jpg">Judges and Ruth: God in Chaos.  
+<img src="commentary-judges-ruth-webb.jpg">Judges and Ruth: God in Chaos.  
 Barry G. Webb.  
 Crossway. 2015.  
 [Goodreads](https://www.goodreads.com/book/show/23531554-judges-and-ruth?from_search=true&from_srp=true&qid=t5D46PhcYO&rank=1)
 
 <hr style="clear:both;">
 
-<img src="/images/bible-esv-reformation-study-sproul.jpg">ESV Reformation Study Bible  
+<img src="bible-esv-reformation-study-sproul.jpg">ESV Reformation Study Bible  
 Commentary & Edited by R.C. Sproul.  
 Ligonier Ministries. March 16, 2015.  
 [Goodreads](https://www.goodreads.com/book/show/53529503-esv-reformation-study-bible?ac=1&from_search=true&qid=KXDsGlDfkm&rank=1)
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-whole-bible-unabridged-henry.jpg">Matthew Henry’s Commentary on the Whole Bible: Complete and Unabridged in One Volume  
+<img src="commentary-whole-bible-unabridged-henry.jpg">Matthew Henry’s Commentary on the Whole Bible: Complete and Unabridged in One Volume  
 by Matthew Henry.  
 Hendrickson Publishers. 1991.  
 [Goodreads](https://www.goodreads.com/book/show/962955.Matthew_Henry_s_Commentary_on_the_Whole_Bible?ac=1&from_search=true&qid=DNZ1wtYZl3&rank=1)
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-whole-jfb.jpg">Jamieson, Fausset, and Brown's Commentary on the Whole Bible  
+<img src="commentary-whole-jfb.jpg">Jamieson, Fausset, and Brown's Commentary on the Whole Bible  
 by Robert Jamieson, Alexander Cruden & Andrew Robert Fausset.  
 Zondervan. 1961.  
 [Goodreads](https://www.goodreads.com/book/show/3373063-jamieson-fausset-and-brown-s-commentary-on-the-whole-bible)
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-whole-gill.jpg">An Exposition of the Old Testament, Vols. I–VI  
+<img src="commentary-whole-gill.jpg">An Exposition of the Old Testament, Vols. I–VI  
 by John Gill.  
 Public Domain.  
 [Goodreads](https://www.goodreads.com/book/show/18897526-gill-s-bible-commentary)

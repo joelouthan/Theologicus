@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/preaching-supremacy-of-God-in-preaching-piper.jpg">
+<img class="intro-right" src="preaching-supremacy-of-God-in-preaching-piper.jpg">
 
 # The Supremacy of God in Preaching by John Piper
 

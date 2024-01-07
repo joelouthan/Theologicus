@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-1689.png">
+<img class="intro-right" src="art-1689.png">
 
 # 1689 Baptist Confession of Faith, Chapter 11.1 How Does God Justify Sinners? God Cleanses Us From All Unrighteousness
 

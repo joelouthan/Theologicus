@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-1689.png">
+<img class="intro-right" src="art-1689.png">
 
 # 17.1 Our God Saves: In His Power Alone
 

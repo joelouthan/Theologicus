@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-creation.png">
+<img class="intro-right" src="art-creation.png">
 
 # Genesis 6:1-7 The Gospel Certainty: The Wickedness of Man
 

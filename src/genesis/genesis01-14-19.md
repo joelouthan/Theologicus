@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-creation.png">
+<img class="intro-right" src="art-creation.png">
 
 # Genesis 1:14-19 Our Forever Light
 

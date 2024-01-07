@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-timothy.jpg">
+<img class="intro-right" src="art-timothy.jpg">
 
 # 1 Timothy 4:11-5:2 Minister in Christ
 

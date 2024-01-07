@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-paul.jpg">
+<img class="intro-right" src="art-paul.jpg">
 
 # Romans 8:29b How Did God Save Us?
 

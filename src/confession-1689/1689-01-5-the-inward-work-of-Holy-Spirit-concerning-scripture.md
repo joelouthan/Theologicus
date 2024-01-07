@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-1689.png">
+<img class="intro-right" src="art-1689.png">
 
 # 1689 Baptist Confession of Faith, Chapter 1.5 The Inward Work of the Holy Spirit Concerning the Scriptures
 
@@ -25,7 +25,7 @@ About ten years ago, around 2010, pop-neo-atheism really became popular. Names l
 I remember that this graphic made its way into Evangelical blogosphere and some discussion was generated from it:
 
 <figure style="text-align: center;">
-   <img src="/images/the-reason-project-bible-contradictions.jpg " style="display: block; float: none; margin: auto; width: 600px;" alt="The Reason Project: Bible Contradictions">
+   <img src="the-reason-project-bible-contradictions.jpg " style="display: block; float: none; margin: auto; width: 600px;" alt="The Reason Project: Bible Contradictions">
    <figcaption style="font-style: italic; text-align: center;">The Reason Project: Bible Contradictions</figcaption>
 </figure>
 

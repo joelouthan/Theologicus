@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-creation.png">
+<img class="intro-right" src="art-creation.png">
 
 # Genesis 11 The Gospel Tongue
 
@@ -24,7 +24,7 @@ If you don't have the time and like to read, highest recommendation:
 
 <hr style="clear:both;">
 
-<img src="/images/book-consequences-of-ideas-sproul.jpg">The Consequences of Ideas: Understanding the Concepts that Shaped Our World  
+<img src="book-consequences-of-ideas-sproul.jpg">The Consequences of Ideas: Understanding the Concepts that Shaped Our World  
 R.C. Sproul.  
 Crossway. 2018.  
 [Goodreads](https://www.goodreads.com/book/show/6616365-the-consequences-of-ideas)
@@ -164,7 +164,7 @@ But when the kindness of God our Savior and his love for mankind appeared, he sa
 The world already rejects this notion. It's supernatural, divine, and robs us of our glory. Christians balk at this because it is "the easy way out". But I wonder, if some Christians or ex-Evangelicals has seen the blasphemous use of the gospel and the name of God to promote all kinds of evil--especially in the name of hatred and bigotry and racism.
 
 <figure style="text-align: center;">
-    <img src="/images/kkk-jesus-saves.jpg" style="display: block; float: none; margin: auto; width: 400px;" alt="Ku Klux Klan in a church sanctuary with a banner in the background that reads Jesus Saves">
+    <img src="kkk-jesus-saves.jpg" style="display: block; float: none; margin: auto; width: 400px;" alt="Ku Klux Klan in a church sanctuary with a banner in the background that reads Jesus Saves">
     <figcaption style="font-style: italic; text-align: center;">Total Depravity and Wickedness on Display, Romans 1:18-32</figcaption>
 </figure>
 

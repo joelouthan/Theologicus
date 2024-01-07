@@ -4,7 +4,7 @@
 
 <div class="container-resume">
   <div class="about">
-    <img class="profile-pic" src="/images/jlouthan-ai-starry-back-500-01.png">
+    <img class="profile-pic" src="jlouthan-ai-starry-back-500-01.png">
   </div>
   <div class="text-resume">
     Nearly 30 years IT experience<br>
@@ -16,10 +16,10 @@
   </div>
     <div class="logos-certs">
     <a href="https://bcert.me/sqqjyozaw" target="_blank">
-      <img src="/images/logo-csm.png" alt="Certified Scrum Master">
+      <img src="logo-csm.png" alt="Certified Scrum Master">
     </a>
     <a href="https://www.credly.com/badges/43000dae-5ec9-42f5-9059-8c569c278e29/public_url" target="_blank">
-      <img src="/images/logo-safe6-sa.png" alt="Certified SAFe 6 Agilist">
+      <img src="logo-safe6-sa.png" alt="Certified SAFe 6 Agilist">
     </a>
   </div>
 </div>

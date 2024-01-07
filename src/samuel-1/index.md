@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-david.jpg">
+<img class="intro-right" src="art-david.jpg">
 
 # 1 Samuel: An Introduction & Resources
 
@@ -32,7 +32,7 @@ Finishing our first series, [Apostles' Creed](https://theologic.us/creed-apostle
 
 The only thing I can say is, "There's nothing to it but to do it."
 
-<img class="intro-right" src="/images/art-david.jpg" hidden>
+<img class="intro-right" src="art-david.jpg" hidden>
 
 ## The Recommendations
 

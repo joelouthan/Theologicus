@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-matthew.jpg">
+<img class="intro-right" src="art-matthew.jpg">
 
 # Matthew 24:15-28 Jesus Christ is Our Preservation
 

@@ -1288,7 +1288,7 @@
 
 -----------
 
-- [Bibliography](bibliography.md)
+- [Bibliography](bibliography/index.md)
 - [Reviews](reviews/index.md)
   - [Cur Deus Homo by Anselm of Canterbury](reviews/cur-deus-homo.md)
   - [The Death of Death in the Death of Christ by John Owen](reviews/the-death-of-death-in-the-death-of-christ.md)

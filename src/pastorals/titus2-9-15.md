@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-titus.jpg">
+<img class="intro-right" src="art-titus.jpg">
 
 # Titus 2:9-15 Teach Like This: One with Christ
 

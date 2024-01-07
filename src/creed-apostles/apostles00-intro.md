@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-apostles-creed.png">
+<img class="intro-right" src="art-apostles-creed.png">
 
 # The Apostles' Creed: An Introduction & Resources
 
@@ -115,7 +115,7 @@ And with this creed, declare what they declared: that Jesus Christ is Lord.
 
 ### Books
 
-<img src="/images/theology-institutes-1541-calvin-white.jpg">Institutes of the Christian Religion: Calvin's Own 'Essentials' Edition.  
+<img src="theology-institutes-1541-calvin-white.jpg">Institutes of the Christian Religion: Calvin's Own 'Essentials' Edition.  
 John Calvin. Robert White (Translator).  
 Banner of Truth. 2014.  
 [Goodreads](https://www.goodreads.com/book/show/23306187-institutes-of-the-christian-religion)
@@ -128,14 +128,14 @@ As I am reading through it, I will fold in some Calvin into these notes here.
 
 <hr style="clear:both;">
 
-<img src="/images/art-apostles-creed-portrait.png" hidden><img src="/images/theology-all-that-is-God-dolezal.jpg">All That Is in God: Evangelical Theology and the Challenge of Classical Christian Theism.  
+<img src="art-apostles-creed-portrait.png" hidden><img src="theology-all-that-is-God-dolezal.jpg">All That Is in God: Evangelical Theology and the Challenge of Classical Christian Theism.  
 James E. Dolezal.  
 Reformation Heritage Books. 2017.  
 [Goodreads](https://www.goodreads.com/book/show/35783848-all-that-is-in-god?from_search=true&from_srp=true&qid=HZn57Z1Qqc&rank=3)
 
 <hr style="clear:both;">
 
-<img src="/images/book-creedal-imperative-trueman.jpg">The Creedal Imperative.  
+<img src="book-creedal-imperative-trueman.jpg">The Creedal Imperative.  
 Carl R. Trueman  
 Crossway, 2012.  
 [Goodreads](https://www.goodreads.com/book/show/14452976-the-creedal-imperative)
@@ -144,7 +144,7 @@ Crossway, 2012.
 
 ### Study Bibles
 
-<img src="/images/bible-csb-study.jpg">Christian Standard Bible  
+<img src="bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
 [Goodreads](https://www.goodreads.com/book/show/30746885-csb-study-bible)
 
@@ -156,7 +156,7 @@ Note: I use the [Christian Standard Bible](https://csbible.com) version on this 
 
 <hr style="clear:both;">
 
-<img src="/images/bible-esv-reformation-study-sproul.jpg">ESV Reformation Study Bible  
+<img src="bible-esv-reformation-study-sproul.jpg">ESV Reformation Study Bible  
 Commentary & Edited by R.C. Sproul.  
 Ligonier Ministries. March 16, 2015.  
 [Goodreads](https://www.goodreads.com/book/show/53529503-esv-reformation-study-bible?ac=1&from_search=true&qid=KXDsGlDfkm&rank=1)
@@ -165,31 +165,31 @@ I don't have much to say except this: if I was restricted to one Study Bible, th
 
 <hr style="clear:both;">
 
-<img src="/images/bible-esv-study.jpg">ESV Study Bible  
+<img src="bible-esv-study.jpg">ESV Study Bible  
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
 
 Incredible resource.
 
-<img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
+<img style="margin-left: 10px; float: right; width: 50px" src="icon-bible-olive-tree.png" src="icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
 <hr style="clear:both;">
 
-<img src="/images/bible-key-word-study-nasb.jpg">Hebrew Greek Key Word Study Bible.  
+<img src="bible-key-word-study-nasb.jpg">Hebrew Greek Key Word Study Bible.  
 New American Standard Bible 1977.  
 AMG International. 2008.  
 [Goodreads](https://www.goodreads.com/book/show/52820732-the-hebrew-greek-key-word-study-bible?from_search=true&from_srp=true&qid=P0A6P8R3yU&rank=2)
 
 <hr style="clear:both;">
 
-<img src="/images/bible-spirit-reformation-study-niv.jpg">Spirit of the Reformation Study Bible.  
+<img src="bible-spirit-reformation-study-niv.jpg">Spirit of the Reformation Study Bible.  
 NIV 1984.  
 Zondervan. 2003.  
 [Goodreads](https://www.goodreads.com/book/show/3421584-niv-spirit-of-the-reformation-study-bible)
 
 <hr style="clear:both;">
 
-<img src="/images/bible-life-application-study-niv.jpg">Life Application Study Bible.  
+<img src="bible-life-application-study-niv.jpg">Life Application Study Bible.  
 NIV 2011.  
 Zondervan. 2011.  
 [Goodreads](https://www.goodreads.com/book/show/14330625-niv-life-application-study-bible-second-edition)

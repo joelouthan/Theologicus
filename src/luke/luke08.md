@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-luke.jpg">
+<img class="intro-right" src="art-luke.jpg">
 
 # Luke 8 But Christ Calls
 

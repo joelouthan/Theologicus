@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-1689.png">
+<img class="intro-right" src="art-1689.png">
 
 # 14.2 What God Gives: The Promise in His Word
 

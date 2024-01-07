@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-mark.jpg">
+<img class="intro-right" src="art-mark.jpg">
 
 # The Gospel of Mark: An Introduction & Resources
 
@@ -30,7 +30,7 @@ As for leading your family through devotions, don't think of outright preaching 
 
 ### It Goes Without Say
 
-<img src="/images/art-mark-portrait.jpg" hidden><img src="/images/bible-csb-study.jpg">Christian Standard Bible  
+<img src="art-mark-portrait.jpg" hidden><img src="bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
 [Goodreads](https://www.goodreads.com/book/show/30746885-csb-study-bible)
 
@@ -42,7 +42,7 @@ Note: I use the [Christian Standard Bible](https://csbible.com) version on this 
 
 <hr style="clear:both;">
 
-<img src="/images/bible-esv-reformation-study-sproul.jpg">ESV Reformation Study Bible  
+<img src="bible-esv-reformation-study-sproul.jpg">ESV Reformation Study Bible  
 Commentary & Edited by R.C. Sproul.  
 Ligonier Ministries. March 16, 2015.  
 [Goodreads](https://www.goodreads.com/book/show/53529503-esv-reformation-study-bible?ac=1&from_search=true&qid=KXDsGlDfkm&rank=1)
@@ -51,31 +51,31 @@ I don't have much to say except this: if I was restricted to one Study Bible, th
 
 <hr style="clear:both;">
 
-<img src="/images/bible-esv-study.jpg">ESV Study Bible  
+<img src="bible-esv-study.jpg">ESV Study Bible  
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
 
 Incredible resource.
 
-<img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
+<img style="margin-left: 10px; float: right; width: 50px" src="icon-bible-olive-tree.png" src="icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
 <hr style="clear:both;">
 
-<img src="/images/bible-key-word-study-nasb.jpg">Hebrew Greek Key Word Study Bible.  
+<img src="bible-key-word-study-nasb.jpg">Hebrew Greek Key Word Study Bible.  
 New American Standard Bible 1977.  
 AMG International. 2008.  
 [Goodreads](https://www.goodreads.com/book/show/52820732-the-hebrew-greek-key-word-study-bible?from_search=true&from_srp=true&qid=P0A6P8R3yU&rank=2)
 
 <hr style="clear:both;">
 
-<img src="/images/bible-spirit-reformation-study-niv.jpg">Spirit of the Reformation Study Bible.  
+<img src="bible-spirit-reformation-study-niv.jpg">Spirit of the Reformation Study Bible.  
 NIV 1984.  
 Zondervan. 2003.  
 [Goodreads](https://www.goodreads.com/book/show/3421584-niv-spirit-of-the-reformation-study-bible)
 
 <hr style="clear:both;">
 
-<img src="/images/bible-life-application-study-niv.jpg">Life Application Study Bible.  
+<img src="bible-life-application-study-niv.jpg">Life Application Study Bible.  
 NIV 2011.  
 Zondervan. 2011.  
 [Goodreads](https://www.goodreads.com/book/show/14330625-niv-life-application-study-bible-second-edition)
@@ -84,16 +84,16 @@ Zondervan. 2011.
 
 ### Commentaries
 
-<img src="/images/commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
+<img src="commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
 by John Calvin.  
 Baker. 2009.  
 [Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
 
-<img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png">I mention this because in my go-to mobile Bible Study App, [Olive Tree](https://www.olivetree.com), Calvin's Commentaries are my go-to Commentary text of choice when I need clarification on the go. You can get the entire digital set for your phone (and computer) for about $40 from Olive Tree.
+<img style="margin-left: 10px; float: right; width: 50px" src="icon-bible-olive-tree.png">I mention this because in my go-to mobile Bible Study App, [Olive Tree](https://www.olivetree.com), Calvin's Commentaries are my go-to Commentary text of choice when I need clarification on the go. You can get the entire digital set for your phone (and computer) for about $40 from Olive Tree.
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-mark-sproul.jpg">Mark: An Expositional Commentary  
+<img src="commentary-mark-sproul.jpg">Mark: An Expositional Commentary  
 by R.C. Sproul.  
 Reformation Trust Publisher. 2011.  
 [Goodreads](https://www.goodreads.com/book/show/13329901-mark)
@@ -106,7 +106,7 @@ Easily read cover-to-cover.
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-mark-hendriksen.jpg">New Testament Commentary: Exposition of the Gospel According to Mark  
+<img src="commentary-mark-hendriksen.jpg">New Testament Commentary: Exposition of the Gospel According to Mark  
 by William Hendriksen.  
 Baker. 1981.  
 [Goodreads](https://www.goodreads.com/book/show/2365098.Mark)
@@ -123,7 +123,7 @@ That said, that one little blurb in Wikipedia and knowing there was one (1) past
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-mark-lane.jpg">The Gospel according to Mark: The English Text With Introduction, Exposition, and Notes (The New International Commentary on the New Testament)  
+<img src="commentary-mark-lane.jpg">The Gospel according to Mark: The English Text With Introduction, Exposition, and Notes (The New International Commentary on the New Testament)  
 by William L. Lane.  
 Eerdman's. 1974.  
 [Goodreads](https://www.goodreads.com/book/show/978619.The_Gospel_of_Mark?from_search=true&from_srp=true&qid=UOUMUiJ7z4&rank=2)
@@ -132,7 +132,7 @@ Incredible thorough and wonderfully written, Dr. Lane walks the reader masterful
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-mark-oden.jpg">Mark (Ancient Christian Commentary on Scripture, NT Volume 2)  
+<img src="commentary-mark-oden.jpg">Mark (Ancient Christian Commentary on Scripture, NT Volume 2)  
 Edited by Thomas C. Odin & Christopher A. Hall  
 IVP Academic. 2005.  
 [Goodreads](https://www.goodreads.com/book/show/33015669-mark)
@@ -141,7 +141,7 @@ I think this entire series is an excellent resource to have on hand if you can p
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-mark-gombis.jpg">Mark (The Story of God Bible Commentary Series)  
+<img src="commentary-mark-gombis.jpg">Mark (The Story of God Bible Commentary Series)  
 by Timothy G. Gombis.   
 Zondervan Academic. March 9th 2021.  
 [Goodreads](https://www.goodreads.com/book/show/54287613-mark)

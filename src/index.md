@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/logo-theologicus.png">
+<img class="intro-right" src="logo-theologicus.png">
 
 # Theologicus: The Complete Works in Progress
 

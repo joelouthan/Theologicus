@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-luke.jpg">
+<img class="intro-right" src="art-luke.jpg">
 
 # Luke: An Introduction & Resources
 
@@ -18,7 +18,7 @@ After finishing the catechism, I will start to integrate this, other catechism, 
 
 ### It Goes Without Say
 
-<img src="/images/art-luke-portrait.jpg" hidden><img src="/images/bible-csb-study.jpg">Christian Standard Bible  
+<img src="art-luke-portrait.jpg" hidden><img src="bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
 [Goodreads](https://www.goodreads.com/book/show/30746885-csb-study-bible)
 
@@ -30,7 +30,7 @@ Note: I use the [Christian Standard Bible](https://csbible.com) version on this 
 
 <hr style="clear:both;">
 
-<img src="/images/bible-esv-reformation-study-sproul.jpg">ESV Reformation Study Bible  
+<img src="bible-esv-reformation-study-sproul.jpg">ESV Reformation Study Bible  
 Commentary & Edited by R.C. Sproul.  
 Ligonier Ministries. March 16, 2015.  
 [Goodreads](https://www.goodreads.com/book/show/53529503-esv-reformation-study-bible?ac=1&from_search=true&qid=KXDsGlDfkm&rank=1)
@@ -39,31 +39,31 @@ I don't have much to say except this: if I was restricted to one Study Bible, th
 
 <hr style="clear:both;">
 
-<img src="/images/bible-esv-study.jpg">ESV Study Bible  
+<img src="bible-esv-study.jpg">ESV Study Bible  
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
 
 Incredible resource.
 
-<img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
+<img style="margin-left: 10px; float: right; width: 50px" src="icon-bible-olive-tree.png" src="icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
 <hr style="clear:both;">
 
-<img src="/images/bible-key-word-study-nasb.jpg">Hebrew Greek Key Word Study Bible.  
+<img src="bible-key-word-study-nasb.jpg">Hebrew Greek Key Word Study Bible.  
 New American Standard Bible 1977.  
 AMG International. 2008.  
 [Goodreads](https://www.goodreads.com/book/show/52820732-the-hebrew-greek-key-word-study-bible?from_search=true&from_srp=true&qid=P0A6P8R3yU&rank=2)
 
 <hr style="clear:both;">
 
-<img src="/images/bible-spirit-reformation-study-niv.jpg">Spirit of the Reformation Study Bible.  
+<img src="bible-spirit-reformation-study-niv.jpg">Spirit of the Reformation Study Bible.  
 NIV 1984.  
 Zondervan. 2003.  
 [Goodreads](https://www.goodreads.com/book/show/3421584-niv-spirit-of-the-reformation-study-bible)
 
 <hr style="clear:both;">
 
-<img src="/images/bible-life-application-study-niv.jpg">Life Application Study Bible.  
+<img src="bible-life-application-study-niv.jpg">Life Application Study Bible.  
 NIV 2011.  
 Zondervan. 2011.  
 [Goodreads](https://www.goodreads.com/book/show/14330625-niv-life-application-study-bible-second-edition)
@@ -72,14 +72,14 @@ Zondervan. 2011.
 
 ### Commentaries & Books
 
-<img src="/images/commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
+<img src="commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
 by John Calvin.  
 Baker. 2009.  
 [Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-luke-sproul.jpg" >Luke: An Expositional Commentary  
+<img src="commentary-luke-sproul.jpg" >Luke: An Expositional Commentary  
 R.C. Sproul.  
 Reformation Trust Publisher. 2020.  
 [Goodreads](https://www.goodreads.com/book/show/55161506-luke)
@@ -90,7 +90,7 @@ If it ain't broke, don't fix it. Keep on truckin'.
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-luke-geldenhuys.jpg" />The Gospel of Luke (NICNT).  
+<img src="commentary-luke-geldenhuys.jpg" />The Gospel of Luke (NICNT).  
 Norval Geldenhuys.  
 Eerdmans. 1951.  
 [Goodbooks](https://www.goodreads.com/book/show/2106649.Commentary_on_the_Gospel_of_Luke?ac=1&from_search=true&qid=pjpzVhBPMk&rank=3)
@@ -101,7 +101,7 @@ When I started up this series, I was hard up for good Luke resources. God's pure
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-luke-bock.jpg" />Luke (NIVAC).  
+<img src="commentary-luke-bock.jpg" />Luke (NIVAC).  
 Darrell L. Bock.  
 Zondervan. 1996.
 
@@ -109,14 +109,14 @@ I swear to beans I have more books from this guy. But a quick look-see on Amazon
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-luke-nolland.jpg" />Luke (WBC).  
+<img src="commentary-luke-nolland.jpg" />Luke (WBC).  
 John Nolland.  
 Thomas Nelson. 1989-93.  
 [Goodreads](https://www.goodreads.com/book/show/151083514-word-biblical-commentary-vol-35a-luke-1?from_search=true&from_srp=true&qid=jlCakWA5r8&rank=1)
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-matthew-luke-esv.jpg">ESV Expository Commentary: Matthew–Luke (Volume, 8).  
+<img src="commentary-matthew-luke-esv.jpg">ESV Expository Commentary: Matthew–Luke (Volume, 8).  
 Dan Doriani (Author).  
 Iain M. Duguid, James M. Hamilton Jr., & Jay Sklar (Editors).  
 Crossway. September 7, 2021.  

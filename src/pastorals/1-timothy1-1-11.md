@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-timothy.jpg">
+<img class="intro-right" src="art-timothy.jpg">
 
 # 1 Timothy 1:1–11 Christ Our Grace
 

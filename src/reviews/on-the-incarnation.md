@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/book-on-the-incarnation-athanasius.jpg">
+<img class="intro-right" src="book-on-the-incarnation-athanasius.jpg">
 
 # On The Incarnation by Athanasius of Alexandria
 

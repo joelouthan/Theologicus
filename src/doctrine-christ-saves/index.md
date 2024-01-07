@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/book-ccss-3.jpg">
+<img class="intro-right" src="book-ccss-3.jpg">
 
 # Christ Came to Save Sinners, An Introduction & Resources
 
@@ -30,7 +30,7 @@ This is that new series. Lots of work and a little bit of writing and re-writing
 
 ## The Resources
 
-<img class="intro-right" src="/images/book-ccss-3.jpg" hidden>
+<img class="intro-right" src="book-ccss-3.jpg" hidden>
 
 {{#include ../bibliography/biblio-books.md}}
 

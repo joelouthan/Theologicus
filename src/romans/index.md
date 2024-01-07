@@ -1,4 +1,4 @@
-<img class="intro-right" src="/images/art-paul.jpg">
+<img class="intro-right" src="art-paul.jpg">
 
 # The Epistle to the Romans: An Introduction & Resources
 
@@ -30,7 +30,7 @@ Here just the very small list of resources on Romans that I have found most help
 
 ### It Goes Without Say
 
-<img src="/images/bible-csb-study.jpg">Christian Standard Bible  
+<img src="bible-csb-study.jpg">Christian Standard Bible  
 Holmon Publishing. 2020.  
 [Goodreads](https://www.goodreads.com/book/show/30746885-csb-study-bible)
 
@@ -42,7 +42,7 @@ Note: I use the [Christian Standard Bible](https://csbible.com) version on this 
 
 <hr style="clear:both;">
 
-<img src="/images/bible-esv-reformation-study-sproul.jpg">ESV Reformation Study Bible  
+<img src="bible-esv-reformation-study-sproul.jpg">ESV Reformation Study Bible  
 Commentary & Edited by R.C. Sproul.  
 Ligonier Ministries. March 16, 2015.  
 [Goodreads](https://www.goodreads.com/book/show/53529503-esv-reformation-study-bible?ac=1&from_search=true&qid=KXDsGlDfkm&rank=1)
@@ -51,31 +51,31 @@ I don't have much to say except this: if I was restricted to one Study Bible, th
 
 <hr style="clear:both;">
 
-<img src="/images/bible-esv-study.jpg">ESV Study Bible  
+<img src="bible-esv-study.jpg">ESV Study Bible  
 Crossway. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible?ac=1&from_search=true&qid=BEzDEv7NUE&rank=1)
 
 Incredible resource.
 
-<img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png" src="/images/icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
+<img style="margin-left: 10px; float: right; width: 50px" src="icon-bible-olive-tree.png" src="icon-bible-olive-tree.png">If I had to pick just one format (hardcover vs. leather vs. paperback vs. digital), I use it way more in my [Olive Tree Study Bible](https://www.olivetree.com) than anything else.  
 
 <hr style="clear:both;">
 
-<img src="/images/bible-key-word-study-nasb.jpg">Hebrew Greek Key Word Study Bible.  
+<img src="bible-key-word-study-nasb.jpg">Hebrew Greek Key Word Study Bible.  
 New American Standard Bible 1977.  
 AMG International. 2008.  
 [Goodreads](https://www.goodreads.com/book/show/52820732-the-hebrew-greek-key-word-study-bible?from_search=true&from_srp=true&qid=P0A6P8R3yU&rank=2)
 
 <hr style="clear:both;">
 
-<img src="/images/bible-spirit-reformation-study-niv.jpg">Spirit of the Reformation Study Bible.  
+<img src="bible-spirit-reformation-study-niv.jpg">Spirit of the Reformation Study Bible.  
 NIV 1984.  
 Zondervan. 2003.  
 [Goodreads](https://www.goodreads.com/book/show/3421584-niv-spirit-of-the-reformation-study-bible)
 
 <hr style="clear:both;">
 
-<img src="/images/bible-life-application-study-niv.jpg">Life Application Study Bible.  
+<img src="bible-life-application-study-niv.jpg">Life Application Study Bible.  
 NIV 2011.  
 Zondervan. 2011.  
 [Goodreads](https://www.goodreads.com/book/show/14330625-niv-life-application-study-bible-second-edition)
@@ -84,16 +84,16 @@ Zondervan. 2011.
 
 ### Commentaries & Books
 
-<img src="/images/commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
+<img src="commentary-calvin-set-portrait.jpg">Calvin's Commentaries.  
 John Calvin.  
 Baker. 2009.  
 [Olive Tree](https://www.olivetree.com/store/product.php?productid=17517)
 
-<img style="margin-left: 10px; float: right; width: 50px" src="/images/icon-bible-olive-tree.png" src="/images/icon-bible-olive-tree.png">I mention this because in my go-to mobile Bible Study App, [Olive Tree](https://www.olivetree.com), Calvin's Commentaries are my go-to Commentary text of choice when I need clarification on the go. You can get the entire digital set for your phone (and computer) for about $40 from Olive Tree! (Or catch it on sale for $20 like I did.)
+<img style="margin-left: 10px; float: right; width: 50px" src="icon-bible-olive-tree.png" src="icon-bible-olive-tree.png">I mention this because in my go-to mobile Bible Study App, [Olive Tree](https://www.olivetree.com), Calvin's Commentaries are my go-to Commentary text of choice when I need clarification on the go. You can get the entire digital set for your phone (and computer) for about $40 from Olive Tree! (Or catch it on sale for $20 like I did.)
 
 <hr style="clear:both;">
 
-<img src="/images/book-no-condemnation-winslow.jpg">No Condemnation in Christ Jesus: As Unfolded in the Eighth Chapter of the Epistle to the Romans  
+<img src="book-no-condemnation-winslow.jpg">No Condemnation in Christ Jesus: As Unfolded in the Eighth Chapter of the Epistle to the Romans  
 Octavius Winslow.  
 Banner of Trust. 1991.  
 [Goodreads](https://www.goodreads.com/book/show/4011534-no-condemnation-in-christ-jesus?ac=1&from_search=true&qid=K1waoHAVw7&rank=1)
@@ -106,7 +106,7 @@ For more of a complete review, read mine here at [Goodreads.com](https://www.goo
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-romans-sproul.jpg">Romans: An Expositional Commentary  
+<img src="commentary-romans-sproul.jpg">Romans: An Expositional Commentary  
 R.C. Sproul.  
 Reformation Trust Publishing. 2019.  
 [Goodreads](https://www.goodreads.com/book/show/6468546-romans?ac=1&from_search=true&qid=xl3x8afdFN&rank=2)
@@ -119,7 +119,7 @@ A better suggestion: stop reading my drivel and buy this book.
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-romans-moo.jpg">The Letter to the Romans (New International Commentary on the New Testament (NICNT))  
+<img src="commentary-romans-moo.jpg">The Letter to the Romans (New International Commentary on the New Testament (NICNT))  
 Douglas Moo.    
 Eerdmans. 1996.  
 [Goodreads](https://www.goodreads.com/book/show/48640436-the-letter-to-the-romans-new-international-commentary-on-the-new-testam?ac=1&from_search=true&qid=K0oRkdrYXP&rank=1)
@@ -128,7 +128,7 @@ I only mentioned the first edition because the second edition came out in 2018 a
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-romans-hendricksen.webp">New Testament Commentary: Romans: Chapters 1-16  
+<img src="commentary-romans-hendricksen.webp">New Testament Commentary: Romans: Chapters 1-16  
 William Hendriksen.  
 Baker. 1992.  
 [Goodreads](https://www.goodreads.com/book/show/6033721-romans?ac=1&from_search=true&qid=VSDDrJALl9&rank=1)
@@ -139,7 +139,7 @@ Craziest thing, tho. I have several others in his NT set but for some reason, I 
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-romans-plumer.jpeg">Romans  
+<img src="commentary-romans-plumer.jpeg">Romans  
 William S. Plumer.  
 Kregel. 1993.  
 [Goodreads](https://www.goodreads.com/book/show/3189435-commentary-on-romans?ac=1&from_search=true&qid=pinspEBLVG&rank=1)
@@ -148,7 +148,7 @@ This dude is pre-Liberalism Princeton Theological Seminary. I have not read thro
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-romans-mounce.jpg">Romans: An Exegetical and Theological Exposition of Holy Scripture (The New American Commentary)  
+<img src="commentary-romans-mounce.jpg">Romans: An Exegetical and Theological Exposition of Holy Scripture (The New American Commentary)  
 Robert Mounce.  
 Holmon Reference. 1995.  
 [Goodreads](https://www.goodreads.com/book/show/1652633.Romans?ac=1&from_search=true&qid=t43icJXUYR&rank=2)
@@ -157,7 +157,7 @@ Going by what other commentaries I have by Mounce, this stays in my library as w
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-romans-bray.webp">Romans (Ancient Christian Commentary on Scripture, NT Volume 6)  
+<img src="commentary-romans-bray.webp">Romans (Ancient Christian Commentary on Scripture, NT Volume 6)  
 Edited Gerald L. Bray.  
 IVP Academic. 2005.  
 [Goodreads](https://www.goodreads.com/book/show/32922759-romans?ac=1&from_search=true&qid=O8EDAlniS5&rank=1)
@@ -166,7 +166,7 @@ I think this entire series is an excellent resource to have on hand if you can p
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-romans-luther.webp">Commentary on Romans  
+<img src="commentary-romans-luther.webp">Commentary on Romans  
 Martin Luther.  
 Kregel. 2003.  
 [Goodreads](https://www.goodreads.com/book/show/1635020.Commentary_on_Romans?ac=1&from_search=true&qid=aIXX1icyNY&rank=5)
@@ -175,7 +175,7 @@ I would be remiss if I didn't mention Luther's commentary. It was his desperate 
 
 <hr style="clear:both;">
 
-<img src="/images/commentary-romans-peterson.jpg">Romans (EBTC).  
+<img src="commentary-romans-peterson.jpg">Romans (EBTC).  
 David G. Peterson.  
 Lexham Press. 2021.  
 [Goodreads](https://www.goodreads.com/book/show/55150184-romans?from_search=true&from_srp=true&qid=IIOIEPgmSG&rank=1)
