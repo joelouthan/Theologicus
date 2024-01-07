@@ -4,6 +4,13 @@
 
 ## The Text
 
+>John 21:15–17 (CSB)  
+><sup>15</sup> When they had eaten breakfast, Jesus asked Simon Peter, “Simon, son of John, do you love me more than these?” “Yes, Lord,” he said to him, “you know that I love you.” “Feed my lambs,” he told him. 
+>
+><sup>16</sup> A second time he asked him, “Simon, son of John, do you love me?” “Yes, Lord,” he said to him, “you know that I love you.” “Shepherd my sheep,” he told him. 
+>
+><sup>17</sup> He asked him the third time, “Simon, son of John, do you love me?” Peter was grieved that he asked him the third time, “Do you love me?” He said, “Lord, you know everything; you know that I love you.” “Feed my sheep,” Jesus said.
+
 ## The Chapter
 
 And though they may, through the temptation of Satan and of the world, the prevalency of corruption remaining in them, and the neglect of means of their preservation, fall into grievous sins, and for a time continue therein, whereby they incur God's displeasure and grieve his Holy Spirit, come to have their graces and comforts impaired, have their hearts hardened, and their consciences wounded, hurt and scandalize others, and bring temporal judgments upon themselves, yet shall they renew their repentance and be preserved through faith in Christ Jesus to the end.
