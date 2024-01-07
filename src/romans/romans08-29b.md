@@ -50,7 +50,7 @@ We say believe but did God die for the possibility of saving everybody? If we ha
 
 >1 John 2:1 (CSB) My little children, I am writing you these things so that you may not sin. But if anyone does sin, we have an advocate with the Father—Jesus Christ the righteous one.
 
-But reading 1 John as a whole especially starting with chapter 2 verse 1, we can see that John's intention was not to say “the whole world is saved” but rather that all brothers and sisters for all around the world are saved because of the the propitiating work of Jesus Christ who is our advocate with the Father when and if we do sin. To even suggest that the whole world would be saved would directly contradict Matthew’s witness account of Jesus: “Enter by the narrow gate. For the gate is wide and the way is easy that leads to destruction, and those who enter by it are many.”[^1]
+But reading 1 John as a whole especially starting with chapter 2 verse 1, we can see that John's intention was not to say “the whole world is saved” but rather that all brothers and sisters for all around the world are saved because of the propitiating work of Jesus Christ who is our advocate with the Father when and if we do sin. To even suggest that the whole world would be saved would directly contradict Matthew’s witness account of Jesus: “Enter by the narrow gate. For the gate is wide and the way is easy that leads to destruction, and those who enter by it are many.”[^1]
 
 And I would say that John would be contradicting himself in his own gospel account in the aforementioned John 3:16. But look closely: John did not write, “that whoever believes and doesn’t believe in him should not perish” but “that whoever believes in him should not perish but have eternal life.”[^2]
 

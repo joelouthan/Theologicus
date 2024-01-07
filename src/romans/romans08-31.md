@@ -132,7 +132,7 @@ Who is left standing against the children of God?
 
 **God has perfectly and completely conquered the wicked foe!** When the people of God announced to the world that there is one God who reigns over heaven, earth, and hell, completely decimated the walls of Jericho.
 
-**God has perfectly and completely conquered the wicked foe!** God is the David who flung the single headshot to the vicious enemy of God who is Goliath who only came to kill, steal, and destroy the children of God while we sit and trembled in fear, loathing, and doubt before our mighty Savior. And with that thundering smashing of the pebble against the the skull of the Giant that struck him dead, our David pulled the sword from sin's sheath, and bared the weight of this own Cross, and sliced open the neck of our enemies once and for all.
+**God has perfectly and completely conquered the wicked foe!** God is the David who flung the single headshot to the vicious enemy of God who is Goliath who only came to kill, steal, and destroy the children of God while we sit and trembled in fear, loathing, and doubt before our mighty Savior. And with that thundering smashing of the pebble against the skull of the Giant that struck him dead, our David pulled the sword from sin's sheath, and bared the weight of this own Cross, and sliced open the neck of our enemies once and for all.
 
 **God has perfectly and completely conquered the wicked foe!** God is the raised hand of Moses who turned the tide of war in favor of the Israelites.
 

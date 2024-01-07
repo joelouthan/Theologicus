@@ -46,7 +46,7 @@ And
 
 >Titus 2:11-14 (CSB) For the grace of God has appeared, bringing salvation for all people, instructing us to deny godlessness and worldly lusts and to live in a sensible, righteous, and godly way in the present age, while we wait for the blessed hope, the appearing of the glory of our great God and Savior, Jesus Christ. He gave himself for us to redeem us from all lawlessness and to cleanse for himself a people for his own possession, eager to do good works.
 
-There is only one response to this absolute and blessed truth: praise be to God! We get to worship the the Lord *our* God all because of what his Son has done for us. Today is the day we give thanks to him for he alone is good and his steadfast love endures forever.
+There is only one response to this absolute and blessed truth: praise be to God! We get to worship the Lord *our* God all because of what his Son has done for us. Today is the day we give thanks to him for he alone is good and his steadfast love endures forever.
 
 ### is but one 
 

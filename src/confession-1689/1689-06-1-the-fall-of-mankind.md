@@ -46,7 +46,7 @@ For some reason, most Christians think that the will of man that Adam and Eve en
 
 It is clear as day that sin has broken our bodies, our minds, our judgment, our spirits, our emotions, our desires, our work, our relationships and everything else in all of creation but oh, our wills are perfectly sin-free and clean. That is illogical.
 
-The moment Adam and Eve sinned against God, there was no going back. We are created creatures. We do not exist in eternal past and future. We only live in the present. We could not go back and undo the the decision we just made. If we could traverse time and space like that, I don't think we would be created creatures. That is the one of things that makes us different from God and not God.
+The moment Adam and Eve sinned against God, there was no going back. We are created creatures. We do not exist in eternal past and future. We only live in the present. We could not go back and undo the decision we just made. If we could traverse time and space like that, I don't think we would be created creatures. That is the one of things that makes us different from God and not God.
 
 >Romans 5:12 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.
 

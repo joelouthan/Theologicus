@@ -25,7 +25,7 @@ Good works are only such as God has commanded in his Holy Word, and not such as 
 
 >Hebrews 13:21 (CSB) equip you with everything good to do his will, working in us what is pleasing in his sight, through Jesus Christ, to whom be glory forever and ever. Amen.
 
-All of us as sons of Adam fall easily to the the notion that we have decided what is good and not good and take action accordingly. But what is actually good can only be determined by one who is actually good--that is, of course, being God almighty.
+All of us as sons of Adam fall easily to the notion that we have decided what is good and not good and take action accordingly. But what is actually good can only be determined by one who is actually good--that is, of course, being God almighty.
 
 The law and the gospel of Christ states this: you are not good by what you do. You and I cannot do some good things and then call ourselves good. Even when we do something that is stated by God good, our own fallen and wicked selves have tinctured those good works with sin.
 

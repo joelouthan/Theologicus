@@ -148,7 +148,7 @@ Which of us would be a mark of kindness or gentleness or joy? Which of us are pa
 
 ## Minister Like This: Love God and Believe the Gospel
 
-1 Timothy 3:2 calls the the would-be elder that is "able to teach." What is does that look like? Here in verse 9.
+1 Timothy 3:2 calls the would-be elder that is "able to teach." What is does that look like? Here in verse 9.
 
 The elder must hear the gospel and recieves the gospel; believes the gospel and lives out that good news that Christ has saved his people from their sins.
 

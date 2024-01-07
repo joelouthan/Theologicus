@@ -108,7 +108,7 @@ In the religions of the world, we have two of that are close to Christianity: Je
 
 >1 Corinthians 1:22-23 (CSB) For the Jews ask for signs and the Greeks seek wisdom, but we preach Christ crucified, a stumbling block to the Jews and foolishness to the Gentiles.
 
-The foolishness of the Gentiles: the theories and myths are endless. For myth of the the Muslim in order to make sense of Jesus, who to them is a great and mighty prophet, to die on the cross only means one thing to them. That Jesus didn't actually die but suffer for three days. The Muslim contradict the Scriptures say that Jesus did die and did not see decay.
+The foolishness of the Gentiles: the theories and myths are endless. For myth of the Muslim in order to make sense of Jesus, who to them is a great and mighty prophet, to die on the cross only means one thing to them. That Jesus didn't actually die but suffer for three days. The Muslim contradict the Scriptures say that Jesus did die and did not see decay.
 
 ### on the third day He arose from the dead
 

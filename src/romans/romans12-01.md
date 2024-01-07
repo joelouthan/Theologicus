@@ -8,7 +8,7 @@
 
 ## The Introduction
 
-We have spent the the first eleven chapters of Romans extolling and magnifying and praising our great God and gone to the greatest details--within our finite wisdom and understanding--on how Christ has saved his people from their sins.
+We have spent the first eleven chapters of Romans extolling and magnifying and praising our great God and gone to the greatest details--within our finite wisdom and understanding--on how Christ has saved his people from their sins.
 
 Romans 1-11, with the utmost authority, primacy and beginning of what I would call: a systematic theology. Romans is essentially an exposition on the Old Testament and the life, ministry, words, death, burial resurrection, and ascension of Jesus Christ our Lord. You want to know why those of who love theology love the book of Romans. Because Paul goes into the greatest detail on the power of the gospel.
 

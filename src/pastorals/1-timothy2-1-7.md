@@ -81,7 +81,7 @@ Go to God--audaciously, boldly--and petition, prayer, intercede and give thanks 
 
 ### so that we may lead a tranquil and quiet life in all godliness and dignity
 
-You know what is the effect of intentionally praying, petitioning, interceding, and giving thanks for people who you think are your mortal enemies? Shocking enough, they stop being your enemies. You stop hating them. You start loving them. You start caring for them. You start giving to them and want nothing in return. You literally start killing them with kindness. Jesus praises the shrewdness and the craftiness of the the dishonest manager in Luke 16. And Jesus wishes that the children of light were just as crafty as the children of the world in dealing with others and loving them. 
+You know what is the effect of intentionally praying, petitioning, interceding, and giving thanks for people who you think are your mortal enemies? Shocking enough, they stop being your enemies. You stop hating them. You start loving them. You start caring for them. You start giving to them and want nothing in return. You literally start killing them with kindness. Jesus praises the shrewdness and the craftiness of the dishonest manager in Luke 16. And Jesus wishes that the children of light were just as crafty as the children of the world in dealing with others and loving them. 
 
 Our Father owns the cattle on a thousand hills. We are so stupidly wealthy. Kill others with kindness--literally, "money whip" others--so that:
 

@@ -65,7 +65,7 @@ The 1689 confesses:
 
 >John 8:28-29 (CSB) So Jesus said to them, “When you lift up the Son of Man, then you will know that I am he, and that I do nothing on my own. But just as the Father taught me, I say these things. The one who sent me is with me. He has not left me alone, because I always do what pleases him.”
 
-The Gospel of John drips with the the most complete, thorough description of the only begotten Son of God the Father.
+The Gospel of John drips with the most complete, thorough description of the only begotten Son of God the Father.
 
 The Apostle Paul wraps up the Gospel of John in this way:
 

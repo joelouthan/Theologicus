@@ -55,7 +55,7 @@ And that is a sign of the times we live in:
 >
 ><sup> 19  </sup>By your endurance, gain your lives.
 
-Jesus Christ even promised the “laying on of hands”. My Charismatic friends, that is not the good kind but the the opposite of good-“bar fight with a bunch of drunk dudes at 2am in the morning” kind of laying of hands.
+Jesus Christ even promised the “laying on of hands”. My Charismatic friends, that is not the good kind but the opposite of good-“bar fight with a bunch of drunk dudes at 2am in the morning” kind of laying of hands.
 
 >John 15:18–25 (CSB) “If the world hates you, understand that it hated me before it hated you. If you were of the world, the world would love you as its own. However, because you are not of the world, but I have chosen you out of it, the world hates you. Remember the word I spoke to you: ‘A servant is not greater than his master.’ If they persecuted me, they will also persecute you. If they kept my word, they will also keep yours. But they will do all these things to you on account of my name, because they don’t know the one who sent me. If I had not come and spoken to them, they would not be guilty of sin. Now they have no excuse for their sin. The one who hates me also hates my Father. If I had not done the works among them that no one else has done, they would not be guilty of sin. Now they have seen and hated both me and my Father. But this happened so that the statement written in their law might be fulfilled: They hated me for no reason.
 

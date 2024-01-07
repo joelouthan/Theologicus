@@ -70,7 +70,7 @@ And if that meant God's only begotten Son, would have to die an excruciating dea
 
 Likewise, Jesus Christ, Son of God, who is God, would gladly be obedient to His Father with the joy that was set before him, nailed Himself to that tree all for the sake of atoning, bearing punishment for, cleansing, removing, and saving His people from their sins.
 
-And again, Christ could only live as we should have lived, died the the death we should have died, and be resurrected as we cannot, and ascended to the right hand of His Father as only he can only by the power of the Holy Spirit, who, the only God that searches everyone and violently removes the hearts of stone and replaces it with God's own soft heart of love.  The Spirit himself gives Himself, God's saving grace, everyday mercies, steadfast love to His people.  And in turn, the Spirit is only one worthy enough to seal us forever and bear witness that we are the children of God.
+And again, Christ could only live as we should have lived, died the death we should have died, and be resurrected as we cannot, and ascended to the right hand of His Father as only he can only by the power of the Holy Spirit, who, the only God that searches everyone and violently removes the hearts of stone and replaces it with God's own soft heart of love.  The Spirit himself gives Himself, God's saving grace, everyday mercies, steadfast love to His people.  And in turn, the Spirit is only one worthy enough to seal us forever and bear witness that we are the children of God.
 
 Do not listen to Satan, demons, and the world when they try to change what God has said. Moreso, your thoughts, anxieties, and idols have no power to save you.
 
