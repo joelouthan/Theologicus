@@ -8,7 +8,7 @@
 
 ## The Chapter
 
-Yet notwithstanding the persons of believers being accepted through Christ, their good works also are accepted in him; not as though they were in this life wholly unblamable and unreprovable in God’s sight, but that he, looking upon them in his Son, is pleased to accept and reward that which is sincere, although accompanied with many weaknesses and imperfections.
+### Yet notwithstanding the persons of believers being accepted through Christ, their good works also are accepted in him; not as though they were in this life wholly unblamable and unreprovable in God’s sight, but that he, looking upon them in his Son, is pleased to accept and reward that which is sincere, although accompanied with many weaknesses and imperfections.
 
 ## The Confession
 

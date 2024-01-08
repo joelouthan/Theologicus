@@ -8,7 +8,7 @@
 
 ## The Chapter
 
-As repentance is to be continued through the whole course of our lives, upon the account of the body of death, and the motions thereof, so it is every man's duty to repent of his particular known sins particularly.
+### As repentance is to be continued through the whole course of our lives, upon the account of the body of death, and the motions thereof, so it is every man's duty to repent of his particular known sins particularly.
 
 ## The Confession
 

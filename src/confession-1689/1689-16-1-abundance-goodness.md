@@ -15,7 +15,7 @@
 
 ## The Chapter
 
-Good works are only such as God has commanded in his Holy Word, and not such as without the warrant thereof are devised by men out of blind zeal, or upon any pretense of good intentions.
+### Good works are only such as God has commanded in his Holy Word, and not such as without the warrant thereof are devised by men out of blind zeal, or upon any pretense of good intentions.
 
 ## The Confession
 

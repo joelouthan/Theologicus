@@ -23,7 +23,7 @@
 
 ## The Chapter
 
-This sanctification is throughout the whole man, yet imperfect in this life; there abides still some remnants of corruption in every part, wherefrom arises a continual and irreconcilable war; the flesh lusting against the Spirit, and the Spirit against the flesh.
+### This sanctification is throughout the whole man, yet imperfect in this life; there abides still some remnants of corruption in every part, wherefrom arises a continual and irreconcilable war; the flesh lusting against the Spirit, and the Spirit against the flesh.
 
 ## The Confession
 

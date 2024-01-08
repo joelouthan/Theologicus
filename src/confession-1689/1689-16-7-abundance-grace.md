@@ -8,7 +8,7 @@
 
 ## The Chapter
 
-Works done by unregenerate men, although for the matter of them they may be things which God commands, and of good use both to themselves and to others; yet because they proceed not from a heart purified by faith, nor are done in a right manner according to the Word, nor to a right end, the glory of God, they are therefore sinful, and cannot please God, nor make a man meet to receive the grace from God, and yet their neglect for them is more sinful and displeasing to God.
+### Works done by unregenerate men, although for the matter of them they may be things which God commands, and of good use both to themselves and to others; yet because they proceed not from a heart purified by faith, nor are done in a right manner according to the Word, nor to a right end, the glory of God, they are therefore sinful, and cannot please God, nor make a man meet to receive the grace from God, and yet their neglect for them is more sinful and displeasing to God.
 
 ## The Confession
 
