@@ -1504,29 +1504,85 @@ And though they may, through the temptation of Satan and of the world, the preva
 
 ## Chapter 18: Of the Assurance of Grace and Salvation
 
-### 
+### 18.1 Here is Love: Certainly Assured by Christ
 
 Although temporary believers, and other unregenerate men, may vainly deceive themselves with false hopes and carnal presumptions of being in the favour of God and state of salvation, which hope of theirs shall perish; yet such as truly believe in the Lord Jesus, and love him in sincerity, endeavouring to walk in all good conscience before him, may in this life be certainly assured that they are in the state of grace, and may rejoice in the hope of the glory of God, which hope shall never make them ashamed.
 
-Job 8:13-14; Matthew 7:22-23; 1 John 2:3; 1 John 3:14-24; 1 John 5:13; Romans 5:2-5
+>Job 8:13–14 (CSB) Such is the destiny of all who forget God; the hope of the godless will perish. His source of confidence is fragile; what he trusts in is a spider’s web.
 
-### 
+>Matthew 7:22–23 (CSB) On that day many will say to me, ‘Lord, Lord, didn’t we prophesy in your name, drive out demons in your name, and do many miracles in your name?’ Then I will announce to them, ‘I never knew you. Depart from me, you lawbreakers!’
+
+>1 John 2:3 (CSB) This is how we know that we know him: if we keep his commands.
+
+>1 John 3:14–24 (CSB) We know that we have passed from death to life because we love our brothers and sisters. The one who does not love remains in death. Everyone who hates his brother or sister is a murderer, and you know that no murderer has eternal life residing in him. This is how we have come to know love: He laid down his life for us. We should also lay down our lives for our brothers and sisters. If anyone has this world’s goods and sees a fellow believer in need but withholds compassion from him—how does God’s love reside in him? Little children, let us not love in word or speech, but in action and in truth. This is how we will know that we belong to the truth and will reassure our hearts before him whenever our hearts condemn us; for God is greater than our hearts, and he knows all things. Dear friends, if our hearts don’t condemn us, we have confidence before God and receive whatever we ask from him because we keep his commands and do what is pleasing in his sight. Now this is his command: that we believe in the name of his Son, Jesus Christ, and love one another as he commanded us. The one who keeps his commands remains in him, and he in him. And the way we know that he remains in us is from the Spirit he has given us.
+
+>1 John 5:13 (CSB) I have written these things to you who believe in the name of the Son of God so that you may know that you have eternal life.
+
+>Romans 5:2–5 (CSB) We have also obtained access through him by faith into this grace in which we stand, and we boast in the hope of the glory of God. And not only that, but we also boast in our afflictions, because we know that affliction produces endurance, endurance produces proven character, and proven character produces hope. This hope will not disappoint us, because God’s love has been poured out in our hearts through the Holy Spirit who was given to us.
+
+### 18.2 On the Mount of Crucifixion: We Are Washed Clean by the Blood of Christ
 
 This certainty is not a bare conjectural and probable persuasion grounded upon a fallible hope, but an infallible assurance of faith founded on the blood and righteousness of Christ revealed in the Gospel; and also upon the inward evidence of those graces of the Spirit unto which promises are made, and on the testimony of the Spirit of adoption, witnessing with our spirits that we are the children of God; and, as a fruit thereof, keeping the heart both humble and holy.
 
-Hebrews 6:11-19; Hebrews 6:17-18; 2 Peter 1:4-11; Romans 8:15-16; 1 John 3:1-3
+>Hebrews 6:11–19 (CSB) Now we desire each of you to demonstrate the same diligence for the full assurance of your hope until the end, so that you won’t become lazy but will be imitators of those who inherit the promises through faith and perseverance. For when God made a promise to Abraham, since he had no one greater to swear by, he swore by himself: I will indeed bless you, and I will greatly multiply you. And so, after waiting patiently, Abraham obtained the promise. For people swear by something greater than themselves, and for them a confirming oath ends every dispute. Because God wanted to show his unchangeable purpose even more clearly to the heirs of the promise, he guaranteed it with an oath, so that through two unchangeable things, in which it is impossible for God to lie, we who have fled for refuge might have strong encouragement to seize the hope set before us. We have this hope as an anchor for the soul, firm and secure. It enters the inner sanctuary behind the curtain.
 
-### 
+>Hebrews 6:17–18 (CSB) Because God wanted to show his unchangeable purpose even more clearly to the heirs of the promise, he guaranteed it with an oath, so that through two unchangeable things, in which it is impossible for God to lie, we who have fled for refuge might have strong encouragement to seize the hope set before us.
+
+>2 Peter 1:4–11 (CSB) By these he has given us very great and precious promises, so that through them you may share in the divine nature, escaping the corruption that is in the world because of evil desire. For this very reason, make every effort to supplement your faith with goodness, goodness with knowledge, knowledge with self-control, self-control with endurance, endurance with godliness, godliness with brotherly affection, and brotherly affection with love. For if you possess these qualities in increasing measure, they will keep you from being useless or unfruitful in the knowledge of our Lord Jesus Christ. The person who lacks these things is blind and shortsighted and has forgotten the cleansing from his past sins. Therefore, brothers and sisters, make every effort to confirm your calling and election, because if you do these things you will never stumble. For in this way, entry into the eternal kingdom of our Lord and Savior Jesus Christ will be richly provided for you.
+
+>Romans 8:15–16 (CSB) For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children,
+
+>1 John 3:1–3 (CSB) See what great love the Father has given us that we should be called God’s children—and we are! The reason the world does not know us is that it didn’t know him. Dear friends, we are God’s children now, and what we will be has not yet been revealed. We know that when he appears, we will be like him because we will see him as he is. And everyone who has this hope in him purifies himself just as he is pure.
+
+### 18.3 Let Me All Thy Love Accepting: The Spirit is Given Freely to Us in Christ
 
 This infallible assurance doth not so belong to the essence of faith, but that a true believer may wait long, and conflict with many difficulties before he be partaker of it; yet being enabled by the Spirit to know the things which are freely given him of God, he may, without extraordinary revelation, in the right use of means, attain thereunto: and therefore it is the duty of every one to give all diligence to make his calling and election sure, that thereby his heart may be enlarged in peace and joy in the Holy Spirit, in love and thankfulness to God, and in strength and cheerfulness in the duties of obedience, the proper fruits of this assurance; -so far is it from inclining men to looseness.
 
-Isaiah 50:10; Psalms 88; Psalms 77:1-12; 1 John 4:13; Hebrews 6:11-12; Romans 5:1-5; Romans 14:17; Psalms 119:32; Romans 6:1,2; Titus 2:11-14
+>Isaiah 50:10 (CSB) Who among you fears the LORD and listens to his servant? Who among you walks in darkness, and has no light? Let him trust in the name of the LORD; let him lean on his God.
 
-### 
+>Psalm 88 (CSB) A song. A psalm of the sons of Korah. For the choir director: according to Mahalath Leannoth. A Maskil of Heman the Ezrahite. LORD, God of my salvation, I cry out before you day and night. May my prayer reach your presence; listen to my cry. For I have had enough troubles, and my life is near Sheol. I am counted among those going down to the Pit. I am like a man without strength, abandoned among the dead. I am like the slain lying in the grave, whom you no longer remember, and who are cut off from your care. You have put me in the lowest part of the Pit, in the darkest places, in the depths. Your wrath weighs heavily on me; you have overwhelmed me with all your waves. Selah You have distanced my friends from me; you have made me repulsive to them. I am shut in and cannot go out. My eyes are worn out from crying. LORD, I cry out to you all day long; I spread out my hands to you. Do you work wonders for the dead? Do departed spirits rise up to praise you? Selah Will your faithful love be declared in the grave, your faithfulness in Abaddon? Will your wonders be known in the darkness or your righteousness in the land of oblivion? But I call to you for help, LORD; in the morning my prayer meets you. LORD, why do you reject me? Why do you hide your face from me? From my youth, I have been suffering and near death. I suffer your horrors; I am desperate. Your wrath sweeps over me; your terrors destroy me. They surround me like water all day long; they close in on me from every side. You have distanced loved one and neighbor from me; darkness is my only friend.
+
+>Psalm 77:1–12 (CSB) I cry aloud to God, aloud to God, and he will hear me. I sought the Lord in my day of trouble. My hands were continually lifted up all night long; I refused to be comforted. I think of God; I groan; I meditate; my spirit becomes weak. Selah You have kept me from closing my eyes; I am troubled and cannot speak. I consider days of old, years long past. At night I remember my music; I meditate in my heart, and my spirit ponders. “Will the Lord reject forever and never again show favor? Has his faithful love ceased forever? Is his promise at an end for all generations? Has God forgotten to be gracious? Has he in anger withheld his compassion?” Selah So I say, “I am grieved that the right hand of the Most High has changed.” I will remember the LORD’s works; yes, I will remember your ancient wonders. I will reflect on all you have done and meditate on your actions.
+
+>1 John 4:13 (CSB) This is how we know that we remain in him and he in us: He has given us of his Spirit.
+
+>Hebrews 6:11–12 (CSB) Now we desire each of you to demonstrate the same diligence for the full assurance of your hope until the end, so that you won’t become lazy but will be imitators of those who inherit the promises through faith and perseverance.
+
+>Romans 5:1–5 (CSB) Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. We have also obtained access through him by faith into this grace in which we stand, and we boast in the hope of the glory of God. And not only that, but we also boast in our afflictions, because we know that affliction produces endurance, endurance produces proven character, and proven character produces hope. This hope will not disappoint us, because God’s love has been poured out in our hearts through the Holy Spirit who was given to us.
+
+>Romans 14:17 (CSB) for the kingdom of God is not eating and drinking, but righteousness, peace, and joy in the Holy Spirit.
+
+>Psalm 119:32 (CSB) I pursue the way of your commands, for you broaden my understanding.
+
+>Romans 6:1 (CSB) What should we say then? Should we continue in sin so that grace may multiply?
+
+>Romans 6:2 (CSB) Absolutely not! How can we who died to sin still live in it?
+
+>Titus 2:11–14 (CSB) For the grace of God has appeared, bringing salvation for all people, instructing us to deny godlessness and worldly lusts and to live in a sensible, righteous, and godly way in the present age, while we wait for the blessed hope, the appearing of the glory of our great God and Savior, Jesus Christ. He gave himself for us to redeem us from all lawlessness and to cleanse for himself a people for his own possession, eager to do good works.
+
+### 18.4 In Thy Truth Thou Dost Direct Me: We Can Never Be Separate From The Love of God in Christ
 
 True believers may have the assurance of their salvation divers ways shaken, diminished, and intermitted; as by negligence in preserving of it, by falling into some special sin which woundeth the conscience and grieveth the Spirit; by some sudden or vehement temptation, by God's withdrawing the light of his countenance, and suffering even such as fear him to walk in darkness and to have no light, yet are they never destitute of the seed of God and life of faith, that love of Christ and the brethren, that sincerity of heart and conscience of duty out of which, by the operation of the Spirit, this assurance may in due time be revived, and by the which, in the meantime, they are preserved from utter despair.
 
-Canticles 5:2-6; Psalms 51:8-14; Psalms 116:11; Psalms 77:7-8; Psalms 31:22; Psalms 30:7; 1 John 3:9; Luke 22:32; Psalms 42:5-11; Lamentations 3:26-31
+>Song of Solomon 5:2–6 (CSB) I was sleeping, but my heart was awake. A sound! My love was knocking! Open to me, my sister, my darling, my dove, my perfect one. For my head is drenched with dew, my hair with droplets of the night. I have taken off my clothing. How can I put it back on? I have washed my feet. How can I get them dirty? My love thrust his hand through the opening, and my feelings were stirred for him. I rose to open for my love. My hands dripped with myrrh, my fingers with flowing myrrh on the handles of the bolt. I opened to my love, but my love had turned and gone away. My heart sank because he had left. I sought him, but did not find him. I called him, but he did not answer.
+
+>Psalm 51:8–14 (CSB) Let me hear joy and gladness; let the bones you have crushed rejoice. Turn your face away from my sins and blot out all my guilt. God, create a clean heart for me and renew a steadfast spirit within me. Do not banish me from your presence or take your Holy Spirit from me. Restore the joy of your salvation to me, and sustain me by giving me a willing spirit. Then I will teach the rebellious your ways, and sinners will return to you. Save me from the guilt of bloodshed, God— God of my salvation— and my tongue will sing of your righteousness.
+
+>Psalm 116:11 (CSB) In my alarm I said, “Everyone is a liar.”
+
+>Psalm 77:7–8 (CSB) “Will the Lord reject forever and never again show favor? Has his faithful love ceased forever? Is his promise at an end for all generations?
+
+>Psalm 31:22 (CSB) In my alarm I said, “I am cut off from your sight.” But you heard the sound of my pleading when I cried to you for help.
+
+>Psalm 30:7 (CSB) LORD, when you showed your favor, you made me stand like a strong mountain; when you hid your face, I was terrified.
+
+>1 John 3:9 (CSB) Everyone who has been born of God does not sin, because his seed remains in him; he is not able to sin, because he has been born of God.
+
+>Luke 22:32 (CSB) But I have prayed for you that your faith may not fail. And you, when you have turned back, strengthen your brothers.”
+
+>Psalm 42:5–11 (CSB) Why, my soul, are you so dejected? Why are you in such turmoil? Put your hope in God, for I will still praise him, my Savior and my God. I am deeply depressed; therefore I remember you from the land of Jordan and the peaks of Hermon, from Mount Mizar. Deep calls to deep in the roar of your waterfalls; all your breakers and your billows have swept over me. The LORD will send his faithful love by day; his song will be with me in the night— a prayer to the God of my life. I will say to God, my rock, “Why have you forgotten me? Why must I go about in sorrow because of the enemy’s oppression?” My adversaries taunt me, as if crushing my bones, while all day long they say to me, “Where is your God?” Why, my soul, are you so dejected? Why are you in such turmoil? Put your hope in God, for I will still praise him, my Savior and my God.
+
+>Lamentations 3:26–31 (CSB) It is good to wait quietly for salvation from the LORD. It is good for a man to bear the yoke while he is still young. Let him sit alone and be silent, for God has disciplined him. Let him put his mouth in the dust— perhaps there is still hope. Let him offer his cheek to the one who would strike him; let him be filled with disgrace. For the Lord will not reject us forever.
 
 ## Chapter 19: Of the Law of God
 
