@@ -2,7 +2,7 @@
 
 All notable changes to this project will be documented in this file.
 
-## 3.2 (2023 Jul 16)
+## 3.3 (2023 Jul 16)
 
 - [Apostles' Creed](creed-apostles/index.md)
 - Wordcount: 695610[^wordcount]
@@ -83,5 +83,5 @@ New **finished** exposition series. When the series is complete, this will bump 
 
 ~New sermons or new articles. This will go from 3 to 3.1 to 3.2 and so on.~
 
-[^1]: Thanksgiving and Ordo Salutis will be combined into a new series called "God Saves Sinners".
+[^1]: Thanksgiving and Ordo Salutis will be combined into a new series called [Christ Came To Save Sinners](doctrine-christ-saves/index.md).  
 [^wordcount]: Per [mdbook-wordcount](https://github.com/nomorepanic/mdbook-wordcount)

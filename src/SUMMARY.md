@@ -1313,8 +1313,6 @@
 
 [Ministry](ministry.md)
 
-[Vocation](vocation.md)
-
 -----------
 
 [Changelog](CHANGELOG.md)

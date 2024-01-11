@@ -9,7 +9,9 @@
   <div class="text-resume">
     Nearly 30 years IT experience<br>
     Technical Project Manager, Ansible Enthusiast, Rust Newbie<br>
-    <a href="https://bcert.me/sqqjyozaw" target="_blank">Certified Scrum Master</a> & <a href="https://www.credly.com/badges/43000dae-5ec9-42f5-9059-8c569c278e29/public_url" target="_blank">Certified SAFe 6 Agilist</a><br>
+    <a href="https://bcert.me/sqqjyozaw" target="_blank">Certified Scrum Master</a> &<br>
+    <a href="https://www.credly.com/badges/43000dae-5ec9-42f5-9059-8c569c278e29/public_url" target="_blank">Certified SAFe 6 Agilist</a> &<br>
+    <a href="https://www.credly.com/badges/a0a60488-3cc6-4b95-bd4d-d73af8f25166/public_url" target="_blank">AWS Certified Cloud Practitioner</a> &<br>
     Ex-Dell, Ex-IBM, Ex-Apple & Ex-Microsoft<br>
     US Air Force Veteran, Still Photographer<br>
     Versailles, KY
@@ -19,7 +21,10 @@
       <img src="logo-csm.png" alt="Certified Scrum Master">
     </a>
     <a href="https://www.credly.com/badges/43000dae-5ec9-42f5-9059-8c569c278e29/public_url" target="_blank">
-      <img src="logo-safe6-sa.png" alt="Certified SAFe 6 Agilist">
+      <img style="width: 56px; padding-left: 2px" src="logo-safe6-sa.png" alt="Certified SAFe 6 Agilist">
+    </a>
+    <a href="https://www.credly.com/badges/a0a60488-3cc6-4b95-bd4d-d73af8f25166/public_url" target="_blank">
+      <img src="logo-aws-ccp-500x.png" alt="AWS Certified Cloud Practitioner">
     </a>
   </div>
 </div>
@@ -30,8 +35,7 @@
 
 <div class="contact-info">
 
-  [![Cell](https://img.shields.io/badge/SMS-joseph-437790?style=for-the-badge&logo=Apple)](sms:8177071486)[![Email](https://img.shields.io/badge/Email-joseph-success?style=for-the-badge&logo=Minutemailer)](mailto:joe@theologic.us)[![GitHub](https://img.shields.io/badge/GitHub-joseph-171515?style=for-the-badge&logo=GitHub)](https://github.com/joelouthan)[![LinkedIn](https://img.shields.io/badge/linkedin-joelouthan-0C66C2?style=for-the-badge&logo=linkedin)](https://linkedin.com/in/joelouthan)[![Twitter](https://img.shields.io/badge/Twitter-josephlouthan-blue?style=for-the-badge&logo=twitter)](https://twitter.com/josephlouthan)
-  [![StarCraft 2](https://img.shields.io/badge/StarCraft%202-Nachoz-80A6C6?style=for-the-badge)](https://starcraft2.com/en-us/profile/1/1/9753175)
+  [![Cell](https://img.shields.io/badge/SMS-joseph-437790?style=for-the-badge&logo=Apple)](sms:8177071486)[![Email](https://img.shields.io/badge/Email-joseph-success?style=for-the-badge&logo=Minutemailer)](mailto:joe@theologic.us)[![GitHub](https://img.shields.io/badge/GitHub-joseph-171515?style=for-the-badge&logo=GitHub)](https://github.com/joelouthan)[![Twitter](https://img.shields.io/badge/Twitter-josephlouthan-blue?style=for-the-badge&logo=twitter)](https://twitter.com/josephlouthan)[![StarCraft 2](https://img.shields.io/badge/StarCraft%202-Nachoz-80A6C6?style=for-the-badge)](https://starcraft2.com/en-us/profile/1/1/9753175)
 
 </div>
 
@@ -41,7 +45,7 @@
 
 ### Red Hat, Jul 2019-Now
 
-**Technical Project Manager**
+**Delivery Lead / Technical Project Manager**
 
 Noteworthy Projects include but not limited to:
 
