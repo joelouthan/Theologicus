@@ -2,16 +2,9 @@
 
 # 18.4 In Thy Truth Thou Dost Direct Me: We Can Never Be Separate From The Love of God in Christ
 
-## The Song
+## The Text
 
->> In Thy truth Thou dost direct me  
->> By Thy Spirit through Thy Word;  
->> And Thy grace my need is meeting,  
->> As I trust in Thee, my Lord.  
->> All Thy fullness Thou art pouring  
->> In Thy love and power in me  
->> Without measure, full and boundless,  
->> As I yield myself to Thee.[^1]
+>Romans 8:38–39 (CSB) For I am persuaded that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
 
 ## The Chapter
 
@@ -54,5 +47,18 @@
 ### and by the which, in the meantime, they are preserved from utter despair.
 
 >Lamentations 3:26–31 (CSB) It is good to wait quietly for salvation from the LORD. It is good for a man to bear the yoke while he is still young. Let him sit alone and be silent, for God has disciplined him. Let him put his mouth in the dust— perhaps there is still hope. Let him offer his cheek to the one who would strike him; let him be filled with disgrace. For the Lord will not reject us forever.
+
+TODO: Romans 8 🍖
+
+## The Song of Praise
+
+>> In Thy truth Thou dost direct me  
+>> By Thy Spirit through Thy Word;  
+>> And Thy grace my need is meeting,  
+>> As I trust in Thee, my Lord.  
+>> All Thy fullness Thou art pouring  
+>> In Thy love and power in me  
+>> Without measure, full and boundless,  
+>> As I yield myself to Thee.[^1]
 
 [^1]: William Rees, “Here is Love,” 1876.
