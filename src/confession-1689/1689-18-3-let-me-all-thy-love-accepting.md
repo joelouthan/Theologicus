@@ -2,16 +2,9 @@
 
 # 18.3 Let Me All Thy Love Accepting: The Spirit is Given Freely to Us in Christ
 
-## The Song
+## The Text
 
->> Let me all Thy love accepting,  
->> Love Thee ever all my days;  
->> Let me seek Thy Kingdom only  
->> And my life be to Thy praise;  
->> Thou alone shalt be my glory;  
->> Nothing in the world I see:  
->> Thou hast cleansed and sanctified me;  
->> Thou Thyself hast set me free.[^1]
+>John 3:31-36 (CSB) The one who comes from above is above all. The one who is from the earth is earthly and speaks in earthly terms. The one who comes from heaven is above all. He testifies to what he has seen and heard, and yet no one accepts his testimony. The one who has accepted his testimony has affirmed that God is true. For the one whom God sent speaks God’s words, since he gives the Spirit without measure. The Father loves the Son and has given all things into his hands. The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 
 ## The Chapter
 
@@ -106,5 +99,16 @@
 >Romans 6:1-2 (CSB) What should we say then? Should we continue in sin so that grace may multiply Absolutely not! How can we who died to sin still live in it?
 
 >Titus 2:11–14 (CSB) For the grace of God has appeared, bringing salvation for all people, instructing us to deny godlessness and worldly lusts and to live in a sensible, righteous, and godly way in the present age, while we wait for the blessed hope, the appearing of the glory of our great God and Savior, Jesus Christ. He gave himself for us to redeem us from all lawlessness and to cleanse for himself a people for his own possession, eager to do good works.
+
+## The Song of Praise
+
+>> Let me all Thy love accepting,  
+>> Love Thee ever all my days;  
+>> Let me seek Thy Kingdom only  
+>> And my life be to Thy praise;  
+>> Thou alone shalt be my glory;  
+>> Nothing in the world I see:  
+>> Thou hast cleansed and sanctified me;  
+>> Thou Thyself hast set me free.[^1]
 
 [^1]: William Rees, “Here is Love,” 1876.
