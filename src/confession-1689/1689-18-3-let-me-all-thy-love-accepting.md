@@ -12,7 +12,7 @@
 
 ## The Confession
 
-### This infallible assurance does not so belong to the essence of faith, but that a true believer may wait long, and struggle with many difficulties before he be partaker of it
+### Let Me All Thy Love Accepting: This infallible assurance does not so belong to the essence of faith, but that a true believer may wait long, and struggle with many difficulties before he be partaker of it
 
 >Isaiah 50:10 (CSB) Who among you fears the LORD and listens to his servant? Who among you walks in darkness, and has no light? Let him trust in the name of the LORD; let him lean on his God.
 
@@ -80,13 +80,13 @@
 >
 ><sup>12</sup> I will reflect on all you have done and meditate on your actions.
 
-### yet being enabled by the Spirit to know the things which are freely given him of God, he may, without extraordinary revelation, in the right use of means, attain thereunto
+### Let Me All Thy Love Accepting: yet being enabled by the Spirit to know the things which are freely given him of God, he may, without extraordinary revelation, in the right use of means, attain thereunto
 
 >1 John 4:13 (CSB) This is how we know that we remain in him and he in us: He has given us of his Spirit.
 
 >Hebrews 6:11–12 (CSB) Now we desire each of you to demonstrate the same diligence for the full assurance of your hope until the end, so that you won’t become lazy but will be imitators of those who inherit the promises through faith and perseverance.
 
-### and therefore it is the duty of every one to give all diligence to make his calling and election sure, that thereby his heart may be enlarged in peace and joy in the Holy Spirit, in love and thankfulness to God, and in strength and cheerfulness in the duties of obedience, the proper fruits of this assurance
+### Let Me All Thy Love Accepting: and therefore it is the duty of every one to give all diligence to make his calling and election sure, that thereby his heart may be enlarged in peace and joy in the Holy Spirit, in love and thankfulness to God, and in strength and cheerfulness in the duties of obedience, the proper fruits of this assurance
 
 >Romans 5:1–5 (CSB) Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. We have also obtained access through him by faith into this grace in which we stand, and we boast in the hope of the glory of God. And not only that, but we also boast in our afflictions, because we know that affliction produces endurance, endurance produces proven character, and proven character produces hope. This hope will not disappoint us, because God’s love has been poured out in our hearts through the Holy Spirit who was given to us.
 
@@ -94,7 +94,7 @@
 
 >Psalm 119:32 (CSB) I pursue the way of your commands, for you broaden my understanding.
 
-### so far is it from inclining men to looseness
+### Let Me All Thy Love Accepting: so far is it from inclining men to looseness
 
 >Romans 6:1-2 (CSB) What should we say then? Should we continue in sin so that grace may multiply Absolutely not! How can we who died to sin still live in it?
 
