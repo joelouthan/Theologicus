@@ -12,7 +12,7 @@
 
 ## The Confession
 
-### Although temporary believers and other unregenerate men, may vainly deceive themselves with false hopes and carnal presumptions of being in the favor of God and in a state of salvation, which hope of theirs shall perish
+### Here is Love: Although temporary believers and other unregenerate men, may vainly deceive themselves with false hopes and carnal presumptions of being in the favor of God and in a state of salvation, which hope of theirs shall perish
 
 >Job 8:13–14 (CSB) Such is the destiny of all who forget God; the hope of the godless will perish. His source of confidence is fragile; what he trusts in is a spider’s web.
 
@@ -53,7 +53,7 @@ Salvation is a complete, perfect, whole supernatural work of God. No exceptions.
 
 >John 1:12–13 (CSB) But to all who did receive him, he gave them the right to be children of God, to those who believe in his name, who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
 
-### yet such as truly believe in the Lord Jesus, and love him in sincerity, endeavouring to walk in all good conscience before him, may in this life be certainly assured that they are in the state of grace, and may rejoice in the hope of the glory of God
+### Here is Love: yet such as truly believe in the Lord Jesus, and love him in sincerity, endeavouring to walk in all good conscience before him, may in this life be certainly assured that they are in the state of grace, and may rejoice in the hope of the glory of God
 
 >1 John 2:3 (CSB) This is how we know that we know him: if we keep his commands.
 
@@ -73,7 +73,7 @@ But God.
 
 ---
 
-### which hope shall never make them ashamed
+### Here is Love: which hope shall never make them ashamed
 
 God knew and did something about it.
 
