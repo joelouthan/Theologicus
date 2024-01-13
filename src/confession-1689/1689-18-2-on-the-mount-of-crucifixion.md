@@ -2,16 +2,29 @@
 
 # 18.2 On the Mount of Crucifixion: We Are Washed Clean by the Blood of Christ
 
-## The Song
+## The Text
 
->> On the mount of crucifixion,  
->> Fountains opened deep and wide;  
->> Thro’ the flood gates of God’s mercy  
->> Flow’d the vast and gracious tide;  
->> Grace and love like mighty rivers  
->> Pour’d incessant from above,  
->> And heav’n’s peace and perfect justice  
->> Kissed a guilty world in love.[^1]
+>Revelation 12:10-12 (CSB)  
+>Then I heard a loud voice in heaven say,  
+>The salvation and the power  
+>and the kingdom of our God  
+>and the authority of his Christ  
+>have now come,  
+>because the accuser of our brothers and sisters,  
+>who accuses them  
+>before our God day and night,  
+>has been thrown down.  
+>They conquered him  
+>by the blood of the Lamb  
+>and by the word of their testimony;  
+>for they did not love their lives  
+>to the point of death.  
+>Therefore rejoice, you heavens,  
+>and you who dwell in them!  
+>Woe to the earth and the sea,  
+>because the devil has come down to you  
+>with great fury,  
+>because he knows his time is short.
 
 ## The Chapter
 
@@ -38,5 +51,16 @@
 ### and, as a fruit thereof, keeping the heart both humble and holy
 
 >1 John 3:1–3 (CSB) See what great love the Father has given us that we should be called God’s children—and we are! The reason the world does not know us is that it didn’t know him. Dear friends, we are God’s children now, and what we will be has not yet been revealed. We know that when he appears, we will be like him because we will see him as he is. And everyone who has this hope in him purifies himself just as he is pure.
+
+## The Song of Praise
+
+>> On the mount of crucifixion,  
+>> Fountains opened deep and wide;  
+>> Thro’ the flood gates of God’s mercy  
+>> Flow’d the vast and gracious tide;  
+>> Grace and love like mighty rivers  
+>> Pour’d incessant from above,  
+>> And heav’n’s peace and perfect justice  
+>> Kissed a guilty world in love.[^1]
 
 [^1]: William Rees, “Here is Love,” 1876.
