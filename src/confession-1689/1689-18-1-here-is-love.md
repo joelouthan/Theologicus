@@ -2,16 +2,9 @@
 
 # 18.1 Here is Love: Certainly Assured by Christ
 
-## The Song
+## The Text
 
->> Here is love, vast as the ocean,  
->> Lovingkindness as the flood;  
->> When the Prince of Life my ransom,  
->> Shed for me His precious blood.  
->> Who His love will not remember?  
->> Who can cease to sing His praise?  
->> He shall never be forgotten,  
->> Through heav’n’s everlasting days.[^1]
+>1 John 4:10 (ESV) In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.
 
 ## The Chapter
 
@@ -106,5 +99,15 @@ We get to boast because the Christ has us! Christ has us, the Father has made hi
 
 >Psalms 23:6 (CSB) Only goodness and faithful love will pursue me all the days of my life, and I will dwell in the house of the LORD as long as I live.
 
+## The Song of Praise
+
+>> Here is love, vast as the ocean,  
+>> Lovingkindness as the flood;  
+>> When the Prince of Life my ransom,  
+>> Shed for me His precious blood.  
+>> Who His love will not remember?  
+>> Who can cease to sing His praise?  
+>> He shall never be forgotten,  
+>> Through heav’n’s everlasting days.[^1]
 
 [^1]: William Rees, “Here is Love,” 1876.
