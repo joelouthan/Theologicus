@@ -1,4 +1,4 @@
-<img src="github-book-theologicus3.png" hidden><img src="bible-csb-study.jpg">CSB Study Bible    
+<img src="github-book-theologicus3.png" hidden><img src="bible-csb-study.jpg">CSB Study Bible  
 Holmon Bible Publishers. 2017.  
 [Goodreads](https://www.goodreads.com/book/show/30746885-csb-study-bible)
 
