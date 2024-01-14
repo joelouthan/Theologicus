@@ -6,6 +6,7 @@ All notable changes to this project will be documented in this file.
 
 - File cleanup (mostly flattening directories for img src to work correctly) for porting to Swift aka [the iOS app for Theologicus](https://github.com/joelouthan/com.theologicus)
 - Removed Vocation Resume (just not needed)
+- next version: 4.0 with the iOS app being available on the App Store
 
 ## 3.3 (2023 Jul 16)
 
