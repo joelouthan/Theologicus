@@ -1,4 +1,4 @@
-<kbd>[![](src/images/github-banner-theologicus3.png)](https://theologic.us)</kbd>
+<kbd>[![](src/github-banner-theologicus3.png)](https://theologic.us)</kbd>
 
 ## upcoming
 
@@ -9,6 +9,7 @@
 
 ## releases
 
+- v3.3.1 (2024 Jan 7) [Swift port](https://github.com/joelouthan/com.theologicus)
 - v3.3 (2023 Jul 16) [Apostles' Creed](https://theologic.us/creed-apostles/index.md)
 - v3.2 (2023 Jul 04) [Book Reviews](https://theologic.us/reviews/index.md)
 - v3.1 (2023 Jun 14) [Ruth](https://theologic.us/ruth/index.md)
