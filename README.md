@@ -1,4 +1,8 @@
-<kbd>[![](src/github-banner-theologicus3.png)](https://theologic.us)</kbd>
+# Theologicus
+<img style="float:left; border-radius: 4px; margin-right: 15px; margin-bottom: 10px" src="src/logo-theologicus.png" width="100" align="left">Still no pen, no words, no image  
+can express to you the loveliness  
+of my only, only Lord Jesus.  
+\- Samuel Rutherford
 
 ## upcoming
 
