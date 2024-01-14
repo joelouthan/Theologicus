@@ -2,6 +2,11 @@
 
 All notable changes to this project will be documented in this file.
 
+## 3.3.1 (2024 Jan 7)
+
+- File cleanup (mostly flattening directories for img src to work correctly) for porting to Swift aka [the iOS app for Theologicus](https://github.com/joelouthan/com.theologicus)
+- Removed Vocation Resume (just not needed)
+
 ## 3.3 (2023 Jul 16)
 
 - [Apostles' Creed](creed-apostles/index.md)
