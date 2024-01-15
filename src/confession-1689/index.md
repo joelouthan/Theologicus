@@ -1678,25 +1678,51 @@ Neither are the aforementioned uses of the law contrary to the grace of the Gosp
 
 The covenant of works being broken by sin, and made unprofitable unto life, God was pleased to give forth the promise of Christ, the seed of the woman, as the means of calling the elect, and begetting in them faith and repentance; in this promise the gospel, as to the substance of it, was revealed, and is therein effectual for the conversion and salvation of sinners.
 
-Genesis 3:15; Revelation 13:8
+>Genesis 3:15 (CSB) I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
+
+>Revelation 13:8 (CSB) All those who live on the earth will worship it, everyone whose name was not written from the foundation of the world in the book of life of the Lamb who was slaughtered.
 
 ### [20.2 Of The Gospel: The Seed of the Woman](1689-20-2-of-the-gospel:-the-seed-of-the-woman.md)
 
 This promise of Christ, and salvation by him, is revealed only by the Word of God; neither do the works of creation or providence, with the light of nature, make discovery of Christ, or of grace by him, so much as in a general or obscure way; much less that men destitute of the revelation of Him by the promise or gospel, should be enabled thereby to attain saving faith or repentance.
 
-Romans 1:17; Romans 10:14,15,17; Proverbs 29:18; Isaiah 25:7; Isaiah 60:2-3
+>Romans 1:17 (CSB) For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
+
+>Romans 10:14 (CSB) How, then, can they call on him they have not believed in? And how can they believe without hearing about him? And how can they hear without a preacher?
+
+>Romans 10:15 (CSB) And how can they preach unless they are sent? As it is written: How beautiful are the feet of those who bring good news.
+
+>Romans 10:17 (CSB) So faith comes from what is heard, and what is heard comes through the message about Christ.
+
+>Proverbs 29:18 (CSB) Without revelation people run wild, but one who follows divine instruction will be happy.
+
+>Isaiah 25:7 (CSB) On this mountain he will swallow up the burial shroud, the shroud over all the peoples, the sheet covering all the nations.
+
+>Isaiah 60:2–3 (CSB) For look, darkness will cover the earth, and total darkness the peoples; but the LORD will shine over you, and his glory will appear over you. Nations will come to your light, and kings to your shining brightness.
 
 ### [20.3 Of The Gospel: Only Begotten Son](1689-20-3-of-the-gospel:-only-begotten-son.md)
 
 The revelation of the gospel unto sinners, made in divers times and by sundry parts, with the addition of promises and precepts for the obedience required therein, as to the nations and persons to whom it is granted, is merely of the sovereign will and good pleasure of God; not being annexed by virtue of any promise to the due improvement of men's natural abilities, by virtue of common light received without it, which none ever did make, or can do so; and therefore in all ages, the preaching of the gospel has been granted unto persons and nations, as to the extent or straitening of it, in great variety, according to the counsel of the will of God.
 
-Psalms 147:20; Acts 16:7; Romans 1:18-32
+>Psalm 147:20 (CSB) He has not done this for every nation; they do not know his judgments. Hallelujah!
+
+>Acts 16:7 (CSB) When they came to Mysia, they tried to go into Bithynia, but the Spirit of Jesus did not allow them.
+
+>Romans 1:18–32 (CSB) For God’s wrath is revealed from heaven against all godlessness and unrighteousness of people who by their unrighteousness suppress the truth, since what can be known about God is evident among them, because God has shown it to them. For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse. For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. Claiming to be wise, they became fools and exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles. Therefore God delivered them over in the desires of their hearts to sexual impurity, so that their bodies were degraded among themselves. They exchanged the truth of God for a lie, and worshiped and served what has been created instead of the Creator, who is praised forever. Amen. For this reason God delivered them over to disgraceful passions. Their women exchanged natural sexual relations for unnatural ones. The men in the same way also left natural relations with women and were inflamed in their lust for one another. Men committed shameless acts with men and received in their own persons the appropriate penalty of their error. And because they did not think it worthwhile to acknowledge God, God delivered them over to a corrupt mind so that they do what is not right. They are filled with all unrighteousness, evil, greed, and wickedness. They are full of envy, murder, quarrels, deceit, and malice. They are gossips, slanderers, God-haters, arrogant, proud, boastful, inventors of evil, disobedient to parents, senseless, untrustworthy, unloving, and unmerciful. Although they know God’s just sentence—that those who practice such things deserve to die—they not only do them, but even applaud others who practice them.
 
 ### [20.4 Of The Gospel: The Just Shall Live By Faith](1689-20-4-of-the-gospel:-the-just-shall-live-by-faith.md)
 
 Although the gospel be the only outward means of revealing Christ and saving grace, and is, as such, abundantly sufficient thereunto; yet that men who are dead in trespasses may be born again, quickened or regenerated, there is moreover necessary an effectual insuperable work of the Holy Spirit upon the whole soul, for the producing in them a new spiritual life; without which no other means will effect their conversion unto God.
 
-Psalms 110:3; 1 Corinthians 2:14; Ephesians 1:19-20; John 6:44; 2 Corinthians 4:4-6
+>Psalm 110:3 (CSB) Your people will volunteer on your day of battle. In holy splendor, from the womb of the dawn, the dew of your youth belongs to you.
+
+>1 Corinthians 2:14 (CSB) But the person without the Spirit does not receive what comes from God’s Spirit, because it is foolishness to him; he is not able to understand it since it is evaluated spiritually.
+
+>Ephesians 1:19–20 (CSB) and what is the immeasurable greatness of his power toward us who believe, according to the mighty working of his strength. He exercised this power in Christ by raising him from the dead and seating him at his right hand in the heavens—
+
+>John 6:44 (CSB) No one can come to me unless the Father who sent me draws him, and I will raise him up on the last day.
+
+>2 Corinthians 4:4–6 (CSB) In their case, the god of this age has blinded the minds of the unbelievers to keep them from seeing the light of the gospel of the glory of Christ, who is the image of God. For we are not proclaiming ourselves but Jesus Christ as Lord, and ourselves as your servants for Jesus’s sake. For God who said, “Let light shine out of darkness,” has shone in our hearts to give the light of the knowledge of God’s glory in the face of Jesus Christ.
 
 ## [Chapter XXI. Of Christian Liberty and Liberty of Conscience](1689-21-0-index.md)
 
@@ -1705,19 +1731,61 @@ Psalms 110:3; 1 Corinthians 2:14; Ephesians 1:19-20; John 6:44; 2 Corinthians 4:
 The liberty which Christ hath purchased for believers under the gospel, consists in their freedom from the guilt of sin, the condemning wrath of God, the rigour and curse of the law, and in their being delivered from this present evil world, bondage to Satan, and dominion of sin, from the evil of afflictions, the fear and sting of death, the victory of the grave, and ever- lasting damnation: as also in their free access to God, and their yielding obedience unto Him, not out of slavish fear, but a child-like love and willing mind.
 All which were common also to believers under the law for the substance of them; but under the New Testament the liberty of Christians is further enlarged, in their freedom from the yoke of a ceremonial law, to which the Jewish church was subjected, and in greater boldness of access to the throne of grace, and in fuller communications of the free Spirit of God, than believers under the law did ordinarily partake of.
 
-Galatians 3:13; Galatians 1:4; Acts 26:18; Romans 8:3; Romans 8:28; 1 Corinthians 15:54-57; 2 Thessalonians 1:10; Romans 8:15; Luke 1:73-75; 1 John 4:18; Galatians 3:9-14; John 7:38-39; Hebrews 10:19-21
+>Galatians 3:13 (CSB) Christ redeemed us from the curse of the law by becoming a curse for us, because it is written, Cursed is everyone who is hung on a tree.
+
+>Galatians 1:4 (CSB) who gave himself for our sins to rescue us from this present evil age, according to the will of our God and Father.
+
+>Acts 26:18 (CSB) to open their eyes so that they may turn from darkness to light and from the power of Satan to God, that they may receive forgiveness of sins and a share among those who are sanctified by faith in me.’
+
+>Romans 8:3 (CSB) For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering,
+
+>Romans 8:28 (CSB) We know that all things work together for the good of those who love God, who are called according to his purpose.
+
+>1 Corinthians 15:54–57 (CSB) When this corruptible body is clothed with incorruptibility, and this mortal body is clothed with immortality, then the saying that is written will take place: Death has been swallowed up in victory. Where, death, is your victory? Where, death, is your sting? The sting of death is sin, and the power of sin is the law. But thanks be to God, who gives us the victory through our Lord Jesus Christ!
+
+>2 Thessalonians 1:10 (CSB) on that day when he comes to be glorified by his saints and to be marveled at by all those who have believed, because our testimony among you was believed.
+
+>Romans 8:15 (CSB) For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!”
+
+>Luke 1:73–75 (CSB) the oath that he swore to our father Abraham. He has given us the privilege, since we have been rescued from the hand of our enemies, to serve him without fear in holiness and righteousness in his presence all our days.
+
+>1 John 4:18 (CSB) There is no fear in love; instead, perfect love drives out fear, because fear involves punishment. So the one who fears is not complete in love.
+
+>Galatians 3:9–14 (CSB) Consequently, those who have faith are blessed with Abraham, who had faith. For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed. Now it is clear that no one is justified before God by the law, because the righteous will live by faith. But the law is not based on faith; instead, the one who does these things will live by them. Christ redeemed us from the curse of the law by becoming a curse for us, because it is written, Cursed is everyone who is hung on a tree. The purpose was that the blessing of Abraham would come to the Gentiles by Christ Jesus, so that we could receive the promised Spirit through faith.
+
+>John 7:38–39 (CSB) The one who believes in me, as the Scripture has said, will have streams of living water flow from deep within him.” He said this about the Spirit. Those who believed in Jesus were going to receive the Spirit, for the Spirit had not yet been given because Jesus had not yet been glorified.
+
+>Hebrews 10:19–21 (CSB) Therefore, brothers and sisters, since we have boldness to enter the sanctuary through the blood of Jesus—he has inaugurated for us a new and living way through the curtain (that is, through his flesh)—and since we have a great high priest over the house of God,
 
 ### [21.2 Free Indeed: Power of God](1689-21-2-free-indeed:-power-of-god.md)
 
 God alone is Lord of the conscience, and hath left it free from the doctrines and commandments of men which are in any thing contrary to his word, or not contained in it. So that to believe such doctrines, or obey such commands out of conscience, is to betray true liberty of conscience; and the requiring of an implicit faith, an absolute and blind obedience, is to destroy liberty of conscience and reason also.
 
-James 4:12; Romans 14:4; Acts 4:19-29; 1 Corinthians 7:23; Matthew 15:9; Colossians 2:20-23; 1 Corinthians 3:5; 2 Corinthians 1:24
+>James 4:12 (CSB) There is one lawgiver and judge who is able to save and to destroy. But who are you to judge your neighbor?
+
+>Romans 14:4 (CSB) Who are you to judge another’s household servant? Before his own Lord he stands or falls. And he will stand, because the Lord is able to make him stand.
+
+>Acts 4:19–29 (CSB) Peter and John answered them, “Whether it’s right in the sight of God for us to listen to you rather than to God, you decide; for we are unable to stop speaking about what we have seen and heard.” After threatening them further, they released them. They found no way to punish them because the people were all giving glory to God over what had been done. For this sign of healing had been performed on a man over forty years old. After they were released, they went to their own people and reported everything the chief priests and the elders had said to them. When they heard this, they raised their voices together to God and said, “Master, you are the one who made the heaven, the earth, and the sea, and everything in them. You said through the Holy Spirit, by the mouth of our father David your servant: Why do the Gentiles rage and the peoples plot futile things? The kings of the earth take their stand and the rulers assemble together against the Lord and against his Messiah. “For, in fact, in this city both Herod and Pontius Pilate, with the Gentiles and the people of Israel, assembled together against your holy servant Jesus, whom you anointed, to do whatever your hand and your will had predestined to take place. And now, Lord, consider their threats, and grant that your servants may speak your word with all boldness,
+
+>1 Corinthians 7:23 (CSB) You were bought at a price; do not become slaves of people.
+
+>Matthew 15:9 (CSB) They worship me in vain, teaching as doctrines human commands.”
+
+>Colossians 2:20–23 (CSB) If you died with Christ to the elements of this world, why do you live as if you still belonged to the world? Why do you submit to regulations: “Don’t handle, don’t taste, don’t touch”? All these regulations refer to what is destined to perish by being used up; they are human commands and doctrines. Although these have a reputation for wisdom by promoting self-made religion, false humility, and severe treatment of the body, they are not of any value in curbing self-indulgence.
+
+>1 Corinthians 3:5 (CSB) What then is Apollos? What is Paul? They are servants through whom you believed, and each has the role the Lord has given.
+
+>2 Corinthians 1:24 (CSB) I do not mean that we lord it over your faith, but we are workers with you for your joy, because you stand firm in your faith.
 
 ### [21.3 Free Indeed: Righteousness of God](1689-21-3-free-indeed:-righteousness-of-god.md)
 
 They who upon pretence of Christian liberty do practice any sin, or cherish any sinful lust, as they do thereby pervert the main design of the grace of the gospel to their own destruction, so they wholly destroy the end of Christian liberty, which is, that being delivered out of the hands of all our enemies, we might serve the Lord without fear, in holiness and righeousness before Him, all the days of our lives.
 
-Romans 6:1-2; Galatians 5:13; 2 Peter 2:18-21
+>Romans 6:1–2 (CSB) What should we say then? Should we continue in sin so that grace may multiply? Absolutely not! How can we who died to sin still live in it?
+
+>Galatians 5:13 (CSB) For you were called to be free, brothers and sisters; only don’t use this freedom as an opportunity for the flesh, but serve one another through love.
+
+>2 Peter 2:18–21 (CSB) For by uttering boastful, empty words, they seduce, with fleshly desires and debauchery, people who have barely escaped from those who live in error. They promise them freedom, but they themselves are slaves of corruption, since people are enslaved to whatever defeats them. For if, having escaped the world’s impurity through the knowledge of the Lord and Savior Jesus Christ, they are again entangled in these things and defeated, the last state is worse for them than the first. For it would have been better for them not to have known the way of righteousness than, after knowing it, to turn back from the holy command delivered to them.
 
 ## [Chapter XXII. Of Religious Worship and the Sabbath Day](1689-22-0-index.md)
 
@@ -1725,38 +1793,109 @@ Romans 6:1-2; Galatians 5:13; 2 Peter 2:18-21
 
 The light of nature shews that there is a God, who hath lordship and sovereignty over all; is just, good and doth good unto all; and is therefore to be feared, loved, praised, called upon, trusted in, and served, with all the heart and all the soul, and with all the might. But the acceptable way of worshipping the true God, is instituted by himself, and so limited by his own revealed will, that he may not be worshipped according to the imagination and devices of men, nor the suggestions of Satan, under any visible representations, or any other way not prescribed in the Holy Scriptures.
 
-Jeremiah 10:7; Mark 12:33; Deuteronomy 12:32; Exodus 20:4-6
+>Jeremiah 10:7 (CSB) Who should not fear you, King of the nations? It is what you deserve. For among all the wise people of the nations and among all their kingdoms, there is no one like you.
+
+>Mark 12:33 (CSB) And to love him with all your heart, with all your understanding, and with all your strength, and to love your neighbor as yourself, is far more important than all the burnt offerings and sacrifices.”
+
+>Deuteronomy 12:32 (CSB) Be careful to do everything I command you; do not add anything to it or take anything away from it.
+
+>Exodus 20:4–6 (CSB) Do not make an idol for yourself, whether in the shape of anything in the heavens above or on the earth below or in the waters under the earth. Do not bow in worship to them, and do not serve them; for I, the LORD your God, am a jealous God, bringing the consequences of the fathers’ iniquity on the children to the third and fourth generations of those who hate me, but showing faithful love to a thousand generations of those who love me and keep my commands.
 
 ### [22.2 We Will Worship the Lamb of Glory](1689-22-2-we-will-worship-the-lamb-of-glory.md)
 
 Religious worship is to be given to God the Father, Son, and Holy Spirit, and to him alone; not to angels, saints, or any other creatures; and since the fall, not without a mediator, nor in the mediation of any other but Christ alone.
 
-Matthew 4:9-10; John 6:23; Matthew 28:19; Romans 1:25; Colossians 2:18; Revelation 19:10; John 14:6; 1 Timothy 2:5
+>Matthew 4:9–10 (CSB) And he said to him, “I will give you all these things if you will fall down and worship me.” Then Jesus told him, “Go away, Satan! For it is written: Worship the Lord your God, and serve only him.”
+
+>John 6:23 (CSB) Some boats from Tiberias came near the place where they had eaten the bread after the Lord had given thanks.
+
+>Matthew 28:19 (CSB) Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit,
+
+>Romans 1:25 (CSB) They exchanged the truth of God for a lie, and worshiped and served what has been created instead of the Creator, who is praised forever. Amen.
+
+>Colossians 2:18 (CSB) Let no one condemn you by delighting in ascetic practices and the worship of angels, claiming access to a visionary realm. Such people are inflated by empty notions of their unspiritual mind.
+
+>Revelation 19:10 (CSB) Then I fell at his feet to worship him, but he said to me, “Don’t do that! I am a fellow servant with you and your brothers and sisters who hold firmly to the testimony of Jesus. Worship God, because the testimony of Jesus is the spirit of prophecy.”
+
+>John 14:6 (CSB) Jesus told him, “I am the way, the truth, and the life. No one comes to the Father except through me.
+
+>1 Timothy 2:5 (CSB) For there is one God and one mediator between God and mankind, the man Christ Jesus,
 
 ### [22.3 Give Thanks](1689-22-3-give-thanks.md)
 
 Prayer, with thanksgiving, being one part of natural worship, is by God required of all men. But that it may be accepted, it is to be made in the name of the Son, by the help of the Spirit, according to his will; with understanding, reverence, humility, fervency, faith, love, and perseverance; and when with others, in a known tongue.
 
-Psalms 95:1-7; Psalms 65:2; John 14:13-14; Romans 8:26; 1 John 5:14; 1 Corinthians 14:16-17
+>Psalm 95:1–7 (CSB) Come, let’s shout joyfully to the LORD, shout triumphantly to the rock of our salvation! Let’s enter his presence with thanksgiving; let’s shout triumphantly to him in song. For the LORD is a great God, a great King above all gods. The depths of the earth are in his hand, and the mountain peaks are his. The sea is his; he made it. His hands formed the dry land. Come, let’s worship and bow down; let’s kneel before the LORD our Maker. For he is our God, and we are the people of his pasture, the sheep under his care. Today, if you hear his voice:
+
+>Psalm 65:2 (CSB) All humanity will come to you, the one who hears prayer.
+
+>John 14:13–14 (CSB) Whatever you ask in my name, I will do it so that the Father may be glorified in the Son. If you ask me anything in my name, I will do it.
+
+>Romans 8:26 (CSB) In the same way the Spirit also helps us in our weakness, because we do not know what to pray for as we should, but the Spirit himself intercedes for us with inexpressible groanings.
+
+>1 John 5:14 (CSB) This is the confidence we have before him: If we ask anything according to his will, he hears us.
+
+>1 Corinthians 14:16–17 (CSB) Otherwise, if you praise with the spirit, how will the outsider say “Amen” at your giving of thanks, since he does not know what you are saying? For you may very well be giving thanks, but the other person is not being built up.
 
 ### [22.4 Pray](1689-22-4-pray.md)
 
 Prayer is to be made for things lawful, and for all sorts of men living, or that shall live hereafter; but not for the dead, nor for those of whom it may be known that they have sinned the sin unto death.
 
-1 Timothy 2:1-2; 2 Samuel 7:29; 2 Samuel 12:21-23; 1 John 5:16
+>1 Timothy 2:1–2 (CSB) First of all, then, I urge that petitions, prayers, intercessions, and thanksgivings be made for everyone, for kings and all those who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity.
+
+>2 Samuel 7:29 (CSB) Now, please bless your servant’s house so that it will continue before you forever. For you, Lord GOD, have spoken, and with your blessing your servant’s house will be blessed forever.
+
+>2 Samuel 12:21–23 (CSB) His servants asked him, “Why have you done this? While the baby was alive, you fasted and wept, but when he died, you got up and ate food.” He answered, “While the baby was alive, I fasted and wept because I thought, ‘Who knows? The LORD may be gracious to me and let him live.’ But now that he is dead, why should I fast? Can I bring him back again? I’ll go to him, but he will never return to me.”
+
+>1 John 5:16 (CSB) If anyone sees a fellow believer committing a sin that doesn’t lead to death, he should ask, and God will give life to him—to those who commit sin that doesn’t lead to death. There is sin that leads to death. I am not saying he should pray about that.
 
 ### [22.5 As The Deer Panteth For The Water](1689-22-5-as-the-deer-panteth-for-the-water.md)
 
 The reading of the Scriptures, preaching, and hearing the Word of God, teaching and admonishing one another in psalms, hymns, and spiritual songs, singing with grace in our hearts to the Lord; as also the administration of baptism, and the Lord's supper, are all parts of religious worship of God, to be performed in obedience to him, with understanding, faith, reverence, and godly fear; moreover, solemn humiliation, with fastings, and thanksgivings, upon special occasions, ought to be used in an holy and religious manner.
 
-1 Timothy 4:13; 2 Timothy 4:2; Luke 8:18; Colossians 3:16; Ephesians 5:19; Matthew 28:19-20; 1 Corinthians
-11:26; Esther 4:16; Joel 2:12; Exodus 15:1-19; Psalms 107
+>1 Timothy 4:13 (CSB) Until I come, give your attention to public reading, exhortation, and teaching.
+
+>2 Timothy 4:2 (CSB) Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching.
+
+>Luke 8:18 (CSB) Therefore take care how you listen. For whoever has, more will be given to him; and whoever does not have, even what he thinks he has will be taken away from him.”
+
+>Colossians 3:16 (CSB) Let the word of Christ dwell richly among you, in all wisdom teaching and admonishing one another through psalms, hymns, and spiritual songs, singing to God with gratitude in your hearts.
+
+>Ephesians 5:19 (CSB) speaking to one another in psalms, hymns, and spiritual songs, singing and making music with your heart to the Lord,
+
+>Matthew 28:19–20 (CSB) Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”
+
+>1 Corinthians 11:26 (CSB) For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes.
+
+>Esther 4:16 (CSB) “Go and assemble all the Jews who can be found in Susa and fast for me. Don’t eat or drink for three days, night or day. I and my female servants will also fast in the same way. After that, I will go to the king even if it is against the law. If I perish, I perish.”
+
+>Joel 2:12 (CSB) Even now— this is the LORD’s declaration— turn to me with all your heart, with fasting, weeping, and mourning.
+
+>Exodus 15:1–19 (CSB) Then Moses and the Israelites sang this song to the LORD. They said: I will sing to the LORD, for he is highly exalted; he has thrown the horse and its rider into the sea. The LORD is my strength and my song; he has become my salvation. This is my God, and I will praise him, my father’s God, and I will exalt him. The LORD is a warrior; the LORD is his name. He threw Pharaoh’s chariots and his army into the sea; the elite of his officers were drowned in the Red Sea. The floods covered them; they sank to the depths like a stone. LORD, your right hand is glorious in power. LORD, your right hand shattered the enemy. You overthrew your adversaries by your great majesty. You unleashed your burning wrath; it consumed them like stubble. The water heaped up at the blast from your nostrils; the currents stood firm like a dam. The watery depths congealed in the heart of the sea. The enemy said: “I will pursue, I will overtake, I will divide the spoil. My desire will be gratified at their expense. I will draw my sword; my hand will destroy them.” But you blew with your breath, and the sea covered them. They sank like lead in the mighty waters. LORD, who is like you among the gods? Who is like you, glorious in holiness, revered with praises, performing wonders? You stretched out your right hand, and the earth swallowed them. With your faithful love, you will lead the people you have redeemed; you will guide them to your holy dwelling with your strength. When the peoples hear, they will shudder; anguish will seize the inhabitants of Philistia. Then the chiefs of Edom will be terrified; trembling will seize the leaders of Moab; all the inhabitants of Canaan will panic; terror and dread will fall on them. They will be as still as a stone because of your powerful arm until your people pass by, LORD, until the people whom you purchased pass by. You will bring them in and plant them on the mountain of your possession; LORD, you have prepared the place for your dwelling; Lord, your hands have established the sanctuary. The LORD will reign forever and ever! When Pharaoh’s horses with his chariots and horsemen went into the sea, the LORD brought the water of the sea back over them. But the Israelites walked through the sea on dry ground.
+
+>Psalm 107 (CSB) Give thanks to the LORD, for he is good; his faithful love endures forever. Let the redeemed of the LORD proclaim that he has redeemed them from the power of the foe and has gathered them from the lands— from the east and the west, from the north and the south. Some wandered in the desolate wilderness, finding no way to a city where they could live. They were hungry and thirsty; their spirits failed within them. Then they cried out to the LORD in their trouble; he rescued them from their distress. He led them by the right path to go to a city where they could live. Let them give thanks to the LORD for his faithful love and his wondrous works for all humanity. For he has satisfied the thirsty and filled the hungry with good things. Others sat in darkness and gloom— prisoners in cruel chains— because they rebelled against God’s commands and despised the counsel of the Most High. He broke their spirits with hard labor; they stumbled, and there was no one to help. Then they cried out to the LORD in their trouble; he saved them from their distress. He brought them out of darkness and gloom and broke their chains apart. Let them give thanks to the LORD for his faithful love and his wondrous works for all humanity. For he has broken down the bronze gates and cut through the iron bars. Fools suffered affliction because of their rebellious ways and their iniquities. They loathed all food and came near the gates of death. Then they cried out to the LORD in their trouble; he saved them from their distress. He sent his word and healed them; he rescued them from their traps. Let them give thanks to the LORD for his faithful love and his wondrous works for all humanity. Let them offer thanksgiving sacrifices and announce his works with shouts of joy. Others went to sea in ships, conducting trade on the vast water. They saw the LORD’s works, his wondrous works in the deep. He spoke and raised a stormy wind that stirred up the waves of the sea. Rising up to the sky, sinking down to the depths, their courage melting away in anguish, they reeled and staggered like a drunkard, and all their skill was useless. Then they cried out to the LORD in their trouble, and he brought them out of their distress. He stilled the storm to a whisper, and the waves of the sea were hushed. They rejoiced when the waves grew quiet. Then he guided them to the harbor they longed for. Let them give thanks to the LORD for his faithful love and his wondrous works for all humanity. Let them exalt him in the assembly of the people and praise him in the council of the elders. He turns rivers into desert, springs into thirsty ground, and fruitful land into salty wasteland, because of the wickedness of its inhabitants. He turns a desert into a pool, dry land into springs. He causes the hungry to settle there, and they establish a city where they can live. They sow fields and plant vineyards that yield a fruitful harvest. He blesses them, and they multiply greatly; he does not let their livestock decrease. When they are diminished and are humbled by cruel oppression and sorrow, he pours contempt on nobles and makes them wander in a trackless wasteland. But he lifts the needy out of their suffering and makes their families multiply like flocks. The upright see it and rejoice, and all injustice shuts its mouth. Let whoever is wise pay attention to these things and consider the LORD’s acts of faithful love.
 
 ### [22.6 I Exalt Thee](1689-22-6-i-exalt-thee.md)
 
 Neither prayer nor any other part of religious worship, is now under the gospel, tied unto, or made more acceptable by any place in which it is performed, or towards which it is directed; but God is to be worshipped everywhere in spirit and in truth; as in private families daily, and in secret each one by himself; so more solemnly in the public assemblies, which are not carelessly nor wilfully to be neglected or forsaken, when God by his word or providence calleth thereunto.
 
-John 4:21; Malachi 1:11; 1 Timothy 2:8; Acts 10:2; Matthew 6:11; Psalms 55:17; Matthew 6:6; Hebrews 10:25; Acts 2:42
+>John 4:21 (CSB) Jesus told her, “Believe me, woman, an hour is coming when you will worship the Father neither on this mountain nor in Jerusalem.
+
+>Malachi 1:11 (CSB) “My name will be great among the nations, from the rising of the sun to its setting. Incense and pure offerings will be presented in my name in every place because my name will be great among the nations,” says the LORD of Armies.
+
+>1 Timothy 2:8 (CSB) Therefore, I want the men in every place to pray, lifting up holy hands without anger or argument.
+
+>Acts 10:2 (CSB) He was a devout man and feared God along with his whole household. He did many charitable deeds for the Jewish people and always prayed to God.
+
+>Matthew 6:11 (CSB) Give us today our daily bread.
+
+>Psalm 55:17 (CSB) I complain and groan morning, noon, and night, and he hears my voice.
+
+>Matthew 6:6 (CSB) But when you pray, go into your private room, shut your door, and pray to your Father who is in secret. And your Father who sees in secret will reward you.
+
+>Hebrews 10:25 (CSB) not neglecting to gather together, as some are in the habit of doing, but encouraging each other, and all the more as you see the day approaching.
+
+>Acts 2:42 (CSB) They devoted themselves to the apostles’ teaching, to the fellowship, to the breaking of bread, and to prayer.
 
 ### [22.7 Great Is The Lord](1689-22-7-great-is-the-lord.md)
 
@@ -1764,13 +1903,23 @@ As it is the law of nature, that in general a proportion of time, by God's appoi
 
 world to the resurrection of Christ was the last day of the week, and from the resurrection of Christ was changed into the first day of the week, which is called the Lord's day: and is to be continued to the end of the world as the Christian Sabbath, the observation of the last day of the week being abolished.
 
-Exodus 20:8; 1 Corinthians 16:1,-2; Acts 20:7; Revelation 1:10
+>Exodus 20:8 (CSB) Remember the Sabbath day, to keep it holy:
+
+>1 Corinthians 16:1–2 (CSB) Now about the collection for the saints: Do the same as I instructed the Galatian churches. On the first day of the week, each of you is to set something aside and save in keeping with how he is prospering, so that no collections will need to be made when I come.
+
+>Acts 20:7 (CSB) On the first day of the week, we assembled to break bread. Paul spoke to them, and since he was about to depart the next day, he kept on talking until midnight.
+
+>Revelation 1:10 (CSB) I was in the Spirit on the Lord’s day, and I heard a loud voice behind me like a trumpet
 
 ### [22.8 Oh Lord, You're Beautiful](1689-22-8-oh-lord,-you're-beautiful.md)
 
 The sabbath is then kept holy unto the Lord, when men, after a due preparing of their hearts, and ordering their common affairs aforehand, do not only observe an holy rest all day, from their own works, words and thoughts, about their worldly employment and recreations, but are also taken up the whole time in the public and private exercises of his worship, and in the duties of necessity and mercy.
 
-Isaiah 58:13; Nehemiah 13:15-22; Matthew 12:1-13
+>Isaiah 58:13 (CSB) “If you keep from desecrating the Sabbath, from doing whatever you want on my holy day; if you call the Sabbath a delight, and the holy day of the LORD honorable; if you honor it, not going your own ways, seeking your own pleasure, or talking business;
+
+>Nehemiah 13:15–22 (CSB) At that time I saw people in Judah treading winepresses on the Sabbath. They were also bringing in stores of grain and loading them on donkeys, along with wine, grapes, and figs. All kinds of goods were being brought to Jerusalem on the Sabbath day. So I warned them against selling food on that day. The Tyrians living there were importing fish and all kinds of merchandise and selling them on the Sabbath to the people of Judah in Jerusalem. I rebuked the nobles of Judah and said to them, “What is this evil you are doing—profaning the Sabbath day? Didn’t your ancestors do the same, so that our God brought all this disaster on us and on this city? And now you are rekindling his anger against Israel by profaning the Sabbath!” When shadows began to fall on the city gates of Jerusalem just before the Sabbath, I gave orders that the city gates be closed and not opened until after the Sabbath. I posted some of my men at the gates, so that no goods could enter during the Sabbath day. Once or twice the merchants and those who sell all kinds of goods camped outside Jerusalem, but I warned them, “Why are you camping in front of the wall? If you do it again, I’ll use force against you.” After that they did not come again on the Sabbath. Then I instructed the Levites to purify themselves and guard the city gates in order to keep the Sabbath day holy. Remember me for this also, my God, and look on me with compassion according to the abundance of your faithful love.
+
+>Matthew 12:1–13 (CSB) At that time Jesus passed through the grainfields on the Sabbath. His disciples were hungry and began to pick and eat some heads of grain. When the Pharisees saw this, they said to him, “See, your disciples are doing what is not lawful to do on the Sabbath.” He said to them, “Haven’t you read what David did when he and those who were with him were hungry: how he entered the house of God, and they ate the bread of the Presence—which is not lawful for him or for those with him to eat, but only for the priests? Or haven’t you read in the law that on Sabbath days the priests in the temple violate the Sabbath and are innocent? I tell you that something greater than the temple is here. If you had known what this means, I desire mercy and not sacrifice, you would not have condemned the innocent. For the Son of Man is Lord of the Sabbath.” Moving on from there, he entered their synagogue. There he saw a man who had a shriveled hand, and in order to accuse him they asked him, “Is it lawful to heal on the Sabbath?” He replied to them, “Who among you, if he had a sheep that fell into a pit on the Sabbath, wouldn’t take hold of it and lift it out? A person is worth far more than a sheep; so it is lawful to do what is good on the Sabbath.” Then he told the man, “Stretch out your hand.” So he stretched it out, and it was restored, as good as the other.
 
 ## [Chapter XXIII. Of Lawful Oaths and Vows](1689-23-0-index.md)
 
@@ -1778,31 +1927,56 @@ Isaiah 58:13; Nehemiah 13:15-22; Matthew 12:1-13
 
 A lawful oath is a part of religious worship, wherein the person swearing in truth, righteousness, and judgement, solemnly calleth God to witness what he sweareth, and to judge him according to the truth or falseness thereof.
 
-Exodus 20:7; Deuteronomy 10:20; Jeremiah 4:2; 2 Chronicles 6:22-23
+>Exodus 20:7 (CSB) Do not misuse the name of the LORD your God, because the LORD will not leave anyone unpunished who misuses his name.
+
+>Deuteronomy 10:20 (CSB) You are to fear the LORD your God and worship him. Remain faithful to him and take oaths in his name.
+
+>Jeremiah 4:2 (CSB) then you can swear, “As the LORD lives,” in truth, justice, and righteousness, and then the nations will be blessed by him and will boast in him.
+
+>2 Chronicles 6:22–23 (CSB) If a man sins against his neighbor and is forced to take an oath and he comes to take an oath before your altar in this temple, may you hear in heaven and act. May you judge your servants, condemning the wicked man by bringing what he has done on his own head and providing justice for the righteous by rewarding him according to his righteousness.
 
 ### [23.2 Oath: The Name Of God](1689-23-2-oath:-the-name-of-god.md)
 
 The name of God only is that by which men ought to swear; and therein it is to be used, with all holy fear and reverence; therefore to swear vainly or rashly by that glorious and dreadful name, or to swear at all by any other thing, is sinful, and to be abhorred; yet as in matter of weight and moment, for confirmation of truth, and ending all strife, an oath is warranted by the word of God; so a lawful oath being imposed by lawful authority in such matters, ought to be taken.
 
-Matthew 5:34-37; James 5:12; Hebrews 6:16; 2 Corinthians 1:23; Nehemiah 13:25
+
+>Matthew 5:34–37 (CSB) But I tell you, don’t take an oath at all: either by heaven, because it is God’s throne; or by the earth, because it is his footstool; or by Jerusalem, because it is the city of the great King. Do not swear by your head, because you cannot make a single hair white or black. But let your ‘yes’ mean ‘yes,’ and your ‘no’ mean ‘no.’ Anything more than this is from the evil one.
+
+>James 5:12 (CSB) Above all, my brothers and sisters, do not swear, either by heaven or by earth or with any other oath. But let your “yes” mean “yes,” and your “no” mean “no,” so that you won’t fall under judgment.
+
+>Hebrews 6:16 (CSB) For people swear by something greater than themselves, and for them a confirming oath ends every dispute.
+
+>2 Corinthians 1:23 (CSB) I call on God as a witness, on my life, that it was to spare you that I did not come to Corinth.
+
+>Nehemiah 13:25 (CSB) I rebuked them, cursed them, beat some of their men, and pulled out their hair. I forced them to take an oath before God and said, “You must not give your daughters in marriage to their sons or take their daughters as wives for your sons or yourselves!
 
 ### [23.3 Oath: The Weight of Glory](1689-23-3-oath:-the-weight-of-glory.md)
 
 Whosoever taketh an oath warranted by the Word of God, ought duly to consider the weightiness of so solemn an act, and therein to avouch nothing but what he knoweth to be truth; for that by rash, false, and vain oaths, the Lord is provoked, and for them this land mourns.
 
-Leviticus 19:12; Jeremiah 23:10
+>Leviticus 19:12 (CSB) Do not swear falsely by my name, profaning the name of your God; I am the LORD.
+
+>Jeremiah 23:10 (CSB) For the land is full of adulterers; the land mourns because of the curse, and the grazing lands in the wilderness have dried up. Their way of life has become evil, and their power is not rightly used
 
 ### [23.4 Oath: The Clarity of God](1689-23-4-oath:-the-clarity-of-god.md)
 
 An oath is to be taken in the plain and common sense of the words, without equivocation or mental reservation.
 
-Psalms 24:4
+>Psalm 24:4 (CSB) The one who has clean hands and a pure heart, who has not appealed to what is false, and who has not sworn deceitfully.
 
 ### [23.5 Vow: To God Alone](1689-23-5-vow:-to-god-alone.md)
 
 A vow, which is not to be made to any creature, but to God alone, is to be made and performed with all religious care and faithfulness; but popish monastical vows of perpetual single life, professed poverty, and regular obedience, are so far from being degrees of higher perfection, that they are superstitious and sinful snares, in which no Christian may entangle himself.
 
-Psalms 76:11; Genesis 28:20-22; 1 Corinthians 7:2-9; Ephesians 4:28; Matthew 19:11
+>Psalm 76:11 (CSB) Make and keep your vows to the LORD your God; let all who are around him bring tribute to the awe-inspiring one.
+
+>Genesis 28:20–22 (CSB) Then Jacob made a vow: “If God will be with me and watch over me during this journey I’m making, if he provides me with food to eat and clothing to wear, and if I return safely to my father’s family, then the LORD will be my God. This stone that I have set up as a marker will be God’s house, and I will give to you a tenth of all that you give me.”
+
+>1 Corinthians 7:2–9 (CSB) But because sexual immorality is so common, each man should have sexual relations with his own wife, and each woman should have sexual relations with her own husband. A husband should fulfill his marital duty to his wife, and likewise a wife to her husband. A wife does not have the right over her own body, but her husband does. In the same way, a husband does not have the right over his own body, but his wife does. Do not deprive one another—except when you agree for a time, to devote yourselves to prayer. Then come together again; otherwise, Satan may tempt you because of your lack of self-control. I say this as a concession, not as a command. I wish that all people were as I am. But each has his own gift from God, one person has this gift, another has that. I say to the unmarried and to widows: It is good for them if they remain as I am. But if they do not have self-control, they should marry, since it is better to marry than to burn with desire.
+
+>Ephesians 4:28 (CSB) Let the thief no longer steal. Instead, he is to do honest work with his own hands, so that he has something to share with anyone in need.
+
+>Matthew 19:11 (CSB) He responded, “Not everyone can accept this saying, but only those to whom it has been given.
 
 ## [Chapter XXIV. Of the Civil Magistrate](1689-24-0-index.md)
 
@@ -1810,19 +1984,27 @@ Psalms 76:11; Genesis 28:20-22; 1 Corinthians 7:2-9; Ephesians 4:28; Matthew 19:
 
 God, the supreme Lord and King of all the world, hath ordained civil magistrates to be under him, over the people, for his own glory and the public good; and to this end hath armed them with the power of the sword, for defence and encouragement of them that do good, and for the punishment of evil doers.
 
-Romans 13:1-4
+>Romans 13:1–4 (CSB) Let everyone submit to the governing authorities, since there is no authority except from God, and the authorities that exist are instituted by God. So then, the one who resists the authority is opposing God’s command, and those who oppose it will bring judgment on themselves. For rulers are not a terror to good conduct, but to bad. Do you want to be unafraid of the one in authority? Do what is good, and you will have its approval. For it is God’s servant for your good. But if you do wrong, be afraid, because it does not carry the sword for no reason. For it is God’s servant, an avenger that brings wrath on the one who does wrong.
 
 ### [24.2 Of the Civil Magistrate: Lord of Lords](1689-24-2-of-the-civil-magistrate:-lord-of-lords.md)
 
 It is lawful for Christians to accept and execute the office of a magistrate when called there unto; in the management whereof, as they ought especially to maintain justice and peace, according to the wholesome laws of each kingdom and commonwealth, so for that end they may lawfully now, under the New Testament wage war upon just and necessary occasions.
 
-2 Samuel 23:3; Psalms 82:3-4; Luke 3:14
+>2 Samuel 23:3 (CSB) The God of Israel spoke; the Rock of Israel said to me, “The one who rules the people with justice, who rules in the fear of God,
+
+>Psalm 82:3–4 (CSB) Provide justice for the needy and the fatherless; uphold the rights of the oppressed and the destitute. Rescue the poor and needy; save them from the power of the wicked.”
+
+>Luke 3:14 (CSB) Some soldiers also questioned him, “What should we do?” He said to them, “Don’t take money from anyone by force or false accusation, and be satisfied with your wages.”
 
 ### [24.3 Of the Civil Magistrate: The Almighty God](1689-24-3-of-the-civil-magistrate:-the-almighty-god.md)
 
 Civil magistrates being set up by God for the ends aforesaid; subjection, in all lawful things commanded by them, ought to be yielded by us in the Lord, not only for wrath, but for conscience sake; and we ought to make supplications and prayers for kings and all that are in authority, that under them we may live a quiet and peaceable life, in all godliness and honesty.
 
-Romans 13:5-7; 1 Peter 2:17; 1 Timothy 2:1-2
+>Romans 13:5–7 (CSB) Therefore, you must submit, not only because of wrath but also because of your conscience. And for this reason you pay taxes, since the authorities are God’s servants, continually attending to these tasks. Pay your obligations to everyone: taxes to those you owe taxes, tolls to those you owe tolls, respect to those you owe respect, and honor to those you owe honor.
+
+>1 Peter 2:17 (CSB) Honor everyone. Love the brothers and sisters. Fear God. Honor the emperor.
+
+>1 Timothy 2:1–2 (CSB) First of all, then, I urge that petitions, prayers, intercessions, and thanksgivings be made for everyone, for kings and all those who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity.
 
 ## [Chapter XXV. Of Marriage](1689-25-0-index.md)
 
@@ -1830,25 +2012,43 @@ Romans 13:5-7; 1 Peter 2:17; 1 Timothy 2:1-2
 
 Marriage is to be between one man and one woman; neither is it lawful for any man to have more than one wife, nor for any woman to have more than one husband at the same time.
 
-Genesis 2:24; Malachi 2:15; Matthew 19:5,6
+>Genesis 2:24 (CSB) This is why a man leaves his father and mother and bonds with his wife, and they become one flesh.
+
+>Malachi 2:15 (CSB) Didn’t God make them one and give them a portion of spirit? What is the one seeking? Godly offspring. So watch yourselves carefully, so that no one acts treacherously against the wife of his youth.
+
+>Matthew 19:5–6 (CSB) and he also said, ‘For this reason a man will leave his father and mother and be joined to his wife, and the two will become one flesh’? So they are no longer two, but one flesh. Therefore, what God has joined together, let no one separate.”
 
 ### [25.2 From the Bridegroom: Goodness for Husband & Wife](1689-25-2-from-the-bridegroom:-goodness-for-husband-&-wife.md)
 
 Marriage was ordained for the mutual help of husband and wife, for the increase of mankind with a legitimate issue, and the preventing of uncleanness.
 
-Genesis 2:18; Genesis 1:28; 1 Corinthians 7:2-9
+>Genesis 2:18 (CSB) Then the LORD God said, “It is not good for the man to be alone. I will make a helper corresponding to him.”
+
+>Genesis 1:28 (CSB) God blessed them, and God said to them, “Be fruitful, multiply, fill the earth, and subdue it. Rule the fish of the sea, the birds of the sky, and every creature that crawls on the earth.”
+
+>1 Corinthians 7:2–9 (CSB) But because sexual immorality is so common, each man should have sexual relations with his own wife, and each woman should have sexual relations with her own husband. A husband should fulfill his marital duty to his wife, and likewise a wife to her husband. A wife does not have the right over her own body, but her husband does. In the same way, a husband does not have the right over his own body, but his wife does. Do not deprive one another—except when you agree for a time, to devote yourselves to prayer. Then come together again; otherwise, Satan may tempt you because of your lack of self-control. I say this as a concession, not as a command. I wish that all people were as I am. But each has his own gift from God, one person has this gift, another has that. I say to the unmarried and to widows: It is good for them if they remain as I am. But if they do not have self-control, they should marry, since it is better to marry than to burn with desire.
 
 ### [25.3 From the Bridegroom: Equally Yoked Between Husband & Wife](1689-25-3-from-the-bridegroom:-equally-yoked-between-husband-&-wife.md)
 
 It is lawful for all sorts of people to marry, who are able with judgment to give their consent; yet it is the duty of Christians to marry in the Lord; and therefore such as profess the true religion, should not marry with infidels, or idolaters; neither should such as are godly, be unequally yoked, by marrying with such as are wicked in their life, or maintain damnable heresy.
 
-Hebrews 13:4; 1 Timothy 4:3; 1 Corinthians 7:39; Nehemiah 13:25-27
+>Hebrews 13:4 (CSB) Marriage is to be honored by all and the marriage bed kept undefiled, because God will judge the sexually immoral and adulterers.
+
+>1 Timothy 4:3 (CSB) They forbid marriage and demand abstinence from foods that God created to be received with gratitude by those who believe and know the truth.
+
+>1 Corinthians 7:39 (CSB) A wife is bound as long as her husband is living. But if her husband dies, she is free to be married to anyone she wants—only in the Lord.
+
+>Nehemiah 13:25–27 (CSB) I rebuked them, cursed them, beat some of their men, and pulled out their hair. I forced them to take an oath before God and said, “You must not give your daughters in marriage to their sons or take their daughters as wives for your sons or yourselves! Didn’t King Solomon of Israel sin in matters like this? There was not a king like him among many nations. He was loved by his God, and God made him king over all Israel, yet foreign women drew him into sin. Why then should we hear about you doing all this terrible evil and acting unfaithfully against our God by marrying foreign women?”
 
 ### [25.4 From the Bridegroom: Marriage is of Man & Wife](1689-25-4-from-the-bridegroom:-marriage-is-of-man-&-wife.md)
 
 Marriage ought not to be within the degrees of consanguinity or affinity, forbidden in the Word; nor can such incestuous marriages ever be made lawful, by any law of man or consent of parties, so as those persons may live together as man and wife.
 
-Leviticus 18; Mark 6:18; 1 Corinthians 5:1
+>Leviticus 18 (CSB) The LORD spoke to Moses: “Speak to the Israelites and tell them: I am the LORD your God. Do not follow the practices of the land of Egypt, where you used to live, or follow the practices of the land of Canaan, where I am bringing you. You must not follow their customs. You are to practice my ordinances and you are to keep my statutes by following them; I am the LORD your God. Keep my statutes and ordinances; a person will live if he does them. I am the LORD. “You are not to come near any close relative for sexual intercourse; I am the LORD. You are not to violate the intimacy that belongs to your father and mother. She is your mother; you must not have sexual intercourse with her. You are not to have sex with your father’s wife; she is your father’s family. You are not to have sexual intercourse with your sister, either your father’s daughter or your mother’s, whether born at home or born elsewhere. You are not to have sex with her. You are not to have sexual intercourse with your son’s daughter or your daughter’s daughter, for they are your family. You are not to have sexual intercourse with your father’s wife’s daughter, who is adopted by your father; she is your sister. You are not to have sexual intercourse with your father’s sister; she is your father’s close relative. You are not to have sexual intercourse with your mother’s sister, for she is your mother’s close relative. You are not to violate the intimacy that belongs to your father’s brother by approaching his wife to have sexual intercourse; she is your aunt. You are not to have sexual intercourse with your daughter-in-law. She is your son’s wife; you are not to have sex with her. You are not to have sexual intercourse with your brother’s wife; she is your brother’s family. You are not to have sexual intercourse with a woman and her daughter. You are not to marry her son’s daughter or her daughter’s daughter and have sex with her. They are close relatives; it is depraved. You are not to marry a woman as a rival to her sister and have sexual intercourse with her during her sister’s lifetime. “You are not to approach a woman during her menstrual impurity to have sexual intercourse with her. You are not to have sexual intercourse with your neighbor’s wife, defiling yourself with her. “You are not to sacrifice any of your children in the fire to Molech. Do not profane the name of your God; I am the LORD. You are not to sleep with a man as with a woman; it is detestable. You are not to have sexual intercourse with any animal, defiling yourself with it; a woman is not to present herself to an animal to mate with it; it is a perversion. “Do not defile yourselves by any of these practices, for the nations I am driving out before you have defiled themselves by all these things. The land has become defiled, so I am punishing it for its iniquity, and the land will vomit out its inhabitants. But you are to keep my statutes and ordinances. You must not commit any of these detestable acts—not the native or the alien who resides among you. For the people who were in the land prior to you have committed all these detestable acts, and the land has become defiled. If you defile the land, it will vomit you out as it has vomited out the nations that were before you. Any person who does any of these detestable practices is to be cut off from his people. You must keep my instruction to not do any of the detestable customs that were practiced before you, so that you do not defile yourselves by them; I am the LORD your God.”
+
+>Mark 6:18 (CSB) John had been telling Herod, “It is not lawful for you to have your brother’s wife.”
+
+>1 Corinthians 5:1 (CSB) It is actually reported that there is sexual immorality among you, and the kind of sexual immorality that is not even tolerated among the Gentiles—a man is sleeping with his father’s wife.
 
 ## [Chapter XXVI. Of the Church](1689-26-0-index.md)
 
@@ -1856,42 +2056,89 @@ Leviticus 18; Mark 6:18; 1 Corinthians 5:1
 
 The catholic or universal church, which (with respect to the internal work of the Spirit and truth of grace) may be called invisible, consists of the whole number of the elect, that have been, are, or shall be gathered into one, under Christ, the head thereof; and is the spouse, the body, the fulness of him that filleth all in all.
 
-Hebrews 12:23; Colossians 1:18; Ephesians 1:10-23; Ephesians 5:23-32
+>Hebrews 12:23 (CSB) to the assembly of the firstborn whose names have been written in heaven, to a Judge, who is God of all, to the spirits of righteous people made perfect,
+
+>Colossians 1:18 (CSB) He is also the head of the body, the church; he is the beginning, the firstborn from the dead, so that he might come to have first place in everything.
+
+>Ephesians 1:10–23 (CSB) as a plan for the right time—to bring everything together in Christ, both things in heaven and things on earth in him. In him we have also received an inheritance, because we were predestined according to the plan of the one who works out everything in agreement with the purpose of his will, so that we who had already put our hope in Christ might bring praise to his glory. In him you also were sealed with the promised Holy Spirit when you heard the word of truth, the gospel of your salvation, and when you believed. The Holy Spirit is the down payment of our inheritance, until the redemption of the possession, to the praise of his glory. This is why, since I heard about your faith in the Lord Jesus and your love for all the saints, I never stop giving thanks for you as I remember you in my prayers. I pray that the God of our Lord Jesus Christ, the glorious Father, would give you the Spirit of wisdom and revelation in the knowledge of him. I pray that the eyes of your heart may be enlightened so that you may know what is the hope of his calling, what is the wealth of his glorious inheritance in the saints, and what is the immeasurable greatness of his power toward us who believe, according to the mighty working of his strength. He exercised this power in Christ by raising him from the dead and seating him at his right hand in the heavens—far above every ruler and authority, power and dominion, and every title given, not only in this age but also in the one to come. And he subjected everything under his feet and appointed him as head over everything for the church, which is his body, the fullness of the one who fills all things in every way.
+
+>Ephesians 5:23–32 (CSB) because the husband is the head of the wife as Christ is the head of the church. He is the Savior of the body. Now as the church submits to Christ, so also wives are to submit to their husbands in everything. Husbands, love your wives, just as Christ loved the church and gave himself for her to make her holy, cleansing her with the washing of water by the word. He did this to present the church to himself in splendor, without spot or wrinkle or anything like that, but holy and blameless. In the same way, husbands are to love their wives as their own bodies. He who loves his wife loves himself. For no one ever hates his own flesh but provides and cares for it, just as Christ does for the church, since we are members of his body. For this reason a man will leave his father and mother and be joined to his wife, and the two will become one flesh. This mystery is profound, but I am talking about Christ and the church.
 
 ### [26.2 Of The Bride: Those of the Whole World](1689-26-2-of-the-bride:-those-of-the-whole-world.md)
 
-All persons throughout the world, professing the faith of the gospel, and obedience unto God by Christ according unto it, not destroying their own profession by any errors everting the foundation, or unholiness of conversation, are and may be called visible saints; and of such ought all particular congregations to be constituted. ( 1 Corinthians 1:2; Acts 11:26; Romans 1:7; Ephesians 1:20-22
+All persons throughout the world, professing the faith of the gospel, and obedience unto God by Christ according unto it, not destroying their own profession by any errors everting the foundation, or unholiness of conversation, are and may be called visible saints; and of such ought all particular congregations to be constituted.
+
+>1 Corinthians 1:2 (CSB) To the church of God at Corinth, to those sanctified in Christ Jesus, called as saints, with all those in every place who call on the name of Jesus Christ our Lord—both their Lord and ours.
+
+>Acts 11:26 (CSB) and when he found him he brought him to Antioch. For a whole year they met with the church and taught large numbers. The disciples were first called Christians at Antioch.
+
+>Romans 1:7 (CSB) To all who are in Rome, loved by God, called as saints. Grace to you and peace from God our Father and the Lord Jesus Christ.
+
+>Ephesians 1:20–22 (CSB) He exercised this power in Christ by raising him from the dead and seating him at his right hand in the heavens—far above every ruler and authority, power and dominion, and every title given, not only in this age but also in the one to come. And he subjected everything under his feet and appointed him as head over everything for the church,
 
 ### [26.3 Of The Bride: The Shepherd Knows His Sheep](1689-26-3-of-the-bride:-the-shepherd-knows-his-sheep.md)
 
 The purest churches under heaven are subject to mixture and error; and some have so degenerated as to become no churches of Christ, but synagogues of Satan; nevertheless Christ always hath had, and ever shall have a kingdom in this world, to the end thereof, of such as believe in him, and make profession of his name.
 
-1 Corinthians 5; Revelation 2; Revelation 3; Revelation 18:2; 2 Thessalonians 2:11-12; Matthew 16:18; Psalms
-72:17; Psalm 102:28; Revelation 12:17
+>1 Corinthians 5 (CSB) It is actually reported that there is sexual immorality among you, and the kind of sexual immorality that is not even tolerated among the Gentiles—a man is sleeping with his father’s wife. And you are arrogant! Shouldn’t you be filled with grief and remove from your congregation the one who did this? Even though I am absent in the body, I am present in spirit. As one who is present with you in this way, I have already pronounced judgment on the one who has been doing such a thing. When you are assembled in the name of our Lord Jesus, and I am with you in spirit, with the power of our Lord Jesus, hand that one over to Satan for the destruction of the flesh, so that his spirit may be saved in the day of the Lord. Your boasting is not good. Don’t you know that a little leaven leavens the whole batch of dough? Clean out the old leaven so that you may be a new unleavened batch, as indeed you are. For Christ our Passover lamb has been sacrificed. Therefore, let us observe the feast, not with old leaven or with the leaven of malice and evil, but with the unleavened bread of sincerity and truth. I wrote to you in a letter not to associate with sexually immoral people. I did not mean the immoral people of this world or the greedy and swindlers or idolaters; otherwise you would have to leave the world. But actually, I wrote you not to associate with anyone who claims to be a brother or sister and is sexually immoral or greedy, an idolater or verbally abusive, a drunkard or a swindler. Do not even eat with such a person. For what business is it of mine to judge outsiders? Don’t you judge those who are inside? God judges outsiders. Remove the evil person from among you.
+
+>Revelation 2 (CSB) “Write to the angel of the church in Ephesus: Thus says the one who holds the seven stars in his right hand and who walks among the seven golden lampstands: I know your works, your labor, and your endurance, and that you cannot tolerate evil people. You have tested those who call themselves apostles and are not, and you have found them to be liars. I know that you have persevered and endured hardships for the sake of my name, and you have not grown weary. But I have this against you: You have abandoned the love you had at first. Remember then how far you have fallen; repent, and do the works you did at first. Otherwise, I will come to you and remove your lampstand from its place, unless you repent. Yet you do have this: You hate the practices of the Nicolaitans, which I also hate. “Let anyone who has ears to hear listen to what the Spirit says to the churches. To the one who conquers, I will give the right to eat from the tree of life, which is in the paradise of God. “Write to the angel of the church in Smyrna: Thus says the First and the Last, the one who was dead and came to life: I know your affliction and poverty, but you are rich. I know the slander of those who say they are Jews and are not, but are a synagogue of Satan. Don’t be afraid of what you are about to suffer. Look, the devil is about to throw some of you into prison to test you, and you will experience affliction for ten days. Be faithful to the point of death, and I will give you the crown of life. “Let anyone who has ears to hear listen to what the Spirit says to the churches. The one who conquers will never be harmed by the second death. “Write to the angel of the church in Pergamum: Thus says the one who has the sharp, double-edged sword: I know where you live—where Satan’s throne is. Yet you are holding on to my name and did not deny your faith in me, even in the days of Antipas, my faithful witness who was put to death among you, where Satan lives. But I have a few things against you. You have some there who hold to the teaching of Balaam, who taught Balak to place a stumbling block in front of the Israelites: to eat meat sacrificed to idols and to commit sexual immorality. In the same way, you also have those who hold to the teaching of the Nicolaitans. So repent! Otherwise, I will come to you quickly and fight against them with the sword of my mouth. “Let anyone who has ears to hear listen to what the Spirit says to the churches. To the one who conquers, I will give some of the hidden manna. I will also give him a white stone, and on the stone a new name is inscribed that no one knows except the one who receives it. “Write to the angel of the church in Thyatira: Thus says the Son of God, the one whose eyes are like a fiery flame and whose feet are like fine bronze: I know your works—your love, faithfulness, service, and endurance. I know that your last works are greater than the first. But I have this against you: You tolerate the woman Jezebel, who calls herself a prophetess and teaches and deceives my servants to commit sexual immorality and to eat meat sacrificed to idols. I gave her time to repent, but she does not want to repent of her sexual immorality. Look, I will throw her into a sickbed and those who commit adultery with her into great affliction. Unless they repent of her works, I will strike her children dead. Then all the churches will know that I am the one who examines minds and hearts, and I will give to each of you according to your works. I say to the rest of you in Thyatira, who do not hold this teaching, who haven’t known “the so-called secrets of Satan”—as they say—I am not putting any other burden on you. Only hold on to what you have until I come. The one who conquers and who keeps my works to the end: I will give him authority over the nations— and he will rule them with an iron scepter; he will shatter them like pottery— just as I have received this from my Father. I will also give him the morning star. “Let anyone who has ears to hear listen to what the Spirit says to the churches.
+
+>Revelation 3 (CSB) “Write to the angel of the church in Sardis: Thus says the one who has the seven spirits of God and the seven stars: I know your works; you have a reputation for being alive, but you are dead. Be alert and strengthen what remains, which is about to die, for I have not found your works complete before my God. Remember, then, what you have received and heard; keep it, and repent. If you are not alert, I will come like a thief, and you have no idea at what hour I will come upon you. But you have a few people in Sardis who have not defiled their clothes, and they will walk with me in white, because they are worthy. “In the same way, the one who conquers will be dressed in white clothes, and I will never erase his name from the book of life but will acknowledge his name before my Father and before his angels. “Let anyone who has ears to hear listen to what the Spirit says to the churches. “Write to the angel of the church in Philadelphia: Thus says the Holy One, the true one, the one who has the key of David, who opens and no one will close, and who closes and no one opens: I know your works. Look, I have placed before you an open door that no one can close because you have but little power; yet you have kept my word and have not denied my name. Note this: I will make those from the synagogue of Satan, who claim to be Jews and are not, but are lying—I will make them come and bow down at your feet, and they will know that I have loved you. Because you have kept my command to endure, I will also keep you from the hour of testing that is going to come on the whole world to test those who live on the earth. I am coming soon. Hold on to what you have, so that no one takes your crown. “The one who conquers I will make a pillar in the temple of my God, and he will never go out again. I will write on him the name of my God and the name of the city of my God—the new Jerusalem, which comes down out of heaven from my God—and my new name. “Let anyone who has ears to hear listen to what the Spirit says to the churches. “Write to the angel of the church in Laodicea: Thus says the Amen, the faithful and true witness, the originator of God’s creation: I know your works, that you are neither cold nor hot. I wish that you were cold or hot. So, because you are lukewarm, and neither hot nor cold, I am going to vomit you out of my mouth. For you say, ‘I’m rich; I have become wealthy and need nothing,’ and you don’t realize that you are wretched, pitiful, poor, blind, and naked. I advise you to buy from me gold refined in the fire so that you may be rich, white clothes so that you may be dressed and your shameful nakedness not be exposed, and ointment to spread on your eyes so that you may see. As many as I love, I rebuke and discipline. So be zealous and repent. See! I stand at the door and knock. If anyone hears my voice and opens the door, I will come in to him and eat with him, and he with me. “To the one who conquers I will give the right to sit with me on my throne, just as I also conquered and sat down with my Father on his throne. “Let anyone who has ears to hear listen to what the Spirit says to the churches.”
+
+>Revelation 18:2 (CSB) He called out in a mighty voice: It has fallen, Babylon the Great has fallen! She has become a home for demons, a haunt for every unclean spirit, a haunt for every unclean bird, and a haunt for every unclean and despicable beast.
+
+>2 Thessalonians 2:11–12 (CSB) For this reason God sends them a strong delusion so that they will believe the lie, so that all will be condemned—those who did not believe the truth but delighted in unrighteousness.
+
+>Matthew 16:18 (CSB) And I also say to you that you are Peter, and on this rock I will build my church, and the gates of Hades will not overpower it.
+
+>Psalm 72:17 (CSB) May his name endure forever; as long as the sun shines, may his fame increase. May all nations be blessed by him and call him blessed.
+
+>Psalm 102:28 (CSB) Your servants’ children will dwell securely, and their offspring will be established before you.”
+
+>Revelation 12:17 (CSB) So the dragon was furious with the woman and went off to wage war against the rest of her offspring—those who keep the commands of God and hold firmly to the testimony about Jesus.
 
 ### [26.4 Of The Bride: The Head Pastor](1689-26-4-of-the-bride:-the-head-pastor.md)
 
 The Lord Jesus Christ is the Head of the church, in whom, by the appointment of the Father, all power for the calling, institution, order or government of the church, is invested in a supreme and sovereign manner; neither can the Pope of Rome in any sense be head thereof, but is that antichrist, that man of sin, and son of perdition, that exalteth himself in the church against Christ, and all that is called God; whom the Lord shall destroy with the brightness of his coming.
 
-Colossians 1:18; Matthew 28:18-20; Ephesians 4:11-12; 2 Thessalonians 2:2-9
+>Colossians 1:18 (CSB) He is also the head of the body, the church; he is the beginning, the firstborn from the dead, so that he might come to have first place in everything.
+
+>Matthew 28:18–20 (CSB) Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”
+
+>Ephesians 4:11–12 (CSB) And he himself gave some to be apostles, some prophets, some evangelists, some pastors and teachers, to equip the saints for the work of ministry, to build up the body of Christ,
+
+>2 Thessalonians 2:2–9 (CSB) not to be easily upset or troubled, either by a prophecy or by a message or by a letter supposedly from us, alleging that the day of the Lord has come. Don’t let anyone deceive you in any way. For that day will not come unless the apostasy comes first and the man of lawlessness is revealed, the man doomed to destruction. He opposes and exalts himself above every so-called god or object of worship, so that he sits in God’s temple, proclaiming that he himself is God. Don’t you remember that when I was still with you I used to tell you about this? And you know what currently restrains him, so that he will be revealed in his time. For the mystery of lawlessness is already at work, but the one now restraining will do so until he is out of the way, and then the lawless one will be revealed. The Lord Jesus will destroy him with the breath of his mouth and will bring him to nothing at the appearance of his coming. The coming of the lawless one is based on Satan’s working, with every kind of miracle, both signs and wonders serving the lie,
 
 ### [26.5 Of The Bride: The Calling of His People](1689-26-5-of-the-bride:-the-calling-of-his-people.md)
 
 In the execution of this power wherewith he is so intrusted, the Lord Jesus calleth out of the world unto himself, through the ministry of his word, by his Spirit, those that are given unto him by his Father, that they may walk before him in all the ways of obedience, which he prescribeth to them in his word. Those thus called, he commandeth to walk together in particular societies, or churches, for their mutual edification, and the due performance of that public worship, which he requireth of them in the world.
 
-John 10:16; John 12:32; Matthew 28:20; Matthew 18:15-20
+>John 10:16 (CSB) But I have other sheep that are not from this sheep pen; I must bring them also, and they will listen to my voice. Then there will be one flock, one shepherd.
+
+>John 12:32 (CSB) As for me, if I am lifted up from the earth I will draw all people to myself.”
+
+>Matthew 28:20 (CSB) teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”
+
+>Matthew 18:15–20 (CSB) “If your brother sins against you, go tell him his fault, between you and him alone. If he listens to you, you have won your brother. But if he won’t listen, take one or two others with you, so that by the testimony of two or three witnesses every fact may be established. If he doesn’t pay attention to them, tell the church. If he doesn’t pay attention even to the church, let him be like a Gentile and a tax collector to you. Truly I tell you, whatever you bind on earth will have been bound in heaven, and whatever you loose on earth will have been loosed in heaven. Again, truly I tell you, if two of you on earth agree about any matter that you pray for, it will be done for you by my Father in heaven. For where two or three are gathered together in my name, I am there among them.”
 
 ### [26.6 Of The Bride: The Good Trees](1689-26-6-of-the-bride:-the-good-trees.md)
 
 The members of these churches are saints by calling, visibly manifesting and evidencing (in and by their profession and walking) their obedience unto that call of Christ; and do willingly consent to walk together, according to the appointment of Christ; giving up themselves to the Lord, and one to another, by the will of God, in professed subjection to the ordinances of the Gospel.
 
-Romans. 1:7; 1 Corinthians 1:2; Acts 2:41-42; Acts 5:13-14; 2 Corinthians 9:13
+Romans 1:7; 1 Corinthians 1:2; Acts 2:41-42; Acts 5:13-14; 2 Corinthians 9:13
 
 ### [26.7 Of The Bride: The Authority Given](1689-26-7-of-the-bride:-the-authority-given.md)
 
 To each of these churches thus gathered, according to his mind declared in his word, he hath given all that power and authority, which is in any way needful for their carrying on that order in worship and discipline, which he hath instituted for them to observe; with commands and rules for the due and right exerting, and executing of that power.
 
-Matthew 18:17-18; 1 Corinthians 5:4-5; 1 Corinthians 5:13; 2 Corinthians 2:6-8
+>Matthew 18:17–18 (CSB) If he doesn’t pay attention to them, tell the church. If he doesn’t pay attention even to the church, let him be like a Gentile and a tax collector to you. Truly I tell you, whatever you bind on earth will have been bound in heaven, and whatever you loose on earth will have been loosed in heaven.
+
+>1 Corinthians 5:4–5 (CSB) When you are assembled in the name of our Lord Jesus, and I am with you in spirit, with the power of our Lord Jesus, hand that one over to Satan for the destruction of the flesh, so that his spirit may be saved in the day of the Lord.
+
+>1 Corinthians 5:13 (CSB) God judges outsiders. Remove the evil person from among you.
+
+>2 Corinthians 2:6–8 (CSB) This punishment by the majority is sufficient for that person. As a result, you should instead forgive and comfort him. Otherwise, he may be overwhelmed by excessive grief. Therefore I urge you to reaffirm your love to him.
 
 ### [26.8 Of The Bride: The Members Gathered](1689-26-8-of-the-bride:-the-members-gathered.md)
 
@@ -1899,49 +2146,83 @@ A particular church, gathered and completely organized according to the mind of 
 
 and members; and the officers appointed by Christ to be chosen and set apart by the church (so called and gathered), for the peculiar administration of ordinances, and execution of power or duty, which he intrusts them with, or calls them to, to be continued to the end of the world, are bishops or elders, and deacons.
 
-Acts 20:17-28; Philippians 1:1
+>Acts 20:17–28 (CSB) Now from Miletus, he sent to Ephesus and summoned the elders of the church. When they came to him, he said to them, “You know, from the first day I set foot in Asia, how I was with you the whole time, serving the Lord with all humility, with tears, and during the trials that came to me through the plots of the Jews. You know that I did not hesitate to proclaim anything to you that was profitable and to teach you publicly and from house to house. I testified to both Jews and Greeks about repentance toward God and faith in our Lord Jesus. “And now I am on my way to Jerusalem, compelled by the Spirit, not knowing what I will encounter there, except that in every town the Holy Spirit warns me that chains and afflictions are waiting for me. But I consider my life of no value to myself; my purpose is to finish my course and the ministry I received from the Lord Jesus, to testify to the gospel of God’s grace. “And now I know that none of you, among whom I went about preaching the kingdom, will ever see me again. Therefore I declare to you this day that I am innocent of the blood of all of you, because I did not avoid declaring to you the whole plan of God. Be on guard for yourselves and for all the flock of which the Holy Spirit has appointed you as overseers, to shepherd the church of God, which he purchased with his own blood.
+
+>Philippians 1:1 (CSB) Paul and Timothy, servants of Christ Jesus: To all the saints in Christ Jesus who are in Philippi, including the overseers and deacons.
 
 ### [26.9 Of The Bride: The Laying On of Hands](1689-26-9-of-the-bride:-the-laying-on-of-hands.md)
 
 The way appointed by Christ for the calling of any person, fitted and gifted by the Holy Spirit, unto the office of bishop or elder in a church, is, that he be chosen thereunto by the common suffrage of the church itself; and solemnly set apart by fasting and prayer, with imposition of hands of the eldership of the church, if there be any before constituted therein; and of a deacon that he be chosen by the like suffrage, and set apart by prayer, and the like imposition of hands.
 
-Acts 14:23; 1 Timothy 4:14; Acts 6:3-6
+>Acts 14:23 (CSB) When they had appointed elders for them in every church and prayed with fasting, they committed them to the Lord in whom they had believed.
+
+>1 Timothy 4:14 (CSB) Don’t neglect the gift that is in you; it was given to you through prophecy, with the laying on of hands by the council of elders.
+
+>Acts 6:3–6 (CSB) Brothers and sisters, select from among you seven men of good reputation, full of the Spirit and wisdom, whom we can appoint to this duty. But we will devote ourselves to prayer and to the ministry of the word.” This proposal pleased the whole company. So they chose Stephen, a man full of faith and the Holy Spirit, and Philip, Prochorus, Nicanor, Timon, Parmenas, and Nicolaus, a convert from Antioch. They had them stand before the apostles, who prayed and laid their hands on them.
 
 ### [26.10 Of The Bride: The Work of the Minister](1689-26-10-of-the-bride:-the-work-of-the-minister.md)
 
 The work of pastors being constantly to attend the service of Christ, in his churches, in the ministry of the word and prayer, with watching for their souls, as they that must give an account to Him; it is incumbent on the churches to whom they minister, not only to give them all due respect, but also to communicate to them of all their good things according to their ability, so as they may have a comfortable supply, without being themselves entangled in secular affairs; and may also be capable of exercising hospitality towards others; and this is required by the law of nature, and by the express order of our Lord Jesus, who hath ordained that they that preach the Gospel should live of the Gospel.
 
-Acts 6:4; Hebrews 13:17; 1 Timothy 5:17-18; Galatians 6:6-7; 2 Timothy 2:4; 1 Timothy 3:2; 1 Corinthians 9:6-14
+>Acts 6:4 (CSB) But we will devote ourselves to prayer and to the ministry of the word.”
+
+>Hebrews 13:17 (CSB) Obey your leaders and submit to them, since they keep watch over your souls as those who will give an account, so that they can do this with joy and not with grief, for that would be unprofitable for you.
+
+>1 Timothy 5:17–18 (CSB) The elders who are good leaders are to be considered worthy of double honor, especially those who work hard at preaching and teaching. For the Scripture says: Do not muzzle an ox while it is treading out the grain, and, The worker is worthy of his wages.
+
+>Galatians 6:6–7 (CSB) Let the one who is taught the word share all his good things with the teacher. Don’t be deceived: God is not mocked. For whatever a person sows he will also reap,
+
+>2 Timothy 2:4 (CSB) No one serving as a soldier gets entangled in the concerns of civilian life; he seeks to please the commanding officer.
+
+>1 Timothy 3:2 (CSB) An overseer, therefore, must be above reproach, the husband of one wife, self-controlled, sensible, respectable, hospitable, able to teach,
+
+>1 Corinthians 9:6–14 (CSB) Or do only Barnabas and I have no right to refrain from working? Who serves as a soldier at his own expense? Who plants a vineyard and does not eat its fruit? Or who shepherds a flock and does not drink the milk from the flock? Am I saying this from a human perspective? Doesn’t the law also say the same thing? For it is written in the law of Moses, Do not muzzle an ox while it treads out grain. Is God really concerned about oxen? Isn’t he really saying it for our sake? Yes, this is written for our sake, because he who plows ought to plow in hope, and he who threshes should thresh in hope of sharing the crop. If we have sown spiritual things for you, is it too much if we reap material benefits from you? If others have this right to receive benefits from you, don’t we even more? Nevertheless, we have not made use of this right; instead, we endure everything so that we will not hinder the gospel of Christ. Don’t you know that those who perform the temple services eat the food from the temple, and those who serve at the altar share in the offerings of the altar? In the same way, the Lord has commanded that those who preach the gospel should earn their living by the gospel.
 
 ### [26.11 Of The Bride: The Prophecy of the Word](1689-26-11-of-the-bride:-the-prophecy-of-the-word.md)
 
 Although it be incumbent on the bishops or pastors of the churches, to be instant in preaching the word, by way of office, yet the work of preaching the word is not so peculiarly confined to them but that others also gifted and fitted by the Holy Spirit for it, and approved and called by the church, may and ought to perform it.
 
-Acts 11:19-21; 1 Peter 4:10-11
+>Acts 11:19–21 (CSB) Now those who had been scattered as a result of the persecution that started because of Stephen made their way as far as Phoenicia, Cyprus, and Antioch, speaking the word to no one except Jews. But there were some of them, men from Cyprus and Cyrene, who came to Antioch and began speaking to the Greeks also, proclaiming the good news about the Lord Jesus. The Lord’s hand was with them, and a large number who believed turned to the Lord.
+
+>1 Peter 4:10–11 (CSB) Just as each one has received a gift, use it to serve others, as good stewards of the varied grace of God. If anyone speaks, let it be as one who speaks God’s words; if anyone serves, let it be from the strength God provides, so that God may be glorified through Jesus Christ in everything. To him be the glory and the power forever and ever. Amen.
 
 ### [26.12 Of The Bride: Saved To One Another](1689-26-12-of-the-bride:-saved-to-one-another.md)
 
 As all believers are bound to join themselves to particular churches, when and where they have opportunity so to do; so all that are admitted unto the privileges of a church, are also under the censures and government thereof, according to the rule of Christ.
 
-1 Thessalonians 5:14; 2 Thessalonians 3:6-15
+>1 Thessalonians 5:14 (CSB) And we exhort you, brothers and sisters: warn those who are idle, comfort the discouraged, help the weak, be patient with everyone.
+
+>2 Thessalonians 3:6–15 (CSB) Now we command you, brothers and sisters, in the name of our Lord Jesus Christ, to keep away from every brother or sister who is idle and does not live according to the tradition received from us. For you yourselves know how you should imitate us: We were not idle among you; we did not eat anyone’s food free of charge; instead, we labored and toiled, working night and day, so that we would not be a burden to any of you. It is not that we don’t have the right to support, but we did it to make ourselves an example to you so that you would imitate us. In fact, when we were with you, this is what we commanded you: “If anyone isn’t willing to work, he should not eat.” For we hear that there are some among you who are idle. They are not busy but busybodies. Now we command and exhort such people by the Lord Jesus Christ to work quietly and provide for themselves. But as for you, brothers and sisters, do not grow weary in doing good. If anyone does not obey our instruction in this letter, take note of that person; don’t associate with him, so that he may be ashamed. Yet don’t consider him as an enemy, but warn him as a brother.
 
 ### [26.13 Of The Bride: Bonded to One Another](1689-26-13-of-the-bride:-bonded-to-one-another.md)
 
 No church members, upon any offence taken by them, having performed their duty required of them towards the person they are offended at, ought to disturb any church-order, or absent themselves from the assemblies of the church, or administration of any ordinances, upon the account of such offence at any of their fellow members, but to wait upon Christ, in the further proceeding of the church.
 
-Matthew 18:15-17; Ephesians 4:2-3
+>Matthew 18:15–17 (CSB) “If your brother sins against you, go tell him his fault, between you and him alone. If he listens to you, you have won your brother. But if he won’t listen, take one or two others with you, so that by the testimony of two or three witnesses every fact may be established. If he doesn’t pay attention to them, tell the church. If he doesn’t pay attention even to the church, let him be like a Gentile and a tax collector to you.
+
+>Ephesians 4:2–3 (CSB) with all humility and gentleness, with patience, bearing with one another in love, making every effort to keep the unity of the Spirit through the bond of peace.
 
 ### [26.14 Of The Bride: Brothers & Sisters of Christ](1689-26-14-of-the-bride:-brothers-&-sisters-of-christ.md)
 
 As each church, and all the members of it, are bound to pray continually for the good and prosperity of all the churches of Christ, in all places, and upon all occasions to further every one within the bounds of their places and callings, in the exercise of their gifts and graces, so the churches, when planted by the providence of God, so as they may enjoy opportunity and advantage for it, ought to hold communion among themselves, for their peace, increase of love, and mutual edification.
 
-Ephesians 6:18; Psalms 122:6; Romans 16:1-2; 3 John 8-10
+>Ephesians 6:18 (CSB) Pray at all times in the Spirit with every prayer and request, and stay alert with all perseverance and intercession for all the saints.
+
+>Psalm 122:6 (CSB) Pray for the well-being of Jerusalem: “May those who love you be secure;
+
+>Romans 16:1–2 (CSB) I commend to you our sister Phoebe, who is a servant of the church in Cenchreae. So you should welcome her in the Lord in a manner worthy of the saints and assist her in whatever matter she may require your help. For indeed she has been a benefactor of many—and of me also.
+
+>3 John 8–10 (CSB) Therefore, we ought to support such people so that we can be coworkers with the truth. I wrote something to the church, but Diotrephes, who loves to have first place among them, does not receive our authority. This is why, if I come, I will remind him of the works he is doing, slandering us with malicious words. And he is not satisfied with that! He not only refuses to welcome fellow believers, but he even stops those who want to do so and expels them from the church.
 
 ### [26.15 Of The Bride: Peace of God](1689-26-15-of-the-bride:-peace-of-god.md)
 
 In cases of difficulties or differences, either in point of doctrine or administration, wherein either the churches in general are concerned, or any one church, in their peace, union, and edification; or any member or members of any church are injured, in or by any proceedings in censures not agreeable to truth and order: it is according to the mind of Christ, that many churches holding communion together, do, by their messengers, meet to consider, and give their advice in or about that matter in difference, to be reported to all the churches concerned; howbeit these messengers assembled, are not intrusted with any church-power properly so called; or with any jurisdiction over the churches themselves, to exercise any censures either over any churches or persons; or to impose their determination on the churches or officers.
 
-Acts 15:2-25; 2 Corinthians 1:24; 1 John 4:1
+>Acts 15:2–25 (CSB) After Paul and Barnabas had engaged them in serious argument and debate, Paul and Barnabas and some others were appointed to go up to the apostles and elders in Jerusalem about this issue. When they had been sent on their way by the church, they passed through both Phoenicia and Samaria, describing in detail the conversion of the Gentiles, and they brought great joy to all the brothers and sisters. When they arrived at Jerusalem, they were welcomed by the church, the apostles, and the elders, and they reported all that God had done with them. But some of the believers who belonged to the party of the Pharisees stood up and said, “It is necessary to circumcise them and to command them to keep the law of Moses.” The apostles and the elders gathered to consider this matter. After there had been much debate, Peter stood up and said to them, “Brothers, you are aware that in the early days God made a choice among you, that by my mouth the Gentiles would hear the gospel message and believe. And God, who knows the heart, bore witness to them by giving them the Holy Spirit, just as he also did to us. He made no distinction between us and them, cleansing their hearts by faith. Now then, why are you testing God by putting a yoke on the disciples’ necks that neither our ancestors nor we have been able to bear? On the contrary, we believe that we are saved through the grace of the Lord Jesus in the same way they are.” The whole assembly became silent and listened to Barnabas and Paul describe all the signs and wonders God had done through them among the Gentiles. After they stopped speaking, James responded, “Brothers, listen to me. Simeon has reported how God first intervened to take from the Gentiles a people for his name. And the words of the prophets agree with this, as it is written: After these things I will return and rebuild David’s fallen tent. I will rebuild its ruins and set it up again, so that the rest of humanity may seek the Lord— even all the Gentiles who are called by my name— declares the Lord who makes these things known from long ago. Therefore, in my judgment, we should not cause difficulties for those among the Gentiles who turn to God, but instead we should write to them to abstain from things polluted by idols, from sexual immorality, from eating anything that has been strangled, and from blood. For since ancient times, Moses has had those who proclaim him in every city, and every Sabbath day he is read aloud in the synagogues.” Then the apostles and the elders, with the whole church, decided to select men who were among them and to send them to Antioch with Paul and Barnabas: Judas, called Barsabbas, and Silas, both leading men among the brothers. They wrote: “From the apostles and the elders, your brothers, To the brothers and sisters among the Gentiles in Antioch, Syria, and Cilicia: Greetings. Since we have heard that some without our authorization went out from us and troubled you with their words and unsettled your hearts, we have unanimously decided to select men and send them to you along with our dearly loved Barnabas and Paul,
+
+>2 Corinthians 1:24 (CSB) I do not mean that we lord it over your faith, but we are workers with you for your joy, because you stand firm in your faith.
+
+>1 John 4:1 (CSB) Dear friends, do not believe every spirit, but test the spirits to see if they are from God, because many false prophets have gone out into the world.
 
 ## [Chapter XXVII. Of the Communion of Saints](1689-27-0-index.md)
 
@@ -1949,13 +2230,45 @@ Acts 15:2-25; 2 Corinthians 1:24; 1 John 4:1
 
 All saints that are united to Jesus Christ, their head, by his Spirit, and faith, although they are not made thereby one person with him, have fellowship in his graces, sufferings, death, resurrection, and glory; and, being united to one another in love, they have communion in each others gifts and graces, and are obliged to the performance of such duties, public and private, in an orderly way, as do conduce to their mutual good, both in the inward and outward man.
 
-1 John 1:3; John 1:16; Philippians 3:10; Romans 6:5-6; Ephesians 4:15-16; 1 Corinthians 12:7; 1 Corinthians 3:21-23; 1 Thessalonians 5:11-14; Romans 1:12; 1 John 3:17-18; Galatians 6:10
+>1 John 1:3 (CSB) what we have seen and heard we also declare to you, so that you may also have fellowship with us; and indeed our fellowship is with the Father and with his Son, Jesus Christ.
+
+>John 1:16 (CSB) Indeed, we have all received grace upon grace from his fullness,
+
+>Philippians 3:10 (CSB) My goal is to know him and the power of his resurrection and the fellowship of his sufferings, being conformed to his death,
+
+>Romans 6:5–6 (CSB) For if we have been united with him in the likeness of his death, we will certainly also be in the likeness of his resurrection. For we know that our old self was crucified with him so that the body ruled by sin might be rendered powerless so that we may no longer be enslaved to sin,
+
+>Ephesians 4:15–16 (CSB) But speaking the truth in love, let us grow in every way into him who is the head—Christ. From him the whole body, fitted and knit together by every supporting ligament, promotes the growth of the body for building itself up in love by the proper working of each individual part.
+
+>1 Corinthians 12:7 (CSB) A manifestation of the Spirit is given to each person for the common good:
+
+>1 Corinthians 3:21–23 (CSB) So let no one boast in human leaders, for everything is yours—whether Paul or Apollos or Cephas or the world or life or death or things present or things to come—everything is yours, and you belong to Christ, and Christ belongs to God.
+
+>1 Thessalonians 5:11–14 (CSB) Therefore encourage one another and build each other up as you are already doing. Now we ask you, brothers and sisters, to give recognition to those who labor among you and lead you in the Lord and admonish you, and to regard them very highly in love because of their work. Be at peace among yourselves. And we exhort you, brothers and sisters: warn those who are idle, comfort the discouraged, help the weak, be patient with everyone.
+
+>Romans 1:12 (CSB) that is, to be mutually encouraged by each other’s faith, both yours and mine.
+
+>1 John 3:17–18 (CSB) If anyone has this world’s goods and sees a fellow believer in need but withholds compassion from him—how does God’s love reside in him? Little children, let us not love in word or speech, but in action and in truth.
+
+>Galatians 6:10 (CSB) Therefore, as we have opportunity, let us work for the good of all, especially for those who belong to the household of faith.
 
 ### [27.2 Communion of the Saints: Cattle On A Thousand Hills](1689-27-2-communion-of-the-saints:-cattle-on-a-thousand-hills.md)
 
 Saints by profession are bound to maintain an holy fellowship and communion in the worship of God, and in performing such other spiritual services as tend to their mutual edification; as also in relieving each other in outward things according to their several abilities, and necessities; which communion, according to the rule of the gospel, though especially to be exercised by them, in the relation wherein they stand, whether in families, or churches, yet, as God offereth opportunity, is to be extended to all the household of faith, even all those who in every place call upon the name of the Lord Jesus; nevertheless their communion one with another as saints, doth not take away or infringe the title or propriety which each man hath in his goods and possessions.
 
-Hebrews 10:24-25; Hebrews 3:12-13; Acts 11:29-30; Ephesians 6:4; 1 Corinthians 12:14-27; Acts 5:4; Ephesians 4:28
+>Hebrews 10:24–25 (CSB) And let us consider one another in order to provoke love and good works, not neglecting to gather together, as some are in the habit of doing, but encouraging each other, and all the more as you see the day approaching.
+
+>Hebrews 3:12–13 (CSB) Watch out, brothers and sisters, so that there won’t be in any of you an evil, unbelieving heart that turns away from the living God. But encourage each other daily, while it is still called today, so that none of you is hardened by sin’s deception.
+
+>Acts 11:29–30 (CSB) Each of the disciples, according to his ability, determined to send relief to the brothers and sisters who lived in Judea. They did this, sending it to the elders by means of Barnabas and Saul.
+
+>Ephesians 6:4 (CSB) Fathers, don’t stir up anger in your children, but bring them up in the training and instruction of the Lord.
+
+>1 Corinthians 12:14–27 (CSB) Indeed, the body is not one part but many. If the foot should say, “Because I’m not a hand, I don’t belong to the body,” it is not for that reason any less a part of the body. And if the ear should say, “Because I’m not an eye, I don’t belong to the body,” it is not for that reason any less a part of the body. If the whole body were an eye, where would the hearing be? If the whole body were an ear, where would the sense of smell be? But as it is, God has arranged each one of the parts in the body just as he wanted. And if they were all the same part, where would the body be? As it is, there are many parts, but one body. The eye cannot say to the hand, “I don’t need you!” Or again, the head can’t say to the feet, “I don’t need you!” On the contrary, those parts of the body that are weaker are indispensable. And those parts of the body that we consider less honorable, we clothe these with greater honor, and our unrespectable parts are treated with greater respect, which our respectable parts do not need. Instead, God has put the body together, giving greater honor to the less honorable, so that there would be no division in the body, but that the members would have the same concern for each other. So if one member suffers, all the members suffer with it; if one member is honored, all the members rejoice with it. Now you are the body of Christ, and individual members of it.
+
+>Acts 5:4 (CSB) Wasn’t it yours while you possessed it? And after it was sold, wasn’t it at your disposal? Why is it that you planned this thing in your heart? You have not lied to people but to God.”
+
+>Ephesians 4:28 (CSB) Let the thief no longer steal. Instead, he is to do honest work with his own hands, so that he has something to share with anyone in need.
 
 ## [Chapter XXVIII. Of Baptism and the Lord's Supper](1689-28-0-index.md)
 
@@ -1963,13 +2276,17 @@ Hebrews 10:24-25; Hebrews 3:12-13; Acts 11:29-30; Ephesians 6:4; 1 Corinthians 1
 
 Baptism and the Lord's Supper are ordinances of positive and sovereign institution, appointed by the Lord Jesus, the only lawgiver, to be continued in his church to the end of the world.
 
-Matthew 28:19-20; 1 Corinthians 11:26
+>Matthew 28:19–20 (CSB) Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”
+
+>1 Corinthians 11:26 (CSB) For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes.
 
 ### [28.2 Ordinances: Commission by Christ](1689-28-2-ordinances:-commission-by-christ.md)
 
 These holy appointments are to be administered by those only who are qualified and thereunto called, according to the commission of Christ.
 
-Matthew 28:19; 1 Corinthians 4:1
+>Matthew 28:19 (CSB) Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit,
+
+>1 Corinthians 4:1 (CSB) A person should think of us in this way: as servants of Christ and managers of the mysteries of God.
 
 ## [Chapter XXVIX. Of Baptism](1689-29-0-index.md)
 
@@ -1977,25 +2294,49 @@ Matthew 28:19; 1 Corinthians 4:1
 
 Baptism is an ordinance of the New Testament, ordained by Jesus Christ, to be unto the party baptized, a sign of his fellowship with him, in his death and resurrection; of his being engrafted into him; of remission of sins; and of giving up into God, through Jesus Christ, to live and walk in newness of life.
 
-Romans 6:3-5; Colossians 2;12; Galatians 3:27; Mark 1:4; Acts 22:16; Romans 6:4
+>Romans 6:3–5 (CSB) Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life. For if we have been united with him in the likeness of his death, we will certainly also be in the likeness of his resurrection.
+
+>Colossians 2 (CSB) For I want you to know how greatly I am struggling for you, for those in Laodicea, and for all who have not seen me in person. I want their hearts to be encouraged and joined together in love, so that they may have all the riches of complete understanding and have the knowledge of God’s mystery—Christ. In him are hidden all the treasures of wisdom and knowledge. I am saying this so that no one will deceive you with arguments that sound reasonable. For I may be absent in body, but I am with you in spirit, rejoicing to see how well ordered you are and the strength of your faith in Christ. So then, just as you have received Christ Jesus as Lord, continue to walk in him, being rooted and built up in him and established in the faith, just as you were taught, and overflowing with gratitude. Be careful that no one takes you captive through philosophy and empty deceit based on human tradition, based on the elements of the world, rather than Christ. For the entire fullness of God’s nature dwells bodily in Christ, and you have been filled by him, who is the head over every ruler and authority. You were also circumcised in him with a circumcision not done with hands, by putting off the body of flesh, in the circumcision of Christ, when you were buried with him in baptism, in which you were also raised with him through faith in the working of God, who raised him from the dead. And when you were dead in trespasses and in the uncircumcision of your flesh, he made you alive with him and forgave us all our trespasses. He erased the certificate of debt, with its obligations, that was against us and opposed to us, and has taken it away by nailing it to the cross. He disarmed the rulers and authorities and disgraced them publicly; he triumphed over them in him. Therefore, don’t let anyone judge you in regard to food and drink or in the matter of a festival or a new moon or a Sabbath day. These are a shadow of what was to come; the substance is Christ. Let no one condemn you by delighting in ascetic practices and the worship of angels, claiming access to a visionary realm. Such people are inflated by empty notions of their unspiritual mind. They don’t hold on to the head, from whom the whole body, nourished and held together by its ligaments and tendons, grows with growth from God. If you died with Christ to the elements of this world, why do you live as if you still belonged to the world? Why do you submit to regulations: “Don’t handle, don’t taste, don’t touch”? All these regulations refer to what is destined to perish by being used up; they are human commands and doctrines. Although these have a reputation for wisdom by promoting self-made religion, false humility, and severe treatment of the body, they are not of any value in curbing self-indulgence.
+
+>Colossians 4 (CSB) Masters, deal with your slaves justly and fairly, since you know that you too have a Master in heaven. Devote yourselves to prayer; stay alert in it with thanksgiving. At the same time, pray also for us that God may open a door to us for the word, to speak the mystery of Christ, for which I am in chains, so that I may make it known as I should. Act wisely toward outsiders, making the most of the time. Let your speech always be gracious, seasoned with salt, so that you may know how you should answer each person. Tychicus, our dearly loved brother, faithful minister, and fellow servant in the Lord, will tell you all the news about me. I have sent him to you for this very purpose, so that you may know how we are and so that he may encourage your hearts. He is coming with Onesimus, a faithful and dearly loved brother, who is one of you. They will tell you about everything here. Aristarchus, my fellow prisoner, sends you greetings, as does Mark, Barnabas’s cousin (concerning whom you have received instructions: if he comes to you, welcome him), and so does Jesus who is called Justus. These alone of the circumcised are my coworkers for the kingdom of God, and they have been a comfort to me. Epaphras, who is one of you, a servant of Christ Jesus, sends you greetings. He is always wrestling for you in his prayers, so that you can stand mature and fully assured in everything God wills. For I testify about him that he works hard for you, for those in Laodicea, and for those in Hierapolis. Luke, the dearly loved physician, and Demas send you greetings. Give my greetings to the brothers and sisters in Laodicea, and to Nympha and the church in her home. After this letter has been read at your gathering, have it read also in the church of the Laodiceans; and see that you also read the letter from Laodicea. And tell Archippus, “Pay attention to the ministry you have received in the Lord, so that you can accomplish it.” I, Paul, am writing this greeting with my own hand. Remember my chains. Grace be with you.
+
+>Galatians 3:27 (CSB) For those of you who were baptized into Christ have been clothed with Christ.
+
+>Mark 1:4 (CSB) John came baptizing in the wilderness and proclaiming a baptism of repentance for the forgiveness of sins.
+
+>Acts 22:16 (CSB) And now, why are you delaying? Get up and be baptized, and wash away your sins, calling on his name.’
+
+>Romans 6:4 (CSB) Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life.
 
 ### [29.2 Baptism: Freed from Sin](1689-29-2-baptism:-freed-from-sin.md)
 
 Those who do actually profess repentance towards God, faith in, and obedience to, our Lord Jesus Christ, are the only proper subjects of this ordinance.
 
-Mark 16:16; Acts 8:36-37; Acts 2:41; Acts 8:12; Acts 18:8
+>Mark 16:16 (CSB) Whoever believes and is baptized will be saved, but whoever does not believe will be condemned.
+
+>Acts 8:36 (CSB) As they were traveling down the road, they came to some water. The eunuch said, “Look, there’s water. What would keep me from being baptized?”
+
+>Acts 2:41 (CSB) So those who accepted his message were baptized, and that day about three thousand people were added to them.
+
+>Acts 8:12 (CSB) But when they believed Philip, as he proclaimed the good news about the kingdom of God and the name of Jesus Christ, both men and women were baptized.
+
+>Acts 18:8 (CSB) Crispus, the leader of the synagogue, believed in the Lord, along with his whole household. Many of the Corinthians, when they heard, believed and were baptized.
 
 ### [29.3 Baptism: In the Name of God](1689-29-3-baptism:-in-the-name-of-god.md)
 
 The outward element to be used in this ordinance is water, wherein the party is to be baptized, in the name of the Father, and of the Son, and of the Holy Spirit.
 
-Matthew 28:19-20; Acts 8:38
+>Matthew 28:19–20 (CSB) Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”
+
+>Acts 8:38 (CSB) So he ordered the chariot to stop, and both Philip and the eunuch went down into the water, and he baptized him.
 
 ### [29.4 Baptism: Immersion](1689-29-4-baptism:-immersion.md)
 
 Immersion, or dipping of the person in water, is necessary to the due administration of this ordinance.
 
-Matthew 3:16; John 3:23
+>Matthew 3:16 (CSB) When Jesus was baptized, he went up immediately from the water. The heavens suddenly opened for him, and he saw the Spirit of God descending like a dove and coming down on him.
+
+>John 3:23 (CSB) John also was baptizing in Aenon near Salim, because there was plenty of water there. People were coming and being baptized,
 
 ## [Chapter XXX. Of the Lord's Supper](1689-30-0-index.md)
 
@@ -2003,43 +2344,61 @@ Matthew 3:16; John 3:23
 
 The supper of the Lord Jesus was instituted by him the same night wherein he was betrayed, to be observed in his churches, unto the end of the world, for the perpetual remembrance, and shewing forth the sacrifice of himself in his death, confirmation of the faith of believers in all the benefits thereof, their spiritual nourishment, and growth in him, their further engagement in, and to all duties which they owe to him; and to be a bond and pledge of their communion with him, and with each other.
 
-1 Corinthians 11:23-26; 1 Corinthians 10:16-21
+>1 Corinthians 11:23–26 (CSB) For I received from the Lord what I also passed on to you: On the night when he was betrayed, the Lord Jesus took bread, and when he had given thanks, broke it, and said, “This is my body, which is for you. Do this in remembrance of me.” In the same way also he took the cup, after supper, and said, “This cup is the new covenant in my blood. Do this, as often as you drink it, in remembrance of me.” For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes.
+
+>1 Corinthians 10:16–21 (CSB) The cup of blessing that we bless, is it not a sharing in the blood of Christ? The bread that we break, is it not a sharing in the body of Christ? Because there is one bread, we who are many are one body, since all of us share the one bread. Consider the people of Israel. Do not those who eat the sacrifices participate in the altar? What am I saying then? That food sacrificed to idols is anything, or that an idol is anything? No, but I do say that what they sacrifice, they sacrifice to demons and not to God. I do not want you to be participants with demons! You cannot drink the cup of the Lord and the cup of demons. You cannot share in the Lord’s table and the table of demons.
 
 ### [30.2 Lord's Supper: In Remembrance](1689-30-2-lord's-supper:-in-remembrance-.md)
 
 In this ordinance Christ is not offered up to his Father, nor any real sacrifice made at all for remission of sin of the quick or dead, but only a memorial of that one offering up of himself by himself upon the cross, once for all; and a spiritual oblation of all possible praise unto God for the same. So that the popish sacrifice of the mass, as they call it, is most abominable, injurious to Christ's own sacrifice the alone propitiation for all the sins of the elect.
 
-Hebrews 9:25-28; 1 Corinthians 11:24; Matthew 26:26-27
+>Hebrews 9:25–28 (CSB) He did not do this to offer himself many times, as the high priest enters the sanctuary yearly with the blood of another. Otherwise, he would have had to suffer many times since the foundation of the world. But now he has appeared one time, at the end of the ages, for the removal of sin by the sacrifice of himself. And just as it is appointed for people to die once—and after this, judgment—so also Christ, having been offered once to bear the sins of many, will appear a second time, not to bear sin, but to bring salvation to those who are waiting for him.
+
+>1 Corinthians 11:24 (CSB) and when he had given thanks, broke it, and said, “This is my body, which is for you. Do this in remembrance of me.”
+
+>Matthew 26:26–27 (CSB) As they were eating, Jesus took bread, blessed and broke it, gave it to the disciples, and said, “Take and eat it; this is my body.” Then he took a cup, and after giving thanks, he gave it to them and said, “Drink from it, all of you.
 
 ### [30.3 Lord's Supper: To A Holy Use](1689-30-3-lord's-supper:-to-a-holy-use.md)
 
 The Lord Jesus hath, in this ordinance, appointed his ministers to pray, and bless the elements of bread and wine, and thereby to set them apart from a common to a holy use, and to take and break the bread; to take the cup, and, they communicating also themselves, to give both to the communicants.
 
-1 Corinthians 11:23-26
+>1 Corinthians 11:23–26 (CSB) For I received from the Lord what I also passed on to you: On the night when he was betrayed, the Lord Jesus took bread, and when he had given thanks, broke it, and said, “This is my body, which is for you. Do this in remembrance of me.” In the same way also he took the cup, after supper, and said, “This cup is the new covenant in my blood. Do this, as often as you drink it, in remembrance of me.” For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes.
 
 ### [30.4 Lord's Supper: For His People](1689-30-4-lord's-supper:-for-his-people.md)
 
 The denial of the cup to the people, worshipping the elements, the lifting them up, or carrying them about for adoration, and reserving them for any pretended religious use, are all contrary to the nature of this ordinance, and to the institution of Christ.
 
-Matthew 26:26-28; Matthew 15:9; Exodus 20:4-5
+>Matthew 26:26–28 (CSB) As they were eating, Jesus took bread, blessed and broke it, gave it to the disciples, and said, “Take and eat it; this is my body.” Then he took a cup, and after giving thanks, he gave it to them and said, “Drink from it, all of you. For this is my blood of the covenant, which is poured out for many for the forgiveness of sins.
+
+>Matthew 15:9 (CSB) They worship me in vain, teaching as doctrines human commands.”
+
+>Exodus 20:4–5 (CSB) Do not make an idol for yourself, whether in the shape of anything in the heavens above or on the earth below or in the waters under the earth. Do not bow in worship to them, and do not serve them; for I, the LORD your God, am a jealous God, bringing the consequences of the fathers’ iniquity on the children to the third and fourth generations of those who hate me,
 
 ### [30.5 Lord's Supper: Outward Elements](1689-30-5-lord's-supper:-outward-elements.md)
 
 The outward elements in this ordinance, duly set apart to the use ordained by Christ, have such relation to him crucified, as that truly, although in terms used figuratively, they are sometimes called by the names of the things they represent, to wit, the body and blood of Christ, albeit, in substance and nature, they still remain truly and only bread and wine, as they were before.
 
-1 Corinthians 11:27; 1 Corinthians 11:26-28
+>1 Corinthians 11:27 (CSB) So, then, whoever eats the bread or drinks the cup of the Lord in an unworthy manner will be guilty of sin against the body and blood of the Lord.
+
+>1 Corinthians 11:26–28 (CSB) For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes. So, then, whoever eats the bread or drinks the cup of the Lord in an unworthy manner will be guilty of sin against the body and blood of the Lord. Let a person examine himself; in this way let him eat the bread and drink from the cup.
 
 ### [30.6 Lord's Supper: Bread & Wine](1689-30-6-lord's-supper:-bread-&-wine.md)
 
 That doctrine which maintains a change of the substance of bread and wine, into the substance of Christ's body and blood, commonly called transubstantiation, by consecration of a priest, or by any other way, is repugnant not to Scripture alone, but even to common sense and reason, overthroweth the nature of the ordinance, and hath been, and is, the cause of manifold superstitions, yea, of gross idolatries.
 
-Acts 3:21; Luke 14:6-39; 1 Corinthians 11:24-25
+>Acts 3:21 (CSB) Heaven must receive him until the time of the restoration of all things, which God spoke about through his holy prophets from the beginning.
+
+>Luke 14:6–35 (CSB) They could find no answer to these things. He told a parable to those who were invited, when he noticed how they would choose the best places for themselves: “When you are invited by someone to a wedding banquet, don’t sit in the place of honor, because a more distinguished person than you may have been invited by your host. The one who invited both of you may come and say to you, ‘Give your place to this man,’ and then in humiliation, you will proceed to take the lowest place. “But when you are invited, go and sit in the lowest place, so that when the one who invited you comes, he will say to you, ‘Friend, move up higher.’ You will then be honored in the presence of all the other guests. For everyone who exalts himself will be humbled, and the one who humbles himself will be exalted.” He also said to the one who had invited him, “When you give a lunch or a dinner, don’t invite your friends, your brothers or sisters, your relatives, or your rich neighbors, because they might invite you back, and you would be repaid. On the contrary, when you host a banquet, invite those who are poor, maimed, lame, or blind. And you will be blessed, because they cannot repay you; for you will be repaid at the resurrection of the righteous.” When one of those who reclined at the table with him heard these things, he said to him, “Blessed is the one who will eat bread in the kingdom of God!” Then he told him, “A man was giving a large banquet and invited many. At the time of the banquet, he sent his servant to tell those who were invited, ‘Come, because everything is now ready.’ “But without exception they all began to make excuses. The first one said to him, ‘I have bought a field, and I must go out and see it. I ask you to excuse me.’ “Another said, ‘I have bought five yoke of oxen, and I’m going to try them out. I ask you to excuse me.’ “And another said, ‘I just got married, and therefore I’m unable to come.’ “So the servant came back and reported these things to his master. Then in anger, the master of the house told his servant, ‘Go out quickly into the streets and alleys of the city, and bring in here the poor, maimed, blind, and lame.’ “ ‘Master,’ the servant said, ‘what you ordered has been done, and there’s still room.’ “Then the master told the servant, ‘Go out into the highways and hedges and make them come in, so that my house may be filled. For I tell you, not one of those people who were invited will enjoy my banquet.’ ” Now great crowds were traveling with him. So he turned and said to them, “If anyone comes to me and does not hate his own father and mother, wife and children, brothers and sisters—yes, and even his own life—he cannot be my disciple. Whoever does not bear his own cross and come after me cannot be my disciple. “For which of you, wanting to build a tower, doesn’t first sit down and calculate the cost to see if he has enough to complete it? Otherwise, after he has laid the foundation and cannot finish it, all the onlookers will begin to ridicule him, saying, ‘This man started to build and wasn’t able to finish.’ “Or what king, going to war against another king, will not first sit down and decide if he is able with ten thousand to oppose the one who comes against him with twenty thousand? If not, while the other is still far off, he sends a delegation and asks for terms of peace. In the same way, therefore, every one of you who does not renounce all his possessions cannot be my disciple. “Now, salt is good, but if salt should lose its taste, how will it be made salty? It isn’t fit for the soil or for the manure pile; they throw it out. Let anyone who has ears to hear listen.”
+
+>1 Corinthians 11:24–25 (CSB) and when he had given thanks, broke it, and said, “This is my body, which is for you. Do this in remembrance of me.” In the same way also he took the cup, after supper, and said, “This cup is the new covenant in my blood. Do this, as often as you drink it, in remembrance of me.”
 
 ### [30.7 Lord's Supper: Belongs to Believers](1689-30-7-lord's-supper:-belongs-to-believers.md)
 
 Worthy receivers, outwardly partaking of the visible elements in this ordinance, do then also inwardly by faith, really and indeed, yet not carnally and corporally, but spiritually receive, and feed upon Christ crucified, and all the benefits of his death; the body and blood of Christ being then not corporally or carnally, but spiritually present to the faith of believers in that ordinance, as the elements themselves are to their outward senses.
 
-1 Corinthians 10:16; 1 Corinthians 11:23-26
+>1 Corinthians 10:16 (CSB) The cup of blessing that we bless, is it not a sharing in the blood of Christ? The bread that we break, is it not a sharing in the body of Christ?
+
+>1 Corinthians 11:23–26 (CSB) For I received from the Lord what I also passed on to you: On the night when he was betrayed, the Lord Jesus took bread, and when he had given thanks, broke it, and said, “This is my body, which is for you. Do this in remembrance of me.” In the same way also he took the cup, after supper, and said, “This cup is the new covenant in my blood. Do this, as often as you drink it, in remembrance of me.” For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes.
 
 ### [30.8 Lord's Supper: Does Not Belong to Unbelievers](1689-30-8-lord's-supper:-does-not-belong-to-unbelievers.md)
 
@@ -2047,7 +2406,12 @@ All ignorant and ungodly persons, as they are unfit to enjoy communion with Chri
 
 mysteries, or be admitted thereunto; yea, whosoever shall receive unworthily, are guilty of the body and blood of the Lord, eating and drinking judgment to themselves.
 
-2 Corinthians 6:14-15; 1 Corinthians 11:29; Matthew 7:6
+>2 Corinthians 6:14–15 (CSB) Do not be yoked together with those who do not believe. For what partnership is there between righteousness and lawlessness? Or what fellowship does light have with darkness? What agreement does Christ have with Belial? Or what does a believer have in common with an unbeliever?
+
+>1 Corinthians 11:29 (CSB) For whoever eats and drinks without recognizing the body, eats and drinks judgment on himself.
+
+>Matthew 7:6 (CSB) Don’t give what is holy to dogs or toss your pearls before pigs, or they will trample them under their feet, turn, and tear you to pieces.
+
 
 ## [Chapter XXXI. Of the State of Man After Death, and of the Resurrection of the Dead](1689-31-0-index.md)
 
@@ -2055,19 +2419,48 @@ mysteries, or be admitted thereunto; yea, whosoever shall receive unworthily, ar
 
 The bodies of men after death return to dust, and see corruption; but their souls, which neither die nor sleep, having an immortal subsistence, immediately return to God who gave them. The souls of the righteous being then made perfect in holiness, are received into paradise, where they are with Christ, and behold the face of God in light and glory, waiting for the full redemption of their bodies; and the souls of the wicked are cast into hell; where they remain in torment and utter darkness, reserved to the judgment of the great day; besides these two places, for souls separated from their bodies, the Scripture acknowledgeth none.
 
-Genesis 3:19; Acts 13:36; Ecclesiastes 12:7; Luke 23:43; 2 Corinthians 5:1-8; Philippians 1:23; Hebrews 12:23; Jude 6-7; 1 Peter 3:19; Luke 16:23-24
+>Genesis 3:19 (CSB) You will eat bread by the sweat of your brow until you return to the ground, since you were taken from it. For you are dust, and you will return to dust.”
+
+>Acts 13:36 (CSB) For David, after serving God’s purpose in his own generation, fell asleep, was buried with his fathers, and decayed,
+
+>Ecclesiastes 12:7 (CSB) and the dust returns to the earth as it once was, and the spirit returns to God who gave it.
+
+>Luke 23:43 (CSB) And he said to him, “Truly I tell you, today you will be with me in paradise.”
+
+>2 Corinthians 5:1–8 (CSB) For we know that if our earthly tent we live in is destroyed, we have a building from God, an eternal dwelling in the heavens, not made with hands. Indeed, we groan in this tent, desiring to put on our heavenly dwelling, since, when we are clothed, we will not be found naked. Indeed, we groan while we are in this tent, burdened as we are, because we do not want to be unclothed but clothed, so that mortality may be swallowed up by life. Now the one who prepared us for this very purpose is God, who gave us the Spirit as a down payment. So we are always confident and know that while we are at home in the body we are away from the Lord. For we walk by faith, not by sight. In fact, we are confident, and we would prefer to be away from the body and at home with the Lord.
+
+>Philippians 1:23 (CSB) I am torn between the two. I long to depart and be with Christ—which is far better—
+
+>Hebrews 12:23 (CSB) to the assembly of the firstborn whose names have been written in heaven, to a Judge, who is God of all, to the spirits of righteous people made perfect,
+
+>Jude 6–7 (CSB) and the angels who did not keep their own position but abandoned their proper dwelling, he has kept in eternal chains in deep darkness for the judgment on the great day. Likewise, Sodom and Gomorrah and the surrounding towns committed sexual immorality and perversions, and serve as an example by undergoing the punishment of eternal fire.
+
+>1 Peter 3:19 (CSB) in which he also went and made proclamation to the spirits in prison
+
+>Luke 16:23–24 (CSB) And being in torment in Hades, he looked up and saw Abraham a long way off, with Lazarus at his side. ‘Father Abraham!’ he called out, ‘Have mercy on me and send Lazarus to dip the tip of his finger in water and cool my tongue, because I am in agony in this flame!’
 
 ### [31.2 Made From Dust: Raised to God](1689-31-2-made-from-dust:-raised-to-god.md)
 
 At the last day, such of the saints as are found alive, shall not sleep, but be changed; and all the dead shall be raised up with the selfsame bodies, and none other; although with different qualities, which shall be united again to their souls forever.
 
-1 Corinthians 15:51-52; 1 Thessalonians 4:17; Job 19:26-27; 1 Corinthians 15:42-43
+>1 Corinthians 15:51–52 (CSB) Listen, I am telling you a mystery: We will not all fall asleep, but we will all be changed, in a moment, in the twinkling of an eye, at the last trumpet. For the trumpet will sound, and the dead will be raised incorruptible, and we will be changed.
+
+>1 Thessalonians 4:17 (CSB) Then we who are still alive, who are left, will be caught up together with them in the clouds to meet the Lord in the air, and so we will always be with the Lord.
+
+>Job 19:26–27 (CSB) Even after my skin has been destroyed, yet I will see God in my flesh. I will see him myself; my eyes will look at him, and not as a stranger. My heart longs within me.
+
+>1 Corinthians 15:42–43 (CSB) So it is with the resurrection of the dead: Sown in corruption, raised in incorruption; sown in dishonor, raised in glory; sown in weakness, raised in power;
+
 
 ### [31.3 Made From Dust: Glorified By God](1689-31-3-made-from-dust:-glorified-by-god.md)
 
 The bodies of the unjust shall, by the power of Christ, be raised to dishonour; the bodies of the just, by his Spirit, unto honour, and be made conformable to his own glorious body.
 
-Acts 24:15; John 5:28-29; Philippians 3:21
+>Acts 24:15 (CSB) I have a hope in God, which these men themselves also accept, that there will be a resurrection, both of the righteous and the unrighteous.
+
+>John 5:28–29 (CSB) Do not be amazed at this, because a time is coming when all who are in the graves will hear his voice and come out—those who have done good things, to the resurrection of life, but those who have done wicked things, to the resurrection of condemnation.
+
+>Philippians 3:21 (CSB) He will transform the body of our humble condition into the likeness of his glorious body, by the power that enables him to subject everything to himself.
 
 ## [Chapter XXXII. Of the Last Judgement](1689-32-0-index.md)
 
@@ -2075,19 +2468,53 @@ Acts 24:15; John 5:28-29; Philippians 3:21
 
 God hath appointed a day wherein he will judge the world in righteousness, by Jesus Christ; to whom all power and judgment is given of the Father; in which day, not only the apostate angels shall be judged, but likewise all persons that have lived upon the earth shall appear before the tribunal of Christ, to give an account of their thoughts, words, and deeds, and to receive according to what they have done in the body, whether good or evil.
 
-Acts 17:31; John 5:22-27; 1 Corinthians 6:3; Jude 6; 2 Corinthians 5:10; Ecclesiastes 12:14; Matthew 12:36; Romans 14:10-12; Matthew 25:32-46
+>Acts 17:31 (CSB) because he has set a day when he is going to judge the world in righteousness by the man he has appointed. He has provided proof of this to everyone by raising him from the dead.”
+
+>John 5:22–27 (CSB) The Father, in fact, judges no one but has given all judgment to the Son, so that all people may honor the Son just as they honor the Father. Anyone who does not honor the Son does not honor the Father who sent him. “Truly I tell you, anyone who hears my word and believes him who sent me has eternal life and will not come under judgment but has passed from death to life. “Truly I tell you, an hour is coming, and is now here, when the dead will hear the voice of the Son of God, and those who hear will live. For just as the Father has life in himself, so also he has granted to the Son to have life in himself. And he has granted him the right to pass judgment, because he is the Son of Man.
+
+>1 Corinthians 6:3 (CSB) Don’t you know that we will judge angels—how much more matters of this life?
+
+>Jude 6 (CSB) and the angels who did not keep their own position but abandoned their proper dwelling, he has kept in eternal chains in deep darkness for the judgment on the great day.
+
+>2 Corinthians 5:10 (CSB) For we must all appear before the judgment seat of Christ, so that each may be repaid for what he has done in the body, whether good or evil.
+
+>Ecclesiastes 12:14 (CSB) For God will bring every act to judgment, including every hidden thing, whether good or evil.
+
+>Matthew 12:36 (CSB) I tell you that on the day of judgment people will have to account for every careless word they speak.
+
+>Romans 14:10–12 (CSB) But you, why do you judge your brother or sister? Or you, why do you despise your brother or sister? For we will all stand before the judgment seat of God. For it is written, As I live, says the Lord, every knee will bow to me, and every tongue will give praise to God. So then, each of us will give an account of himself to God.
+
+>Matthew 25:32–46 (CSB) All the nations will be gathered before him, and he will separate them one from another, just as a shepherd separates the sheep from the goats. He will put the sheep on his right and the goats on the left. Then the King will say to those on his right, ‘Come, you who are blessed by my Father; inherit the kingdom prepared for you from the foundation of the world. “ ‘For I was hungry and you gave me something to eat; I was thirsty and you gave me something to drink; I was a stranger and you took me in; I was naked and you clothed me; I was sick and you took care of me; I was in prison and you visited me.’ “Then the righteous will answer him, ‘Lord, when did we see you hungry and feed you, or thirsty and give you something to drink? When did we see you a stranger and take you in, or without clothes and clothe you? When did we see you sick, or in prison, and visit you?’ “And the King will answer them, ‘Truly I tell you, whatever you did for one of the least of these brothers and sisters of mine, you did for me.’ “Then he will also say to those on the left, ‘Depart from me, you who are cursed, into the eternal fire prepared for the devil and his angels! For I was hungry and you gave me nothing to eat; I was thirsty and you gave me nothing to drink; I was a stranger and you didn’t take me in; I was naked and you didn’t clothe me, sick and in prison and you didn’t take care of me.’ “Then they too will answer, ‘Lord, when did we see you hungry, or thirsty, or a stranger, or without clothes, or sick, or in prison, and not help you?’ “Then he will answer them, ‘Truly I tell you, whatever you did not do for one of the least of these, you did not do for me.’ “And they will go away into eternal punishment, but the righteous into eternal life.”
 
 ### [32.2 The Quick & The Dead: Manifestation of His Glory](1689-32-2-the-quick-&-the-dead:-manifestation-of-his-glory.md)
 
 The end of God's appointing this day, is for the manifestation of the glory of his mercy, in the eternal salvation of the elect; and of his justice, in the eternal damnation of the reprobate, who are wicked and disobedient; for then shall the righteous go into everlasting life, and receive that fulness of joy and glory with everlasting rewards, in the presence of the Lord; but the wicked, who know not God, and obey not the gospel of Jesus Christ, shall be cast aside into everlasting torments, and punished with everlasting destruction, from the presence of the Lord, and from the glory of his power.
 
-Romans 9:22-23; Matthew 25:21-34; 2 Timothy 4:8; Matthew 25:46; Mark 9:48; 2 Thessalonians 1:7-10
+>Romans 9:22–23 (CSB) And what if God, wanting to display his wrath and to make his power known, endured with much patience objects of wrath prepared for destruction? And what if he did this to make known the riches of his glory on objects of mercy that he prepared beforehand for glory—
+
+>Matthew 25:21–34 (CSB) “His master said to him, ‘Well done, good and faithful servant! You were faithful over a few things; I will put you in charge of many things. Share your master’s joy.’ “The man with two talents also approached. He said, ‘Master, you gave me two talents. See, I’ve earned two more talents.’ “His master said to him, ‘Well done, good and faithful servant! You were faithful over a few things; I will put you in charge of many things. Share your master’s joy.’ “The man who had received one talent also approached and said, ‘Master, I know you. You’re a harsh man, reaping where you haven’t sown and gathering where you haven’t scattered seed. So I was afraid and went off and hid your talent in the ground. See, you have what is yours.’ “His master replied to him, ‘You evil, lazy servant! If you knew that I reap where I haven’t sown and gather where I haven’t scattered, then you should have deposited my money with the bankers, and I would have received my money back with interest when I returned. “ ‘So take the talent from him and give it to the one who has ten talents. For to everyone who has, more will be given, and he will have more than enough. But from the one who does not have, even what he has will be taken away from him. And throw this good-for-nothing servant into the outer darkness, where there will be weeping and gnashing of teeth.’ “When the Son of Man comes in his glory, and all the angels with him, then he will sit on his glorious throne. All the nations will be gathered before him, and he will separate them one from another, just as a shepherd separates the sheep from the goats. He will put the sheep on his right and the goats on the left. Then the King will say to those on his right, ‘Come, you who are blessed by my Father; inherit the kingdom prepared for you from the foundation of the world.
+
+>2 Timothy 4:8 (CSB) There is reserved for me the crown of righteousness, which the Lord, the righteous Judge, will give me on that day, and not only to me, but to all those who have loved his appearing.
+
+>Matthew 25:46 (CSB) “And they will go away into eternal punishment, but the righteous into eternal life.”
+
+>Mark 9:48 (CSB) where their worm does not die, and the fire is not quenched.
+
+>2 Thessalonians 1:7–10 (CSB) and to give relief to you who are afflicted, along with us. This will take place at the revelation of the Lord Jesus from heaven with his powerful angels, when he takes vengeance with flaming fire on those who don’t know God and on those who don’t obey the gospel of our Lord Jesus. They will pay the penalty of eternal destruction from the Lord’s presence and from his glorious strength on that day when he comes to be glorified by his saints and to be marveled at by all those who have believed, because our testimony among you was believed.
 
 ### [32.3 The Quick & The Dead: Come Lord Jesus--Amen](1689-32-3-the-quick-&-the-dead:-come-lord-jesus-amen.md)
 
 As Christ would have us to be certainly persuaded that there shall be a day of judgment, both to deter all men from sin, and for the greater consolation of the godly in their adversity, so will he have the day unknown to men, that they may shake off all carnal security, and be always watchful, because they know not at what hour the Lord will come, and may ever be prepared to say, Come Lord Jesus; come quickly. Amen.
 
-2 Corinthians 5:10-11; 2 Thessalonians 1:5-7; Mark 13:35-37; Luke 12:35-40; Revelation 22:20
+>2 Corinthians 5:10–11 (CSB) For we must all appear before the judgment seat of Christ, so that each may be repaid for what he has done in the body, whether good or evil. Therefore, since we know the fear of the Lord, we try to persuade people. What we are is plain to God, and I hope it is also plain to your consciences.
+
+>2 Thessalonians 1:5–7 (CSB) It is clear evidence of God’s righteous judgment that you will be counted worthy of God’s kingdom, for which you also are suffering, since it is just for God to repay with affliction those who afflict you and to give relief to you who are afflicted, along with us. This will take place at the revelation of the Lord Jesus from heaven with his powerful angels,
+
+>Mark 13:35–37 (CSB) Therefore be alert, since you don’t know when the master of the house is coming—whether in the evening or at midnight or at the crowing of the rooster or early in the morning. Otherwise, when he comes suddenly he might find you sleeping. And what I say to you, I say to everyone: Be alert!”
+
+>Luke 12:35–40 (CSB) “Be ready for service and have your lamps lit. You are to be like people waiting for their master to return from the wedding banquet so that when he comes and knocks, they can open the door for him at once. Blessed will be those servants the master finds alert when he comes. Truly I tell you, he will get ready, have them recline at the table, then come and serve them. If he comes in the middle of the night, or even near dawn, and finds them alert, blessed are those servants. But know this: If the homeowner had known at what hour the thief was coming, he would not have let his house be broken into. You also be ready, because the Son of Man is coming at an hour you do not expect.”
+
+>Revelation 22:20 (CSB) He who testifies about these things says, “Yes, I am coming soon.” Amen! Come, Lord Jesus!
 
 ## Closing Statement & Signatories
 
