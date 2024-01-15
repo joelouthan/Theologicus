@@ -17,8 +17,6 @@
 >Isaiah 50:10 (CSB) Who among you fears the LORD and listens to his servant? Who among you walks in darkness, and has no light? Let him trust in the name of the LORD; let him lean on his God.
 
 >Psalm 88 (CSB)  
-><sup></sup> A song. A psalm of the sons of Korah. For the choir director: according to Mahalath Leannoth. A Maskil of Heman the Ezrahite. 
->
 ><sup>1</sup> LORD, God of my salvation, I cry out before you day and night. 
 >
 ><sup>2</sup> May my prayer reach your presence; listen to my cry. 
@@ -80,11 +78,41 @@
 >
 ><sup>12</sup> I will reflect on all you have done and meditate on your actions.
 
+The Christian life is full of struggles. You do not have to manufacture struggles, tribulations, and torments. You do not have to believe in conspiracy theories that the world is against you. Christ has made the abundantly clear.
+
+>John 16:33 (CSB) I have told you these things so that in me you may have peace. You will have suffering in this world. Be courageous! I have conquered the world.”
+
+Look at the separation between unbelievers and believers:
+
+>John 8:23-24 (CSB) “You are from below,” he told them, “I am from above. You are of this world; I am not of this world. Therefore I told you that you will die in your sins. For if you do not believe that I am he, you will die in your sins.”
+
+Versus
+
+>John 17:15-16 (CSB) I am not praying that you take them out of the world but that you protect them from the evil one. They are not of the world, just as I am not of the world.
+
+God spoke abundantly clear. The world has its rewards now. We cannot compare our time with the persecutions of the early century church or even doing the Reformation. It might be coming for us. We do not know yet. But you don't have to come up with some conspiracy that it seems that the world is against you--your life here is not going to be easy but toil.
+
+And with Satan against you, demons against you, the world against you, and guess what, sin is against you. You can be quick to say, "Well, sure, people sin against me constantly. My manager Mike just loves to make my life difficult at work--always busting my chops." Okay there. But what your own sin going against. You and I are going to sin and there are consequences for our actions here on earth.
+
+Christ paid the penalty of sin. But you and I are still call to forgive and ask for forgiveness. We are still not of this world but very much in this world.
+
+And we grown, like Romans 8 declares, inwardly as we wait eagerly with patience for the return of Christ. Oh, I pray it happens right this instance. I hope it happens in my lifetime right now.
+
+It might not. But while we are here, like aliens from another world, we live the life we are given--loving God and loving one another.
+
+But we are never alone. The Triune God has made his home in us. We are never alone. We are never without hope. We are never without God--Father, Son, and Spirit.
+
 ### Let Me All Thy Love Accepting: yet being enabled by the Spirit to know the things which are freely given him of God, he may, without extraordinary revelation, in the right use of means, attain thereunto
 
 >1 John 4:13 (CSB) This is how we know that we remain in him and he in us: He has given us of his Spirit.
 
 >Hebrews 6:11–12 (CSB) Now we desire each of you to demonstrate the same diligence for the full assurance of your hope until the end, so that you won’t become lazy but will be imitators of those who inherit the promises through faith and perseverance.
+
+This is the real joy--not happiness based on circumstances--but real joy no matter what is going on. This is joy: that we have the same Spirit who raised Christ from the dead dwells in us and raised us up from when we were dead in our trespasses and sins. That he has secures us in God and adopts us to our Father in Christ. More so, we see the kingdom of God, we hear the words from the mouth of God, we understand the things of God, and we are in the kingdom of God.
+
+Hebrews 1 declares that the Son of God, by his perfect obedience to the Father, has been made heir of everything. Guess what? Romans 8 declares that we are co-heirs with that same Son of God who has inherited everything.
+
+We are going to suffer in some way like our Christ. But we are being conformed to the image of our Christ. Those are unbreakable promises by our Father carried out in his Son by the power of the Spirit. Amen.
 
 ### Let Me All Thy Love Accepting: and therefore it is the duty of every one to give all diligence to make his calling and election sure, that thereby his heart may be enlarged in peace and joy in the Holy Spirit, in love and thankfulness to God, and in strength and cheerfulness in the duties of obedience, the proper fruits of this assurance
 
@@ -94,11 +122,25 @@
 
 >Psalm 119:32 (CSB) I pursue the way of your commands, for you broaden my understanding.
 
+This is not a call to try to look inwardly and try to figure out if you are saved. Think about that: you are turning to yourself to see if you are saved--what, did you save yourself? Of course not. Why would you look to yourself? This is a call to turn away from self like you did when God called you and turned to the only God that can save you--Jesus Christ our Risen Lord!
+
+And guess what--since the Spirit raised you and I from death in our trespasses and sins, we are not purposeless but have a purpose and a goal: glorify God. Whatever task you are called to do, do it well. Love God and love your neighbor as yourself just as Christ did. It doesn't have to be spectacular or over the top. Your purpose is to live the life you have to the glory of his name.
+
 ### Let Me All Thy Love Accepting: so far is it from inclining men to looseness
 
 >Romans 6:1-2 (CSB) What should we say then? Should we continue in sin so that grace may multiply Absolutely not! How can we who died to sin still live in it?
 
 >Titus 2:11–14 (CSB) For the grace of God has appeared, bringing salvation for all people, instructing us to deny godlessness and worldly lusts and to live in a sensible, righteous, and godly way in the present age, while we wait for the blessed hope, the appearing of the glory of our great God and Savior, Jesus Christ. He gave himself for us to redeem us from all lawlessness and to cleanse for himself a people for his own possession, eager to do good works.
+
+We have purpose because we have the Christ. Beloved, we are going to sin. But take heart:
+
+>1 John 1:8–2:2 (CSB) If we say, “We have no sin,” we are deceiving ourselves, and the truth is not in us. If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness. If we say, “We have not sinned,” we make him a liar, and his word is not in us. My little children, I am writing you these things so that you may not sin. But if anyone does sin, we have an advocate with the Father—Jesus Christ the righteous one. He himself is the atoning sacrifice for our sins, and not only for ours, but also for those of the whole world.
+
+When we sin, we have an advocate with the Father--Jesus Christ the righteous one. The moment you start to turn away from sin, he is already there waiting for you like the father to the prodigal son--arms wide open. We are of little faith and Christ is absolutely faithful and just. Because of Christ, we instantly forgiven by God.
+
+"But what if I don't repent perfectly or sincerely enough?" What? Are you telling me that you, made of dirt and born of Adam, cannot in our hearts and emotions do anything good perfectly good? Don't you think the Father already knew that? That is why he sent to his Son. Don't look at yourself. Look to the Son who took every sin you were ever going to do away with him to the grave forever.
+
+>Romans 6:3–4 (CSB) Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life.
 
 ## The Song of Praise
 
