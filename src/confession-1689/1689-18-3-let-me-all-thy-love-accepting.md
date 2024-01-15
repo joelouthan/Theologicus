@@ -1,6 +1,17 @@
 <img class="intro-right" src="art-1689.png">
 
-# 18.3 Let Me All Thy Love Accepting: The Spirit is Given Freely to Us in Christ
+# 18.3 The Spirit is Given Freely to Us in Christ
+
+## The Song of Praise
+
+>> Let me all Thy love accepting,  
+>> Love Thee ever all my days;  
+>> Let me seek Thy Kingdom only  
+>> And my life be to Thy praise;  
+>> Thou alone shalt be my glory;  
+>> Nothing in the world I see:  
+>> Thou hast cleansed and sanctified me;  
+>> Thou Thyself hast set me free.[^1]
 
 ## The Text
 
@@ -12,7 +23,7 @@
 
 ## The Confession
 
-### Let Me All Thy Love Accepting: This infallible assurance does not so belong to the essence of faith, but that a true believer may wait long, and struggle with many difficulties before he be partaker of it
+### This infallible assurance does not so belong to the essence of faith, but that a true believer may wait long, and struggle with many difficulties before he be partaker of it
 
 >Isaiah 50:10 (CSB) Who among you fears the LORD and listens to his servant? Who among you walks in darkness, and has no light? Let him trust in the name of the LORD; let him lean on his God.
 
@@ -102,7 +113,7 @@ It might not. But while we are here, like aliens from another world, we live the
 
 But we are never alone. The Triune God has made his home in us. We are never alone. We are never without hope. We are never without God--Father, Son, and Spirit.
 
-### Let Me All Thy Love Accepting: yet being enabled by the Spirit to know the things which are freely given him of God, he may, without extraordinary revelation, in the right use of means, attain thereunto
+### yet being enabled by the Spirit to know the things which are freely given him of God, he may, without extraordinary revelation, in the right use of means, attain thereunto
 
 >1 John 4:13 (CSB) This is how we know that we remain in him and he in us: He has given us of his Spirit.
 
@@ -114,7 +125,7 @@ Hebrews 1 declares that the Son of God, by his perfect obedience to the Father, 
 
 We are going to suffer in some way like our Christ. But we are being conformed to the image of our Christ. Those are unbreakable promises by our Father carried out in his Son by the power of the Spirit. Amen.
 
-### Let Me All Thy Love Accepting: and therefore it is the duty of every one to give all diligence to make his calling and election sure, that thereby his heart may be enlarged in peace and joy in the Holy Spirit, in love and thankfulness to God, and in strength and cheerfulness in the duties of obedience, the proper fruits of this assurance
+### and therefore it is the duty of every one to give all diligence to make his calling and election sure, that thereby his heart may be enlarged in peace and joy in the Holy Spirit, in love and thankfulness to God, and in strength and cheerfulness in the duties of obedience, the proper fruits of this assurance
 
 >Romans 5:1–5 (CSB) Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. We have also obtained access through him by faith into this grace in which we stand, and we boast in the hope of the glory of God. And not only that, but we also boast in our afflictions, because we know that affliction produces endurance, endurance produces proven character, and proven character produces hope. This hope will not disappoint us, because God’s love has been poured out in our hearts through the Holy Spirit who was given to us.
 
@@ -126,7 +137,7 @@ This is not a call to try to look inwardly and try to figure out if you are save
 
 And guess what--since the Spirit raised you and I from death in our trespasses and sins, we are not purposeless but have a purpose and a goal: glorify God. Whatever task you are called to do, do it well. Love God and love your neighbor as yourself just as Christ did. It doesn't have to be spectacular or over the top. Your purpose is to live the life you have to the glory of his name.
 
-### Let Me All Thy Love Accepting: so far is it from inclining men to looseness
+### so far is it from inclining men to looseness
 
 >Romans 6:1-2 (CSB) What should we say then? Should we continue in sin so that grace may multiply Absolutely not! How can we who died to sin still live in it?
 
@@ -141,16 +152,5 @@ When we sin, we have an advocate with the Father--Jesus Christ the righteous one
 "But what if I don't repent perfectly or sincerely enough?" What? Are you telling me that you, made of dirt and born of Adam, cannot in our hearts and emotions do anything good perfectly good? Don't you think the Father already knew that? That is why he sent to his Son. Don't look at yourself. Look to the Son who took every sin you were ever going to do away with him to the grave forever.
 
 >Romans 6:3–4 (CSB) Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life.
-
-## The Song of Praise
-
->> Let me all Thy love accepting,  
->> Love Thee ever all my days;  
->> Let me seek Thy Kingdom only  
->> And my life be to Thy praise;  
->> Thou alone shalt be my glory;  
->> Nothing in the world I see:  
->> Thou hast cleansed and sanctified me;  
->> Thou Thyself hast set me free.[^1]
 
 [^1]: William Rees, “Here is Love,” 1876.

@@ -1,6 +1,17 @@
 <img class="intro-right" src="art-1689.png">
 
-# 18.1 Here is Love: Certainly Assured by Christ
+# 18.1 Certainly Assured by Christ
+
+## The Song of Praise
+
+>> Here is love, vast as the ocean,  
+>> Lovingkindness as the flood;  
+>> When the Prince of Life my ransom,  
+>> Shed for me His precious blood.  
+>> Who His love will not remember?  
+>> Who can cease to sing His praise?  
+>> He shall never be forgotten,  
+>> Through heav’n’s everlasting days.[^1]
 
 ## The Text
 
@@ -12,7 +23,7 @@
 
 ## The Confession
 
-### Here is Love: Although temporary believers and other unregenerate men, may vainly deceive themselves with false hopes and carnal presumptions of being in the favor of God and in a state of salvation, which hope of theirs shall perish
+### Although temporary believers and other unregenerate men, may vainly deceive themselves with false hopes and carnal presumptions of being in the favor of God and in a state of salvation, which hope of theirs shall perish
 
 >Job 8:13–14 (CSB) Such is the destiny of all who forget God; the hope of the godless will perish. His source of confidence is fragile; what he trusts in is a spider’s web.
 
@@ -53,7 +64,7 @@ Salvation is a complete, perfect, whole supernatural work of God. No exceptions.
 
 >John 1:12–13 (CSB) But to all who did receive him, he gave them the right to be children of God, to those who believe in his name, who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
 
-### Here is Love: yet such as truly believe in the Lord Jesus, and love him in sincerity, endeavouring to walk in all good conscience before him, may in this life be certainly assured that they are in the state of grace, and may rejoice in the hope of the glory of God
+### yet such as truly believe in the Lord Jesus, and love him in sincerity, endeavouring to walk in all good conscience before him, may in this life be certainly assured that they are in the state of grace, and may rejoice in the hope of the glory of God
 
 >1 John 2:3 (CSB) This is how we know that we know him: if we keep his commands.
 
@@ -73,7 +84,7 @@ But God.
 
 ---
 
-### Here is Love: which hope shall never make them ashamed
+### which hope shall never make them ashamed
 
 God knew and did something about it.
 
@@ -98,16 +109,5 @@ God knew us and he perfectly saved us.
 We get to boast because the Christ has us! Christ has us, the Father has made his home in us, and the Spirit dwells in us. We have the Triune God! We have the fullness of God! We have the presence of God with us! We are his Beloved and he is ours!
 
 >Psalms 23:6 (CSB) Only goodness and faithful love will pursue me all the days of my life, and I will dwell in the house of the LORD as long as I live.
-
-## The Song of Praise
-
->> Here is love, vast as the ocean,  
->> Lovingkindness as the flood;  
->> When the Prince of Life my ransom,  
->> Shed for me His precious blood.  
->> Who His love will not remember?  
->> Who can cease to sing His praise?  
->> He shall never be forgotten,  
->> Through heav’n’s everlasting days.[^1]
 
 [^1]: William Rees, “Here is Love,” 1876.
