@@ -1586,48 +1586,87 @@ True believers may have the assurance of their salvation divers ways shaken, dim
 
 ## Chapter 19: Of the Law of God
 
-### 
+### 19.1 The Instruction Of The Lord Is Perfect
 
 God gave to Adam a law of universal obedience written in his heart, and a particular precept of not eating the fruit of the tree of knowledge of good and evil; by which he bound him and all his posterity to personal, entire, exact, and perpetual obedience; promised life upon the fulfilling, and threatened death upon the breach of it, and endued him with power and ability to keep it.
 
-Genesis 1:27; Ecclesiastes 7:29; Romans 10:5; Galatians 3:10-12
+>Genesis 1:27 (CSB) So God created man in his own image; he created him in the image of God; he created them male and female.
 
-### 
+>Ecclesiastes 7:29 (CSB) Only see this: I have discovered that God made people upright, but they pursued many schemes.”
+
+>Romans 10:5 (CSB) since Moses writes about the righteousness that is from the law: The one who does these things will live by them.
+
+>Galatians 3:10–12 (CSB) For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed. Now it is clear that no one is justified before God by the law, because the righteous will live by faith. But the law is not based on faith; instead, the one who does these things will live by them.
+
+### 19.2 The Testimony Of The Lord Is Trustworthy
 
 The same law that was first written in the heart of man continued to be a perfect rule of righteousness after the fall, and was delivered by God upon Mount Sinai, in ten commandments, and written in two tables, the four first containing our duty towards God, and the other six, our duty to man.
 
-Romans 2:14-15; Deuteronomy 10:4
+>Romans 2:14–15 (CSB) So, when Gentiles, who do not by nature have the law, do what the law demands, they are a law to themselves even though they do not have the law. They show that the work of the law is written on their hearts. Their consciences confirm this. Their competing thoughts either accuse or even excuse them
 
-### 
+>Deuteronomy 10:4 (CSB) Then on the day of the assembly, the LORD wrote on the tablets what had been written previously, the Ten Commandments that he had spoken to you on the mountain from the fire. The LORD gave them to me,
+
+### 19.3 The Precepts Of The Lord Are Right
 
 Besides this law, commonly called moral, God was pleased to give to the people of Israel ceremonial laws, containing several typical ordinances, partly of worship, prefiguring Christ, his graces, actions, sufferings, and benefits; and partly holding forth divers instructions of moral duties, all which ceremonial laws being appointed only to the time of reformation, are, by Jesus Christ the true Messiah and only law-giver, who was furnished with power from the Father for that end abrogated and taken away.
 
-Hebrews 10:1; Colossians 2:17; 1 Corinthians 5:7; Colossians 2:14-17; Ephesians 2:14-16
+>Hebrews 10:1 (CSB) Since the law has only a shadow of the good things to come, and not the reality itself of those things, it can never perfect the worshipers by the same sacrifices they continually offer year after year.
 
-### 
+>Colossians 2:17 (CSB) These are a shadow of what was to come; the substance is Christ.
+
+>1 Corinthians 5:7 (CSB) Clean out the old leaven so that you may be a new unleavened batch, as indeed you are. For Christ our Passover lamb has been sacrificed.
+
+>Colossians 2:14–17 (CSB) He erased the certificate of debt, with its obligations, that was against us and opposed to us, and has taken it away by nailing it to the cross. He disarmed the rulers and authorities and disgraced them publicly; he triumphed over them in him. Therefore, don’t let anyone judge you in regard to food and drink or in the matter of a festival or a new moon or a Sabbath day. These are a shadow of what was to come; the substance is Christ.
+
+>Ephesians 2:14–16 (CSB) For he is our peace, who made both groups one and tore down the dividing wall of hostility. In his flesh, he made of no effect the law consisting of commands and expressed in regulations, so that he might create in himself one new man from the two, resulting in peace. He did this so that he might reconcile both to God in one body through the cross by which he put the hostility to death.
+
+### 19.4 The Command Of The Lord Is Radiant
 
 To them also he gave sundry judicial laws, which expired together with the state of that people, not obliging any now by virtue of that institution; their general equity only being of moral use.
 
-1 Corinthians 9:8-10
+>1 Corinthians 9:8–10 (CSB) Am I saying this from a human perspective? Doesn’t the law also say the same thing? For it is written in the law of Moses, Do not muzzle an ox while it treads out grain. Is God really concerned about oxen? Isn’t he really saying it for our sake? Yes, this is written for our sake, because he who plows ought to plow in hope, and he who threshes should thresh in hope of sharing the crop.
 
-### 
+### 19.5 The Fear Of The Lord Is Pure
 
 The moral law doth for ever bind all, as well justified persons as others, to the obedience thereof, and that not only in regard of the matter contained in it, but also in respect of the authority of God the Creator, who gave it; neither doth Christ in the Gospel any way dissolve, but much strengthen this obligation.
 
-Romans 13:8-10; James 2:8-12; James 2:10-11; Matthew 5:17-19; Romans 3:31
+>Romans 13:8–10 (CSB) Do not owe anyone anything, except to love one another, for the one who loves another has fulfilled the law. The commandments, Do not commit adultery; do not murder; do not steal; do not covet; and any other commandment, are summed up by this commandment: Love your neighbor as yourself. Love does no wrong to a neighbor. Love, therefore, is the fulfillment of the law.
 
-### 
+>James 2:8–12 (CSB) Indeed, if you fulfill the royal law prescribed in the Scripture, Love your neighbor as yourself, you are doing well. If, however, you show favoritism, you commit sin and are convicted by the law as transgressors. For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all. For he who said, Do not commit adultery, also said, Do not murder. So if you do not commit adultery, but you murder, you are a lawbreaker. Speak and act as those who are to be judged by the law of freedom.
+
+>James 2:10–11 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all. For he who said, Do not commit adultery, also said, Do not murder. So if you do not commit adultery, but you murder, you are a lawbreaker.
+
+>Matthew 5:17–19 (CSB) “Don’t think that I came to abolish the Law or the Prophets. I did not come to abolish but to fulfill. For truly I tell you, until heaven and earth pass away, not the smallest letter or one stroke of a letter will pass away from the law until all things are accomplished. Therefore, whoever breaks one of the least of these commands and teaches others to do the same will be called least in the kingdom of heaven. But whoever does and teaches these commands will be called great in the kingdom of heaven.
+
+>Romans 3:31 (CSB) Do we then nullify the law through faith? Absolutely not! On the contrary, we uphold the law.
+
+### 19.6 The Ordinances Of The Lord Are Reliable
 
 Although true believers be not under the law as a covenant of works, to be thereby justified or condemned, yet it is of great use to them as well as to others, in that as a rule of life, informing them of the will of God and their duty, it directs and binds them to walk accordingly; discovering also the sinful pollutions of their natures, hearts, and lives, so as examining themselves thereby, they may come to further conviction of, humiliation for, and hatred against, sin; together with a clearer sight of the need they have of Christ and the perfection of his obedience; it is likewise of use to the regenerate to restrain their corruptions, in that it forbids sin; and the threatenings of it serve to shew what even their sins deserve, and what afflictions in this life they may expect for them, although freed from the curse and unallayed rigour thereof. The promises of it likewise shew them God's approbation of obedience, and what blessings they may expect upon the performance thereof, though not as due to them by the law as a covenant of works; so as man's doing good and refraining from evil, because the law encourageth to the one and deterreth from the other, is no evidence of his being under the law and not under grace.
 
-Romans 6:14; Galatians 2:16; Romans 8:1; Romans 10:4; Romans 3:20; Romans 7:7-25; Romans 6:12-14; 1 Peter 3:8-13
+>Romans 6:14 (CSB) For sin will not rule over you, because you are not under the law but under grace.
 
-### 
+>Galatians 2:16 (CSB) and yet because we know that a person is not justified by the works of the law but by faith in Jesus Christ, even we ourselves have believed in Christ Jesus. This was so that we might be justified by faith in Christ and not by the works of the law, because by the works of the law no human being will be justified.
+
+>Romans 8:1 (CSB) Therefore, there is now no condemnation for those in Christ Jesus,
+
+>Romans 10:4 (CSB) For Christ is the end of the law for righteousness to everyone who believes,
+
+>Romans 3:20 (CSB) For no one will be justified in his sight by the works of the law, because the knowledge of sin comes through the law.
+
+>Romans 7:7–25 (CSB) What should we say then? Is the law sin? Absolutely not! But, I would not have known sin if it were not for the law. For example, I would not have known what it is to covet if the law had not said, Do not covet. And sin, seizing an opportunity through the commandment, produced in me coveting of every kind. For apart from the law sin is dead. Once I was alive apart from the law, but when the commandment came, sin sprang to life again and I died. The commandment that was meant for life resulted in death for me. For sin, seizing an opportunity through the commandment, deceived me, and through it killed me. So then, the law is holy, and the commandment is holy and just and good. Therefore, did what is good become death to me? Absolutely not! But, sin, in order to be recognized as sin, was producing death in me through what is good, so that through the commandment, sin might become sinful beyond measure. For we know that the law is spiritual, but I am of the flesh, sold as a slave under sin. For I do not understand what I am doing, because I do not practice what I want to do, but I do what I hate. Now if I do what I do not want to do, I agree with the law that it is good. So now I am no longer the one doing it, but it is sin living in me. For I know that nothing good lives in me, that is, in my flesh. For the desire to do what is good is with me, but there is no ability to do it. For I do not do the good that I want to do, but I practice the evil that I do not want to do. Now if I do what I do not want, I am no longer the one that does it, but it is the sin that lives in me. So I discover this law: When I want to do what is good, evil is present with me. For in my inner self I delight in God’s law, but I see a different law in the parts of my body, waging war against the law of my mind and taking me prisoner to the law of sin in the parts of my body. What a wretched man I am! Who will rescue me from this body of death? Thanks be to God through Jesus Christ our Lord! So then, with my mind I myself am serving the law of God, but with my flesh, the law of sin.
+
+>Romans 6:12–14 (CSB) Therefore do not let sin reign in your mortal body, so that you obey its desires. And do not offer any parts of it to sin as weapons for unrighteousness. But as those who are alive from the dead, offer yourselves to God, and all the parts of yourselves to God as weapons for righteousness. For sin will not rule over you, because you are not under the law but under grace.
+
+>1 Peter 3:8–13 (CSB) Finally, all of you be like-minded and sympathetic, love one another, and be compassionate and humble, not paying back evil for evil or insult for insult but, on the contrary, giving a blessing, since you were called for this, so that you may inherit a blessing. For the one who wants to love life and to see good days, let him keep his tongue from evil and his lips from speaking deceit, and let him turn away from evil and do what is good. Let him seek peace and pursue it, because the eyes of the Lord are on the righteous and his ears are open to their prayer. But the face of the Lord is against those who do what is evil. Who then will harm you if you are devoted to what is good?
+
+### 19.7 The Law Of God Is More Desirable Than Gold
 
 Neither are the aforementioned uses of the law contrary to the grace of the Gospel, but do sweetly comply with it, the Spirit of Christ subduing and enabling the will of man to do that freely and cheerfully which the will of God, revealed in the law, requireth to be done.
 
-Galatians 3:21; Ezekiel 36:27
-    
+>Galatians 3:21 (CSB) Is the law therefore contrary to God’s promises? Absolutely not! For if the law had been granted with the ability to give life, then righteousness would certainly be on the basis of the law.
+
+>Ezekiel 36:27 (CSB) I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
 
 ## Chapter 20: Of the Gospel, and of the Extent of the Grace Thereof
 
