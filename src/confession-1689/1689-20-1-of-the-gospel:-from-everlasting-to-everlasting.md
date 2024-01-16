@@ -6,5 +6,4 @@
 
 ## The Chapter
 
-## The Confesssion
-
+## The Confession
