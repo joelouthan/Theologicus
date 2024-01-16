@@ -21,5 +21,11 @@
   "peacock.color": "#832561",
   "markdown.validate.ignoredLinks": [
     "/images/art-1689.png"
-  ]
+  ],
+  "files.exclude": {
+    "*.jpeg": true,
+    "*.jpg": true,
+    "*.png": true,
+    "*.webp": true
+  }
 }

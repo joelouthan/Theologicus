@@ -1377,8 +1377,6 @@ Their ability to do good works is not all of themselves, but wholly from the Spi
 
 ### [16.4 God Gives Abundantly: Truly](1689-16-4-abundance-truly.md)
 
-
-
 They who in their obedience attain to the greatest height which is possible in this life, are so far from being able to supererogate, and to do more than God requires, as that they fall short of much which in duty they are bound to do.
 
 >Job 9:2–3 (CSB) Yes, I know what you’ve said is true, but how can a person be justified before God? If one wanted to take him to court, he could not answer God once in a thousand times.
@@ -1675,7 +1673,6 @@ Neither are the aforementioned uses of the law contrary to the grace of the Gosp
 
 ### [20.1 Of The Gospel: From Everlasting to Everlasting](1689-20-1-of-the-gospel:-from-everlasting-to-everlasting.md)
 
-
 The covenant of works being broken by sin, and made unprofitable unto life, God was pleased to give forth the promise of Christ, the seed of the woman, as the means of calling the elect, and begetting in them faith and repentance; in this promise the gospel, as to the substance of it, was revealed, and is therein effectual for the conversion and salvation of sinners.
 
 >Genesis 3:15 (CSB) I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
@@ -1938,7 +1935,6 @@ A lawful oath is a part of religious worship, wherein the person swearing in tru
 ### [23.2 Oath: The Name Of God](1689-23-2-oath:-the-name-of-god.md)
 
 The name of God only is that by which men ought to swear; and therein it is to be used, with all holy fear and reverence; therefore to swear vainly or rashly by that glorious and dreadful name, or to swear at all by any other thing, is sinful, and to be abhorred; yet as in matter of weight and moment, for confirmation of truth, and ending all strife, an oath is warranted by the word of God; so a lawful oath being imposed by lawful authority in such matters, ought to be taken.
-
 
 >Matthew 5:34–37 (CSB) But I tell you, don’t take an oath at all: either by heaven, because it is God’s throne; or by the earth, because it is his footstool; or by Jerusalem, because it is the city of the great King. Do not swear by your head, because you cannot make a single hair white or black. But let your ‘yes’ mean ‘yes,’ and your ‘no’ mean ‘no.’ Anything more than this is from the evil one.
 
@@ -2412,7 +2408,6 @@ mysteries, or be admitted thereunto; yea, whosoever shall receive unworthily, ar
 
 >Matthew 7:6 (CSB) Don’t give what is holy to dogs or toss your pearls before pigs, or they will trample them under their feet, turn, and tear you to pieces.
 
-
 ## [Chapter XXXI. Of the State of Man After Death, and of the Resurrection of the Dead](1689-31-0-index.md)
 
 ### [31.1 Made From Dust: Return to Dust](1689-31-1-made-from-dust:-return-to-dust.md)
@@ -2450,7 +2445,6 @@ At the last day, such of the saints as are found alive, shall not sleep, but be 
 >Job 19:26–27 (CSB) Even after my skin has been destroyed, yet I will see God in my flesh. I will see him myself; my eyes will look at him, and not as a stranger. My heart longs within me.
 
 >1 Corinthians 15:42–43 (CSB) So it is with the resurrection of the dead: Sown in corruption, raised in incorruption; sown in dishonor, raised in glory; sown in weakness, raised in power;
-
 
 ### [31.3 Made From Dust: Glorified By God](1689-31-3-made-from-dust:-glorified-by-god.md)
 

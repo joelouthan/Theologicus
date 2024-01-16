@@ -141,7 +141,7 @@
     - [18.4 In Thy Truth Thou Dost Direct Me: We Can Never Be Separate From The Love of God](confession-1689/1689-18-4-in-thy-truth.md)
   - [XVIX. Of the Law of God](confession-1689/1689-19-0-index.md)
     - [19.1 The Instruction Of The Lord Is Perfect](confession-1689/1689-19-1-the-instruction-of-the-lord-is-perfect.md)
-    - [19.2 The Testimony Of The Lord Is Trustworthy](confession-1689**/168**9-19-2-the-testimony-of-the-lord-is-trustworthy.md)
+    - [19.2 The Testimony Of The Lord Is Trustworthy](confession-1689/1689-19-2-the-testimony-of-the-lord-is-trustworthy.md)
     - [19.3 The Precepts Of The Lord Are Right](confession-1689/1689-19-3-the-precepts-of-the-lord-are-right.md)
     - [19.4 The Command Of The Lord Is Radiant](confession-1689/1689-19-4-the-command-of-the-lord-is-radiant.md)
     - [19.5 The Fear Of The Lord Is Pure](confession-1689/1689-19-5-the-fear-of-the-lord-is-pure.md)
