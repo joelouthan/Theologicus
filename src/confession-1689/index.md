@@ -1785,7 +1785,7 @@ They who upon pretence of Christian liberty do practice any sin, or cherish any 
 
 ## [Chapter XXII. Of Religious Worship and the Sabbath Day](1689-22-0-index.md)
 
-### [22.1 Awesome God](1689-22-1-awesome-god.md)
+### [22.1 Worship God Alone: Awesome God](1689-22-1-awesome-god.md)
 
 The light of nature shews that there is a God, who hath lordship and sovereignty over all; is just, good and doth good unto all; and is therefore to be feared, loved, praised, called upon, trusted in, and served, with all the heart and all the soul, and with all the might. But the acceptable way of worshipping the true God, is instituted by himself, and so limited by his own revealed will, that he may not be worshipped according to the imagination and devices of men, nor the suggestions of Satan, under any visible representations, or any other way not prescribed in the Holy Scriptures.
 
@@ -1797,7 +1797,7 @@ The light of nature shews that there is a God, who hath lordship and sovereignty
 
 >Exodus 20:4–6 (CSB) Do not make an idol for yourself, whether in the shape of anything in the heavens above or on the earth below or in the waters under the earth. Do not bow in worship to them, and do not serve them; for I, the LORD your God, am a jealous God, bringing the consequences of the fathers’ iniquity on the children to the third and fourth generations of those who hate me, but showing faithful love to a thousand generations of those who love me and keep my commands.
 
-### [22.2 We Will Worship the Lamb of Glory](1689-22-2-we-will-worship-the-lamb-of-glory.md)
+### [22.2 Worship God Alone: We Will Worship the Lamb of Glory](1689-22-2-we-will-worship-the-lamb-of-glory.md)
 
 Religious worship is to be given to God the Father, Son, and Holy Spirit, and to him alone; not to angels, saints, or any other creatures; and since the fall, not without a mediator, nor in the mediation of any other but Christ alone.
 
@@ -1817,7 +1817,7 @@ Religious worship is to be given to God the Father, Son, and Holy Spirit, and to
 
 >1 Timothy 2:5 (CSB) For there is one God and one mediator between God and mankind, the man Christ Jesus,
 
-### [22.3 Give Thanks](1689-22-3-give-thanks.md)
+### [22.3 Worship God Alone: Give Thanks](1689-22-3-give-thanks.md)
 
 Prayer, with thanksgiving, being one part of natural worship, is by God required of all men. But that it may be accepted, it is to be made in the name of the Son, by the help of the Spirit, according to his will; with understanding, reverence, humility, fervency, faith, love, and perseverance; and when with others, in a known tongue.
 
@@ -1833,7 +1833,7 @@ Prayer, with thanksgiving, being one part of natural worship, is by God required
 
 >1 Corinthians 14:16–17 (CSB) Otherwise, if you praise with the spirit, how will the outsider say “Amen” at your giving of thanks, since he does not know what you are saying? For you may very well be giving thanks, but the other person is not being built up.
 
-### [22.4 Pray](1689-22-4-pray.md)
+### [22.4 Worship God Alone: Pray](1689-22-4-pray.md)
 
 Prayer is to be made for things lawful, and for all sorts of men living, or that shall live hereafter; but not for the dead, nor for those of whom it may be known that they have sinned the sin unto death.
 
@@ -1845,7 +1845,7 @@ Prayer is to be made for things lawful, and for all sorts of men living, or that
 
 >1 John 5:16 (CSB) If anyone sees a fellow believer committing a sin that doesn’t lead to death, he should ask, and God will give life to him—to those who commit sin that doesn’t lead to death. There is sin that leads to death. I am not saying he should pray about that.
 
-### [22.5 As The Deer Panteth For The Water](1689-22-5-as-the-deer-panteth-for-the-water.md)
+### [22.5 Worship God Alone: As The Deer Panteth For The Water](1689-22-5-as-the-deer-panteth-for-the-water.md)
 
 The reading of the Scriptures, preaching, and hearing the Word of God, teaching and admonishing one another in psalms, hymns, and spiritual songs, singing with grace in our hearts to the Lord; as also the administration of baptism, and the Lord's supper, are all parts of religious worship of God, to be performed in obedience to him, with understanding, faith, reverence, and godly fear; moreover, solemn humiliation, with fastings, and thanksgivings, upon special occasions, ought to be used in an holy and religious manner.
 
@@ -1871,7 +1871,7 @@ The reading of the Scriptures, preaching, and hearing the Word of God, teaching 
 
 >Psalm 107 (CSB) Give thanks to the LORD, for he is good; his faithful love endures forever. Let the redeemed of the LORD proclaim that he has redeemed them from the power of the foe and has gathered them from the lands— from the east and the west, from the north and the south. Some wandered in the desolate wilderness, finding no way to a city where they could live. They were hungry and thirsty; their spirits failed within them. Then they cried out to the LORD in their trouble; he rescued them from their distress. He led them by the right path to go to a city where they could live. Let them give thanks to the LORD for his faithful love and his wondrous works for all humanity. For he has satisfied the thirsty and filled the hungry with good things. Others sat in darkness and gloom— prisoners in cruel chains— because they rebelled against God’s commands and despised the counsel of the Most High. He broke their spirits with hard labor; they stumbled, and there was no one to help. Then they cried out to the LORD in their trouble; he saved them from their distress. He brought them out of darkness and gloom and broke their chains apart. Let them give thanks to the LORD for his faithful love and his wondrous works for all humanity. For he has broken down the bronze gates and cut through the iron bars. Fools suffered affliction because of their rebellious ways and their iniquities. They loathed all food and came near the gates of death. Then they cried out to the LORD in their trouble; he saved them from their distress. He sent his word and healed them; he rescued them from their traps. Let them give thanks to the LORD for his faithful love and his wondrous works for all humanity. Let them offer thanksgiving sacrifices and announce his works with shouts of joy. Others went to sea in ships, conducting trade on the vast water. They saw the LORD’s works, his wondrous works in the deep. He spoke and raised a stormy wind that stirred up the waves of the sea. Rising up to the sky, sinking down to the depths, their courage melting away in anguish, they reeled and staggered like a drunkard, and all their skill was useless. Then they cried out to the LORD in their trouble, and he brought them out of their distress. He stilled the storm to a whisper, and the waves of the sea were hushed. They rejoiced when the waves grew quiet. Then he guided them to the harbor they longed for. Let them give thanks to the LORD for his faithful love and his wondrous works for all humanity. Let them exalt him in the assembly of the people and praise him in the council of the elders. He turns rivers into desert, springs into thirsty ground, and fruitful land into salty wasteland, because of the wickedness of its inhabitants. He turns a desert into a pool, dry land into springs. He causes the hungry to settle there, and they establish a city where they can live. They sow fields and plant vineyards that yield a fruitful harvest. He blesses them, and they multiply greatly; he does not let their livestock decrease. When they are diminished and are humbled by cruel oppression and sorrow, he pours contempt on nobles and makes them wander in a trackless wasteland. But he lifts the needy out of their suffering and makes their families multiply like flocks. The upright see it and rejoice, and all injustice shuts its mouth. Let whoever is wise pay attention to these things and consider the LORD’s acts of faithful love.
 
-### [22.6 I Exalt Thee](1689-22-6-i-exalt-thee.md)
+### [22.6 Worship God Alone: I Exalt Thee](1689-22-6-i-exalt-thee.md)
 
 Neither prayer nor any other part of religious worship, is now under the gospel, tied unto, or made more acceptable by any place in which it is performed, or towards which it is directed; but God is to be worshipped everywhere in spirit and in truth; as in private families daily, and in secret each one by himself; so more solemnly in the public assemblies, which are not carelessly nor wilfully to be neglected or forsaken, when God by his word or providence calleth thereunto.
 
@@ -1893,7 +1893,7 @@ Neither prayer nor any other part of religious worship, is now under the gospel,
 
 >Acts 2:42 (CSB) They devoted themselves to the apostles’ teaching, to the fellowship, to the breaking of bread, and to prayer.
 
-### [22.7 Great Is The Lord](1689-22-7-great-is-the-lord.md)
+### [22.7 Worship God Alone: Great Is The Lord](1689-22-7-great-is-the-lord.md)
 
 As it is the law of nature, that in general a proportion of time, by God's appointment, be set apart for the worship of God, so by his Word, in a positive moral, and perpetual commandment, binding all men, in all ages, he hath particularly appointed one day in seven for a sabbath to be kept holy unto him, which from the beginning of the
 
@@ -1907,7 +1907,7 @@ world to the resurrection of Christ was the last day of the week, and from the r
 
 >Revelation 1:10 (CSB) I was in the Spirit on the Lord’s day, and I heard a loud voice behind me like a trumpet
 
-### [22.8 Oh Lord, You're Beautiful](1689-22-8-oh-lord,-you're-beautiful.md)
+### [22.8 Worship God Alone: Oh Lord, You're Beautiful](1689-22-8-oh-lord,-you're-beautiful.md)
 
 The sabbath is then kept holy unto the Lord, when men, after a due preparing of their hearts, and ordering their common affairs aforehand, do not only observe an holy rest all day, from their own works, words and thoughts, about their worldly employment and recreations, but are also taken up the whole time in the public and private exercises of his worship, and in the duties of necessity and mercy.
 
