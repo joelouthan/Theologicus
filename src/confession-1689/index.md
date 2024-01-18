@@ -1907,7 +1907,7 @@ world to the resurrection of Christ was the last day of the week, and from the r
 
 >Revelation 1:10 (CSB) I was in the Spirit on the Lord’s day, and I heard a loud voice behind me like a trumpet
 
-### [22.8 Worship God Alone: Oh Lord, You're Beautiful](1689-22-8-oh-lord,-you're-beautiful.md)
+### [22.8 Worship God Alone: In Christ Alone](1689-22-8-in-Christ-alone.md)
 
 The sabbath is then kept holy unto the Lord, when men, after a due preparing of their hearts, and ordering their common affairs aforehand, do not only observe an holy rest all day, from their own works, words and thoughts, about their worldly employment and recreations, but are also taken up the whole time in the public and private exercises of his worship, and in the duties of necessity and mercy.
 
