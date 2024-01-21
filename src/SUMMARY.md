@@ -1271,7 +1271,7 @@
   - [Romans 8:31 Christ Saved Us](romans/romans08-31.md)
   - [Romans 8:32 Christ Is For Us](romans/romans08-32.md)
   - [Romans 8:33 Christ Justified Us](romans/romans08-33.md)
-  - [Romans 8:34 Romans 8:34 Christ Raised For Us](romans/romans08-34.md)
+  - [Romans 8:34 Christ Raised For Us](romans/romans08-34.md)
   - [Romans 8:35 Christ Defined Us](romans/romans08-35.md)
   - [Romans 8:36 Christ Died For Us](romans/romans08-36.md)
   - [Romans 8:37 Christ Loves Us](romans/romans08-37.md)
