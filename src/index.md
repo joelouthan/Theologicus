@@ -1,6 +1,6 @@
 <img class="intro-right" src="logo-theologicus.png">
 
-# Theologicus: The Complete Works in Progress
+# Theologicus: Some Expository Thoughts on the Word of God
 
 ## The Thought
 
