@@ -1,6 +1,6 @@
 <img class="intro-right" src="logo-theologicus.png">
 
-# Theologicus: Some Expository Thoughts on the Word of God
+# Theologicus: Some Expository Thoughts
 
 ## The Thought
 
