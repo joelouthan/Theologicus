@@ -91,6 +91,10 @@ You might say, "But look at the controversies and the heresies and the abuse run
 
 >Matthew 23:13–16 (CSB)  “Woe to you, scribes and Pharisees, hypocrites! You shut the door of the kingdom of heaven in people’s faces. For you don’t go in, and you don’t allow those entering to go in. “Woe to you, scribes and Pharisees, hypocrites! You travel over land and sea to make one convert, and when he becomes one, you make him twice as much a child of hell as you are! “Woe to you, blind guides, who say, ‘Whoever takes an oath by the temple, it means nothing. But whoever takes an oath by the gold of the temple is bound by his oath.’
 
+Or as Spurgeon puts it:
+
+>Today the bands of evil may environ the church of God, and threaten her with destruction; but ere long they shall pass away like the foam on the waters, and the noise of their tumult shall be silent in the grave. The darkest hour of the night is just before the turning of the morning; and then, even then, shall the Lord appear as the great ally of his church.[^spurgeon-psalms46]
+
 And for those controversies and heresies and abuse? They did not win. They did not overcome. They did not conquer. They did not shut down the Church. All the world and hell and Satan and demons could not begin to build their best assault against the kingdom of God. Why? Jesus already brought the kingdom of God here to earth. And it is finished and complete. Now, we, you and me who belong to him, are charged as gospel heralds to proclaim that the good news that Jesus Christ is Lord of all.
 
 ### and many other incomparable excellencies, and entire perfections thereof, are arguments whereby it doth abundantly evidence itself to be the Word of God
@@ -119,3 +123,5 @@ But it is only dependent on God who wills us to understanding and maturity:
 What can we do? Pray and ask God to mature us and conform us to the image of His Son so that we might see him clearer and clearer every day.
 
 [^calvin-scriptures]: John Calvin. [Institutes of the Christian Religion: Calvin's Own 'Essentials' Edition](https://www.goodreads.com/book/show/23306187-institutes-of-the-christian-religion). 199.
+
+[^spurgeon-psalms46]: Charles H. Spurgeon. [The Treasury of David: Psalms 46](https://www.christianity.com/bible/commentary.php?com=spur&b=19&c=46). 1871.
