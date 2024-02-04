@@ -2,13 +2,17 @@
 
 # 16.3 God Gives Abundantly: Spirit
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >John 3:34 (CSB) For the one whom God sent speaks God’s words, since he gives the Spirit without measure.
 
 ## The Chapter
 
-### Their ability to do good works is not all of themselves, but wholly from the Spirit of Christ; and that they may be enabled thereunto, besides the graces they have already received, there is necessary an actual influence of the same Holy Spirit, to work in them and to will and to do of his good pleasure; yet they are not bound to perform any duty, unless upon a special motion of the Spirit, but they ought to be diligent in stirring up the grace of God that is in them.
+**Their ability to do good works is not all of themselves, but wholly from the Spirit of Christ; and that they may be enabled thereunto, besides the graces they have already received, there is necessary an actual influence of the same Holy Spirit, to work in them and to will and to do of his good pleasure; yet they are not bound to perform any duty, unless upon a special motion of the Spirit, but they ought to be diligent in stirring up the grace of God that is in them.**
 
 ## The Confession
 

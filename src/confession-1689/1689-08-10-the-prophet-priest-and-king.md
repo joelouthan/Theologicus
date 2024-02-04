@@ -2,6 +2,10 @@
 
 # 1689 Baptist Confession of Faith, Chapter 8.10 The Prophet, Priest and King
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >John 19:19-22 (CSB) Pilate also had a sign made and put on the cross. It said: JESUS OF NAZARETH, THE KING OF THE JEWS. Many of the Jews read this sign, because the place where Jesus was crucified was near the city, and it was written in Aramaic, Latin, and Greek. So the chief priests of the Jews said to Pilate, “Don’t write, ‘The king of the Jews,’ but that he said, ‘I am the king of the Jews.’ ”
@@ -9,7 +13,7 @@ Pilate replied, “What I have written, I have written.”
 
 ## The Chapter
 
-### This number and order of offices is necessary; for in respect of our ignorance, we stand in need of his prophetical office; and in respect of our alienation from God, and imperfection of the best of our services, we need his priestly office to reconcile us and present us acceptable unto God; and in respect to our averseness and utter inability to return to God, and for our rescue and security from our spiritual adversaries, we need his kingly office to convince, subdue, draw, uphold, deliver, and preserve us to his heavenly kingdom.
+**This number and order of offices is necessary; for in respect of our ignorance, we stand in need of his prophetical office; and in respect of our alienation from God, and imperfection of the best of our services, we need his priestly office to reconcile us and present us acceptable unto God; and in respect to our averseness and utter inability to return to God, and for our rescue and security from our spiritual adversaries, we need his kingly office to convince, subdue, draw, uphold, deliver, and preserve us to his heavenly kingdom.**
 
 ## The Confession
 

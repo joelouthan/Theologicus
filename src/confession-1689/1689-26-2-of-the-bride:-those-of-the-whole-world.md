@@ -2,11 +2,15 @@
 
 # 26.2 Of The Bride: Those of the Whole World
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### All persons throughout the world, professing the faith of the gospel, and obedience unto God by Christ according unto it, not destroying their own profession by any errors everting the foundation, or unholiness of conversation, are and may be called visible saints; and of such ought all particular congregations to be constituted.
+**All persons throughout the world, professing the faith of the gospel, and obedience unto God by Christ according unto it, not destroying their own profession by any errors everting the foundation, or unholiness of conversation, are and may be called visible saints; and of such ought all particular congregations to be constituted.**
 
 ## The Confession
 

@@ -2,13 +2,17 @@
 
 # 17.1 Our God Saves: In His Power Alone
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Romans 1:16–17 (CSB) For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek. For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
 
 ## The Chapter
 
-### Those whom God hath accepted in the beloved, effectually called and sanctified by his Spirit, and given the precious faith of his elect unto, can neither totally nor finally fall from the state of grace, but shall certainly persevere therein to the end, and be eternally saved, seeing the gifts and callings of God are without repentance, whence he still begets and nourisheth in them faith, repentance, love, joy, hope, and all the graces of the Spirit unto immortality; and though many storms and floods arise and beat against them, yet they shall never be able to take them off that foundation and rock which by faith they are fastened upon; notwithstanding, through unbelief and the temptations of Satan, the sensible sight of the light and love of God may for a time be clouded and obscured from them, yet he is still the same, and they shall be sure to be kept by the power of God unto salvation, where they shall enjoy their purchased possession, they being engraven upon the palm of his hands, and their names having been written in the book of life from all eternity.
+**Those whom God hath accepted in the beloved, effectually called and sanctified by his Spirit, and given the precious faith of his elect unto, can neither totally nor finally fall from the state of grace, but shall certainly persevere therein to the end, and be eternally saved, seeing the gifts and callings of God are without repentance, whence he still begets and nourisheth in them faith, repentance, love, joy, hope, and all the graces of the Spirit unto immortality; and though many storms and floods arise and beat against them, yet they shall never be able to take them off that foundation and rock which by faith they are fastened upon; notwithstanding, through unbelief and the temptations of Satan, the sensible sight of the light and love of God may for a time be clouded and obscured from them, yet he is still the same, and they shall be sure to be kept by the power of God unto salvation, where they shall enjoy their purchased possession, they being engraven upon the palm of his hands, and their names having been written in the book of life from all eternity.**
 
 ## The Confession
 

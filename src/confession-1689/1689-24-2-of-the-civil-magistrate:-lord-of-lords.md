@@ -2,11 +2,15 @@
 
 # 24.2 Of the Civil Magistrate: Lord of Lords
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### It is lawful for Christians to accept and execute the office of a magistrate when called there unto; in the management whereof, as they ought especially to maintain justice and peace, according to the wholesome laws of each kingdom and commonwealth, so for that end they may lawfully now, under the New Testament wage war upon just and necessary occasions.
+**It is lawful for Christians to accept and execute the office of a magistrate when called there unto; in the management whereof, as they ought especially to maintain justice and peace, according to the wholesome laws of each kingdom and commonwealth, so for that end they may lawfully now, under the New Testament wage war upon just and necessary occasions.**
 
 ## The Confession
 

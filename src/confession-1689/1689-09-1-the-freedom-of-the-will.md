@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 9.1 The Freedom of the Will
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Genesis 1:27 (CSB) So God created man in his own image; he created him in the image of God; he created them male and female.
 
 ## The Chapter
 
-### God hath endued the will of man with that natural liberty and power of acting upon choice, that it is neither forced, nor by any necessity of nature determined to do good or evil.
+**God hath endued the will of man with that natural liberty and power of acting upon choice, that it is neither forced, nor by any necessity of nature determined to do good or evil.**
 
 ## The Confession
 

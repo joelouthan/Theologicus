@@ -2,11 +2,15 @@
 
 # 26.6 Of The Bride: The Good Trees
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### The members of these churches are saints by calling, visibly manifesting and evidencing (in and by their profession and walking) their obedience unto that call of Christ; and do willingly consent to walk together, according to the appointment of Christ; giving up themselves to the Lord, and one to another, by the will of God, in professed subjection to the ordinances of the Gospel.
+**The members of these churches are saints by calling, visibly manifesting and evidencing (in and by their profession and walking) their obedience unto that call of Christ; and do willingly consent to walk together, according to the appointment of Christ; giving up themselves to the Lord, and one to another, by the will of God, in professed subjection to the ordinances of the Gospel.**
 
 ## The Confession
 

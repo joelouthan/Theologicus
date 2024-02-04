@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 10.3 The Calling of God Independent of Us
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Romans 1:18-19 (CSB) For God’s wrath is revealed from heaven against all godlessness and unrighteousness of people who by their unrighteousness suppress the truth, since what can be known about God is evident among them, because God has shown it to them.
 
 ## The Chapter
 
-### Elect infants dying in infancy are regenerated and saved by Christ through the Spirit; who worketh when, and where, and how he pleases; so also are all elect persons, who are incapable of being outwardly called by the ministry of the Word.
+**Elect infants dying in infancy are regenerated and saved by Christ through the Spirit; who worketh when, and where, and how he pleases; so also are all elect persons, who are incapable of being outwardly called by the ministry of the Word.**
 
 ## The Confession
 

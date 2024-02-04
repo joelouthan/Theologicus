@@ -2,11 +2,15 @@
 
 # 28.2 The Sacraments: Commission by Christ
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### These holy appointments are to be administered by those only who are qualified and thereunto called, according to the commission of Christ.
+**These holy appointments are to be administered by those only who are qualified and thereunto called, according to the commission of Christ.**
 
 ## The Confession
 

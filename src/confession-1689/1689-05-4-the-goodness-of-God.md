@@ -2,6 +2,10 @@
 
 # 1689 Baptist Confession of Faith, Chapter 5.4 The Goodness of God
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Ephesians 3:14-21 (CSB) For this reason I kneel before the Father from whom every family in heaven and on earth is named. I pray that he may grant you, according to the riches of his glory, to be strengthened with power in your inner being through his Spirit, and that Christ may dwell in your hearts through faith. I pray that you, being rooted and firmly established in love, may be able to comprehend with all the saints what is the length and width, height and depth of God’s love, and to know Christ’s love that surpasses knowledge, so that you may be filled with all the fullness of God.
@@ -10,7 +14,7 @@
 
 ## The Chapter
 
-### The almighty power, unsearchable wisdom, and infinite goodness of God, so far manifest themselves in his providence, that his determinate counsel extendeth itself even to the first fall, and all other sinful actions both of angels and men; and that not by a bare permission, which also he most wisely and powerfully boundeth, and otherwise ordereth and governeth, in a manifold dispensation to his most holy ends; yet so, as the sinfulness of their acts proceedeth only from the creatures, and not from God, who, being most holy and righteous, neither is nor can be the author or approver of sin.
+**The almighty power, unsearchable wisdom, and infinite goodness of God, so far manifest themselves in his providence, that his determinate counsel extendeth itself even to the first fall, and all other sinful actions both of angels and men; and that not by a bare permission, which also he most wisely and powerfully boundeth, and otherwise ordereth and governeth, in a manifold dispensation to his most holy ends; yet so, as the sinfulness of their acts proceedeth only from the creatures, and not from God, who, being most holy and righteous, neither is nor can be the author or approver of sin.**
 
 ## The Confession
 

@@ -2,11 +2,15 @@
 
 # 27.2 Communion of the Saints: Cattle On A Thousand Hills
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### Saints by profession are bound to maintain an holy fellowship and communion in the worship of God, and in performing such other spiritual services as tend to their mutual edification; as also in relieving each other in outward things according to their several abilities, and necessities; which communion, according to the rule of the gospel, though especially to be exercised by them, in the relation wherein they stand, whether in families, or churches, yet, as God offereth opportunity, is to be extended to all the household of faith, even all those who in every place call upon the name of the Lord Jesus; nevertheless their communion one with another as saints, doth not take away or infringe the title or propriety which each man hath in his goods and possessions.
+**Saints by profession are bound to maintain an holy fellowship and communion in the worship of God, and in performing such other spiritual services as tend to their mutual edification; as also in relieving each other in outward things according to their several abilities, and necessities; which communion, according to the rule of the gospel, though especially to be exercised by them, in the relation wherein they stand, whether in families, or churches, yet, as God offereth opportunity, is to be extended to all the household of faith, even all those who in every place call upon the name of the Lord Jesus; nevertheless their communion one with another as saints, doth not take away or infringe the title or propriety which each man hath in his goods and possessions.**
 
 ## The Confession
 

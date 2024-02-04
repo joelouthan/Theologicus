@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 9.4 The Rescue of the Will
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Romans 8:20-21 (CSB) For the creation was subjected to futility — not willingly, but because of him who subjected it — in the hope that the creation itself will also be set free from the bondage to decay into the glorious freedom of God’s children.
 
 ## The Chapter
 
-### When God converts a sinner, and translates him into the state of grace, he freeth him from his natural bondage under sin, and by his grace alone enables him freely to will and to do that which is spiritually good; yet so as that by reason of his remaining corruptions, he doth not perfectly, nor only will, that which is good, but doth also will that which is evil.
+**When God converts a sinner, and translates him into the state of grace, he freeth him from his natural bondage under sin, and by his grace alone enables him freely to will and to do that which is spiritually good; yet so as that by reason of his remaining corruptions, he doth not perfectly, nor only will, that which is good, but doth also will that which is evil.**
 
 ## The Confession
 

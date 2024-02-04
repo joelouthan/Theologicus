@@ -2,13 +2,17 @@
 
 # 19.2 The Testimony Of The Lord Is Trustworthy
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Psalm 19:7b (CSB) [...] the testimony of the LORD is trustworthy, making the inexperienced wise.
 
 ## The Chapter
 
-### The same law that was first written in the heart of man continued to be a perfect rule of righteousness after the fall, and was delivered by God upon Mount Sinai, in ten commandments, and written in two tables, the four first containing our duty towards God, and the other six, our duty to man.
+**The same law that was first written in the heart of man continued to be a perfect rule of righteousness after the fall, and was delivered by God upon Mount Sinai, in ten commandments, and written in two tables, the four first containing our duty towards God, and the other six, our duty to man.**
 
 ## The Confession
 

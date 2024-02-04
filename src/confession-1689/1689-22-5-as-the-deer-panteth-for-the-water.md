@@ -4,11 +4,15 @@
 
 ### Worship: As The Deer Panteth For The Water
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### The reading of the Scriptures, preaching, and hearing the Word of God, teaching and admonishing one another in psalms, hymns, and spiritual songs, singing with grace in our hearts to the Lord; as also the administration of baptism, and the Lord's supper, are all parts of religious worship of God, to be performed in obedience to him, with understanding, faith, reverence, and godly fear; moreover, solemn humiliation, with fastings, and thanksgivings, upon special occasions, ought to be used in an holy and religious manner.
+**The reading of the Scriptures, preaching, and hearing the Word of God, teaching and admonishing one another in psalms, hymns, and spiritual songs, singing with grace in our hearts to the Lord; as also the administration of baptism, and the Lord's supper, are all parts of religious worship of God, to be performed in obedience to him, with understanding, faith, reverence, and godly fear; moreover, solemn humiliation, with fastings, and thanksgivings, upon special occasions, ought to be used in an holy and religious manner.**
 
 ## The Confession
 

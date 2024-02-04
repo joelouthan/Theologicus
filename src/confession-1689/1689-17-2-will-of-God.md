@@ -2,6 +2,10 @@
 
 # 17.2 Our God Saves: By His Will
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Revelation 5:11–14 (CSB)  
@@ -15,7 +19,7 @@
 
 ## The Chapter
 
-### This perseverance of the saints depends not upon their own free will, but upon the immutability of the decree of election, flowing from the free and unchangeable love of God the Father, upon the efficacy of the merit and intercession of Jesus Christ and union with him, the oath of God, the abiding of his Spirit, and the seed of God within them, and the nature of the covenant of grace; from all which ariseth also the certainty and infallibility thereof.
+**This perseverance of the saints depends not upon their own free will, but upon the immutability of the decree of election, flowing from the free and unchangeable love of God the Father, upon the efficacy of the merit and intercession of Jesus Christ and union with him, the oath of God, the abiding of his Spirit, and the seed of God within them, and the nature of the covenant of grace; from all which ariseth also the certainty and infallibility thereof.**
 
 ## The Confession
 

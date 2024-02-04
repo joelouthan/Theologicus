@@ -2,11 +2,15 @@
 
 # 23.3 Oath: The Weight of Glory
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### Whosoever taketh an oath warranted by the Word of God, ought duly to consider the weightiness of so solemn an act, and therein to avouch nothing but what he knoweth to be truth; for that by rash, false, and vain oaths, the Lord is provoked, and for them this land mourns.
+**Whosoever taketh an oath warranted by the Word of God, ought duly to consider the weightiness of so solemn an act, and therein to avouch nothing but what he knoweth to be truth; for that by rash, false, and vain oaths, the Lord is provoked, and for them this land mourns.**
 
 ## The Confession
 

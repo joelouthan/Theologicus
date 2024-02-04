@@ -2,6 +2,10 @@
 
 # 15.1 God Gives More: Repentance
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Job 25:4-6 (CSB) How can a human be justified before God?  
@@ -13,7 +17,7 @@
 
 ## The Chapter
 
-### Such of the elect as are converted at riper years, having sometime lived in the state of nature, and therein served divers lusts and pleasures, God in their effectual calling giveth them repentance unto life.
+**Such of the elect as are converted at riper years, having sometime lived in the state of nature, and therein served divers lusts and pleasures, God in their effectual calling giveth them repentance unto life.**
 
 ## The Confession
 

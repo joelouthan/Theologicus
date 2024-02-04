@@ -2,6 +2,10 @@
 
 # 13.2 What God Does: The Christ Lived and Died for Us
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Romans 7:14–21 (CSB)  
@@ -23,7 +27,7 @@
 
 ## The Chapter
 
-### This sanctification is throughout the whole man, yet imperfect in this life; there abides still some remnants of corruption in every part, wherefrom arises a continual and irreconcilable war; the flesh lusting against the Spirit, and the Spirit against the flesh.
+**This sanctification is throughout the whole man, yet imperfect in this life; there abides still some remnants of corruption in every part, wherefrom arises a continual and irreconcilable war; the flesh lusting against the Spirit, and the Spirit against the flesh.**
 
 ## The Confession
 

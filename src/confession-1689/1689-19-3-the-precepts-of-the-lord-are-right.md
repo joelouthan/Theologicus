@@ -2,13 +2,17 @@
 
 # 19.3 The Precepts Of The Lord Are Right
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Psalm 19:8a (CSB) The precepts of the LORD are right, making the heart glad;
 
 ## The Chapter
 
-### Besides this law, commonly called moral, God was pleased to give to the people of Israel ceremonial laws, containing several typical ordinances, partly of worship, prefiguring Christ, his graces, actions, sufferings, and benefits; and partly holding forth divers instructions of moral duties, all which ceremonial laws being appointed only to the time of reformation, are, by Jesus Christ the true Messiah and only law-giver, who was furnished with power from the Father for that end abrogated and taken away.
+**Besides this law, commonly called moral, God was pleased to give to the people of Israel ceremonial laws, containing several typical ordinances, partly of worship, prefiguring Christ, his graces, actions, sufferings, and benefits; and partly holding forth divers instructions of moral duties, all which ceremonial laws being appointed only to the time of reformation, are, by Jesus Christ the true Messiah and only law-giver, who was furnished with power from the Father for that end abrogated and taken away.**
 
 ## The Confession
 

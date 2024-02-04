@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 3.2 The Decretive Will of God
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Romans 3:25–26 (CSB) God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.
 
 ## The Chapter
 
-### Although God knows whatsoever may or can come to pass, upon all supposed conditions, yet had he not decreed anything, because he foresaw it as future, or as that which would come to pass upon such conditions.
+**Although God knows whatsoever may or can come to pass, upon all supposed conditions, yet had he not decreed anything, because he foresaw it as future, or as that which would come to pass upon such conditions.**
 
 ## The Confession
 

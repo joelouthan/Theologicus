@@ -2,11 +2,15 @@
 
 # 30.8 Lord's Supper: Does Not Belong to Unbelievers
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### All ignorant and ungodly persons, as they are unfit to enjoy communion with Christ, so are they unworthy of the Lord's table, and cannot, without great sin against him, while they remain such, partake of these holy mysteries, or be admitted thereunto; yea, whosoever shall receive unworthily, are guilty of the body and blood of the Lord, eating and drinking judgment to themselves.
+**All ignorant and ungodly persons, as they are unfit to enjoy communion with Christ, so are they unworthy of the Lord's table, and cannot, without great sin against him, while they remain such, partake of these holy mysteries, or be admitted thereunto; yea, whosoever shall receive unworthily, are guilty of the body and blood of the Lord, eating and drinking judgment to themselves.**
 
 ## The Confession
 

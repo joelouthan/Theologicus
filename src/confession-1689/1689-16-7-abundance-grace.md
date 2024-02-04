@@ -2,13 +2,17 @@
 
 # 16.7 God Gives Abundantly: Grace
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Isaiah 64:6 (CSB) All of us have become like something unclean, and all our righteous acts are like a polluted garment; all of us wither like a leaf, and our iniquities carry us away like the wind.
 
 ## The Chapter
 
-### Works done by unregenerate men, although for the matter of them they may be things which God commands, and of good use both to themselves and to others; yet because they proceed not from a heart purified by faith, nor are done in a right manner according to the Word, nor to a right end, the glory of God, they are therefore sinful, and cannot please God, nor make a man meet to receive the grace from God, and yet their neglect for them is more sinful and displeasing to God.
+**Works done by unregenerate men, although for the matter of them they may be things which God commands, and of good use both to themselves and to others; yet because they proceed not from a heart purified by faith, nor are done in a right manner according to the Word, nor to a right end, the glory of God, they are therefore sinful, and cannot please God, nor make a man meet to receive the grace from God, and yet their neglect for them is more sinful and displeasing to God.**
 
 ## The Confession
 

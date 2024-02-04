@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 3.3 The Predestination & Foreordination of God
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >1 Timothy 1:17 (CSB) Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
 
 ## The Chapter
 
-### By the decree of God, for the manifestation of his glory, some men and angels are predestinated, or foreordained to eternal life through Jesus Christ, to the praise of his glorious grace; others being left to act in their sin to their just condemnation, to the praise of his glorious justice.
+**By the decree of God, for the manifestation of his glory, some men and angels are predestinated, or foreordained to eternal life through Jesus Christ, to the praise of his glorious grace; others being left to act in their sin to their just condemnation, to the praise of his glorious justice.**
 
 ## The Confession
 

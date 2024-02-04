@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 5.3 The Freedom of God
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Ephesians 1:9-10 (CSB) He made known to us the mystery of his will, according to his good pleasure that he purposed in Christ as a plan for the right time — to bring everything together in Christ, both things in heaven and things on earth in him.
 
 ## The Chapter
 
-### God, in his ordinary providence maketh use of means, yet is free to work without, above, and against them at his pleasure.
+**God, in his ordinary providence maketh use of means, yet is free to work without, above, and against them at his pleasure.**
 
 ## The Confession
 

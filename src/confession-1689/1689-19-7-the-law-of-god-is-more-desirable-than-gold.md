@@ -2,6 +2,10 @@
 
 # 19.7 The Law Of God Is More Desirable Than Gold
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Psalms 19:10-11 (CSB)  
@@ -14,7 +18,7 @@
 
 ## The Chapter
 
-### Neither are the aforementioned uses of the law contrary to the grace of the Gospel, but do sweetly comply with it, the Spirit of Christ subduing and enabling the will of man to do that freely and cheerfully which the will of God, revealed in the law, requireth to be done.
+**Neither are the aforementioned uses of the law contrary to the grace of the Gospel, but do sweetly comply with it, the Spirit of Christ subduing and enabling the will of man to do that freely and cheerfully which the will of God, revealed in the law, requireth to be done.**
 
 ## The Confession
 

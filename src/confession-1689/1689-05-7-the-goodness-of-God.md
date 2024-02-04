@@ -2,6 +2,10 @@
 
 # 1689 Baptist Confession of Faith, Chapter 5.7 The Goodness of God
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Numbers 11:21-23 (CSB) But Moses replied, “I’m in the middle of a people with six hundred thousand foot soldiers, yet you say, ‘I will give them meat, and they will eat for a month.’ If flocks and herds were slaughtered for them, would they have enough? Or if all the fish in the sea were caught for them, would they have enough? ”
@@ -10,7 +14,7 @@
 
 ## The Chapter
 
-### As the providence of God doth in general reach to all creatures, so after a more special manner it taketh care of his church, and disposeth of all things to the good thereof.
+**As the providence of God doth in general reach to all creatures, so after a more special manner it taketh care of his church, and disposeth of all things to the good thereof.**
 
 ## The Confession
 

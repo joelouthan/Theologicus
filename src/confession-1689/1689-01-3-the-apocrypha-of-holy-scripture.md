@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 1.3 The Apocrypha of Holy Scripture
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Luke 24:25-27 (CSB) He said to them, “How foolish you are, and how slow to believe all that the prophets have spoken! Wasn’t it necessary for the Messiah to suffer these things and enter into his glory?” Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
 
 ## The Chapter
 
-### The books commonly called Apocrypha, not being of divine inspiration, are no part of the canon or rule of the Scripture, and, therefore, are of no authority to the church of God, nor to be any otherwise approved or made use of than other human writings.
+**The books commonly called Apocrypha, not being of divine inspiration, are no part of the canon or rule of the Scripture, and, therefore, are of no authority to the church of God, nor to be any otherwise approved or made use of than other human writings.**
 
 ## The Confession
 

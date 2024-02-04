@@ -2,13 +2,17 @@
 
 # 19.5 The Fear Of The Lord Is Pure
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Psalm 19:9a (CSB) The fear of the LORD is pure, enduring forever;
 
 ## The Chapter
 
-### The moral law doth for ever bind all, as well justified persons as others, to the obedience thereof, and that not only in regard of the matter contained in it, but also in respect of the authority of God the Creator, who gave it; neither doth Christ in the Gospel any way dissolve, but much strengthen this obligation.
+**The moral law doth for ever bind all, as well justified persons as others, to the obedience thereof, and that not only in regard of the matter contained in it, but also in respect of the authority of God the Creator, who gave it; neither doth Christ in the Gospel any way dissolve, but much strengthen this obligation.**
 
 ## The Confession
 

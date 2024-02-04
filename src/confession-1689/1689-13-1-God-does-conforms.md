@@ -2,13 +2,17 @@
 
 # 13.1 What God Does: The Father Conforms Us
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >John 3:14–15 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
 
 ## The Chapter
 
-### They who are united to Christ, effectually called, and regenerated, having a new heart and a new spirit created in them through the virtue of Christ's death and resurrection, are also farther sanctified, really and personally, through the same virtue, by his Word and Spirit dwelling in them; the dominion of the whole body of sin is destroyed, and the several lusts of it are more and more weakened and mortified, and they more and more quickened and strengthened in all saving graces, to the practice of all true holiness, without which no man shall see the Lord.
+**They who are united to Christ, effectually called, and regenerated, having a new heart and a new spirit created in them through the virtue of Christ's death and resurrection, are also farther sanctified, really and personally, through the same virtue, by his Word and Spirit dwelling in them; the dominion of the whole body of sin is destroyed, and the several lusts of it are more and more weakened and mortified, and they more and more quickened and strengthened in all saving graces, to the practice of all true holiness, without which no man shall see the Lord.**
 
 ## The Confession
 

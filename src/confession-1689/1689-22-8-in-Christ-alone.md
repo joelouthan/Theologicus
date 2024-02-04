@@ -2,6 +2,10 @@
 
 # 22.8 Worship God Alone: In Christ Alone
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Genesis 2:2-3 (CSB) On the seventh day God had completed his work that he had done, and he rested on the seventh day from all his work that he had done. God blessed the seventh day and declared it holy, for on it he rested from all his work of creation.
@@ -10,7 +14,7 @@
 
 ## The Chapter
 
-### The sabbath is then kept holy unto the Lord, when men, after a due preparing of their hearts, and ordering their common affairs aforehand, do not only observe an holy rest all day, from their own works, words and thoughts, about their worldly employment and recreations, but are also taken up the whole time in the public and private exercises of his worship, and in the duties of necessity and mercy.
+**The sabbath is then kept holy unto the Lord, when men, after a due preparing of their hearts, and ordering their common affairs aforehand, do not only observe an holy rest all day, from their own works, words and thoughts, about their worldly employment and recreations, but are also taken up the whole time in the public and private exercises of his worship, and in the duties of necessity and mercy.**
 
 ## The Confession
 

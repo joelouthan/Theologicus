@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 6.5 The Nature of Mankind
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
 ## The Chapter
 
-### The corruption of nature, during this life, doth remain in those that are regenerated; and although it be through Christ pardoned and mortified, yet both itself, and the first motions thereof, are truly and properly sin.
+**The corruption of nature, during this life, doth remain in those that are regenerated; and although it be through Christ pardoned and mortified, yet both itself, and the first motions thereof, are truly and properly sin.**
 
 ## The Confession
 

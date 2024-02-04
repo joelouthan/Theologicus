@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 3.4 The Certainty of God
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Luke 12:7 (CSB) Indeed, the hairs of your head are all counted. Don’t be afraid; you are worth more than many sparrows.
 
 ## The Chapter
 
-### These angels and men thus predestinated and foreordained, are particularly and unchangeably designed, and their number so certain and definite, that it cannot be either increased or diminished.
+**These angels and men thus predestinated and foreordained, are particularly and unchangeably designed, and their number so certain and definite, that it cannot be either increased or diminished.**
 
 ## The Confession
 

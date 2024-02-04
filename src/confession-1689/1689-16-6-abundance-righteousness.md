@@ -2,13 +2,17 @@
 
 # 16.6 God Gives Abundantly: Righteousness
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Luke 15:21–24 (CSB) The son said to him, ‘Father, I have sinned against heaven and in your sight. I’m no longer worthy to be called your son.’ <bgy>“But the father told his servants, ‘Quick! Bring out the best robe and put it on him; put a ring on his finger and sandals on his feet. Then bring the fattened calf and slaughter it, and let’s celebrate with a feast, because this son of mine was dead and is alive again; he was lost and is found!’ So they began to celebrate.</bgy>
 
 ## The Chapter
 
-### Yet notwithstanding the persons of believers being accepted through Christ, their good works also are accepted in him; not as though they were in this life wholly unblamable and unreprovable in God’s sight, but that he, looking upon them in his Son, is pleased to accept and reward that which is sincere, although accompanied with many weaknesses and imperfections.
+**Yet notwithstanding the persons of believers being accepted through Christ, their good works also are accepted in him; not as though they were in this life wholly unblamable and unreprovable in God’s sight, but that he, looking upon them in his Son, is pleased to accept and reward that which is sincere, although accompanied with many weaknesses and imperfections.**
 
 ## The Confession
 

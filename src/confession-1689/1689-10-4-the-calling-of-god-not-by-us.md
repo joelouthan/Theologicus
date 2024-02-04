@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 10.4 The Calling of God Not By Us
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >1 Corinthians 12:3 (CSB) Therefore I want you to know that no one speaking by the Spirit of God says, “Jesus is cursed,” and no one can say, “Jesus is Lord,” except by the Holy Spirit.
 
 ## The Chapter
 
-### Others not elected, although they may be called by the ministry of the Word, and may have some common operations of the Spirit, yet not being effectually drawn by the Father, they neither will nor can truly come to Christ, and therefore cannot be saved: much less can men that receive not the Christian religion be saved; be they never so diligent to frame their lives according to the light of nature and the law of that religion they do profess.
+**Others not elected, although they may be called by the ministry of the Word, and may have some common operations of the Spirit, yet not being effectually drawn by the Father, they neither will nor can truly come to Christ, and therefore cannot be saved: much less can men that receive not the Christian religion be saved; be they never so diligent to frame their lives according to the light of nature and the law of that religion they do profess.**
 
 ## The Confession
 

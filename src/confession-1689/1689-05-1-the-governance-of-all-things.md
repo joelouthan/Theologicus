@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 5.1 The Governance of All Things
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Revelation 1:8 (CSB) “I am the Alpha and the Omega,” says the Lord God, “the one who is, who was, and who is to come, the Almighty.”
 
 ## The Chapter
 
-### God the good Creator of all things, in His infinite power and wisdom does uphold, direct, dispose, and govern all creatures and things, from the greatest even to the least, by His most wise and holy providence, to the end for the which they were created, according unto His infallible foreknowledge, and the free and immutable counsel of His own will; to the praise of the glory of His wisdom, power, justice, infinite goodness, and mercy.
+**God the good Creator of all things, in His infinite power and wisdom does uphold, direct, dispose, and govern all creatures and things, from the greatest even to the least, by His most wise and holy providence, to the end for the which they were created, according unto His infallible foreknowledge, and the free and immutable counsel of His own will; to the praise of the glory of His wisdom, power, justice, infinite goodness, and mercy.**
 
 ## The Confession
 

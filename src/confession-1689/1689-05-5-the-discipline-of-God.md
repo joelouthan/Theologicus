@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 5.5 The Discipline of God
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >2 Chronicles 7:14 (CSB) and my people, who bear my name, humble themselves, pray and seek my face, and turn from their evil ways, then I will hear from heaven, forgive their sin, and heal their land.
 
 ## The Chapter
 
-### The most wise, righteous, and gracious God doth oftentimes leave for a season his own children to manifold temptations and the corruptions of their own hearts, to chastise them for their former sins, or to discover unto them the hidden strength of corruption and deceitfulness of their hearts, that they may be humbled; and to raise them to a more close and constant dependence for their support upon himself; and to make them more watchful against all future occasions of sin, and for other just and holy ends. So that whatsoever befalls any of his elect is by his appointment, for his glory, and their good.
+**The most wise, righteous, and gracious God doth oftentimes leave for a season his own children to manifold temptations and the corruptions of their own hearts, to chastise them for their former sins, or to discover unto them the hidden strength of corruption and deceitfulness of their hearts, that they may be humbled; and to raise them to a more close and constant dependence for their support upon himself; and to make them more watchful against all future occasions of sin, and for other just and holy ends. So that whatsoever befalls any of his elect is by his appointment, for his glory, and their good.**
 
 ## The Confession
 

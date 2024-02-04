@@ -2,11 +2,15 @@
 
 # 32.3 The Quick & The Dead: Come Lord Jesus--Amen
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### As Christ would have us to be certainly persuaded that there shall be a day of judgment, both to deter all men from sin, and for the greater consolation of the godly in their adversity, so will he have the day unknown to men, that they may shake off all carnal security, and be always watchful, because they know not at what hour the Lord will come, and may ever be prepared to say, Come Lord Jesus; come quickly. Amen.
+**As Christ would have us to be certainly persuaded that there shall be a day of judgment, both to deter all men from sin, and for the greater consolation of the godly in their adversity, so will he have the day unknown to men, that they may shake off all carnal security, and be always watchful, because they know not at what hour the Lord will come, and may ever be prepared to say, Come Lord Jesus; come quickly. Amen.**
 
 ## The Confession
 

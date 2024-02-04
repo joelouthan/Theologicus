@@ -2,13 +2,17 @@
 
 # 20.3 Of The Gospel: Only Begotten Son
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >John 3:14–17 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life. For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
 
 ## The Chapter
 
-### The revelation of the gospel unto sinners, made in divers times and by sundry parts, with the addition of promises and precepts for the obedience required therein, as to the nations and persons to whom it is granted, is merely of the sovereign will and good pleasure of God; not being annexed by virtue of any promise to the due improvement of men's natural abilities, by virtue of common light received without it, which none ever did make, or can do so; and therefore in all ages, the preaching of the gospel has been granted unto persons and nations, as to the extent or straitening of it, in great variety, according to the counsel of the will of God.
+**The revelation of the gospel unto sinners, made in divers times and by sundry parts, with the addition of promises and precepts for the obedience required therein, as to the nations and persons to whom it is granted, is merely of the sovereign will and good pleasure of God; not being annexed by virtue of any promise to the due improvement of men's natural abilities, by virtue of common light received without it, which none ever did make, or can do so; and therefore in all ages, the preaching of the gospel has been granted unto persons and nations, as to the extent or straitening of it, in great variety, according to the counsel of the will of God.**
 
 ## The Confession
 

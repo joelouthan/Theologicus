@@ -2,13 +2,17 @@
 
 # 14.3 What God Gives: God
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Mark 9:24 (CSB) Immediately the father of the boy cried out, “I do believe; help my unbelief!”
 
 ## The Chapter
 
-### This faith, although it be different in degrees, and may be weak or strong, yet it is in the least degree of it different in the kind or nature of it, as is all other saving grace, from the faith and common grace of temporary believers; and therefore, though it may be many times assailed and weakened, yet it gets the victory, growing up in many to the attainment of a full assurance through Christ, who is both the author and finisher of our faith.
+**This faith, although it be different in degrees, and may be weak or strong, yet it is in the least degree of it different in the kind or nature of it, as is all other saving grace, from the faith and common grace of temporary believers; and therefore, though it may be many times assailed and weakened, yet it gets the victory, growing up in many to the attainment of a full assurance through Christ, who is both the author and finisher of our faith.**
 
 ## The Confession
 

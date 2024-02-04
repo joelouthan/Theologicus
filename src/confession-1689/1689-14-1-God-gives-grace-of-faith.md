@@ -2,13 +2,17 @@
 
 # 14.1 What God Gives: The Grace of Faith
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Genesis 6:7-9 (CSB) Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky — for I regret that I made them.” Noah, however, found favor with the LORD. These are the family records of Noah. Noah was a righteous man, blameless among his contemporaries; Noah walked with God.
 
 ## The Chapter
 
-### The grace of faith, whereby the elect are enabled to believe to the saving of their souls, is the work of the Spirit of Christ in their hearts, and is ordinarily wrought by the ministry of the Word; by which also, and by the administration of baptism and the Lord's supper, prayer, and other means appointed of God, it is increased and strengthened.
+**The grace of faith, whereby the elect are enabled to believe to the saving of their souls, is the work of the Spirit of Christ in their hearts, and is ordinarily wrought by the ministry of the Word; by which also, and by the administration of baptism and the Lord's supper, prayer, and other means appointed of God, it is increased and strengthened.**
 
 ## The Confession
 

@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 9.2 The Power of the Will
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Joshua 24:15 (CSB) But if it doesn’t please you to worship the LORD, **choose for yourselves today: Which will you worship** — the gods your ancestors worshiped beyond the Euphrates River or the gods of the Amorites in whose land you are living? As for me and my family, we will worship the LORD.
 
 ## The Chapter
 
-### Man, in his state of innocency, had freedom and power to will and to do that which was good and well- pleasing to God, but yet was unstable, so that he might fall from it.
+**Man, in his state of innocency, had freedom and power to will and to do that which was good and well- pleasing to God, but yet was unstable, so that he might fall from it.**
 
 ## The Confession
 

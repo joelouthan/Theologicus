@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 6.2 The Death of Mankind
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Romans 7:24 (CSB) What a wretched man I am! Who will rescue me from this body of death?
 
 ## The Chapter
 
-### Our first parents, by this sin, fell from their original righteousness and communion with God, and we in them whereby death came upon all: all becoming dead in sin, and wholly defiled in all the faculties and parts of soul and body.
+**Our first parents, by this sin, fell from their original righteousness and communion with God, and we in them whereby death came upon all: all becoming dead in sin, and wholly defiled in all the faculties and parts of soul and body.**
 
 ## The Confession
 

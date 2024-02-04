@@ -13,13 +13,17 @@
 >> He shall never be forgotten,  
 >> Through heav’n’s everlasting days.[^1]
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >1 John 4:10 (ESV) In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.
 
 ## The Chapter
 
-### Although temporary believers, and other unregenerate men, may vainly deceive themselves with false hopes and carnal presumptions of being in the favour of God and state of salvation, which hope of theirs shall perish; yet such as truly believe in the Lord Jesus, and love him in sincerity, endeavouring to walk in all good conscience before him, may in this life be certainly assured that they are in the state of grace, and may rejoice in the hope of the glory of God, which hope shall never make them ashamed.
+**Although temporary believers, and other unregenerate men, may vainly deceive themselves with false hopes and carnal presumptions of being in the favour of God and state of salvation, which hope of theirs shall perish; yet such as truly believe in the Lord Jesus, and love him in sincerity, endeavouring to walk in all good conscience before him, may in this life be certainly assured that they are in the state of grace, and may rejoice in the hope of the glory of God, which hope shall never make them ashamed.**
 
 ## The Confession
 

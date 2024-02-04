@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 9.5 The Glorification of the Will
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Psalm 17:15 (CSB) But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
 
 ## The Chapter
 
-### This will of man is made perfectly and immutably free to good alone in the state of glory only.
+**This will of man is made perfectly and immutably free to good alone in the state of glory only.**
 
 ## The Confession
 

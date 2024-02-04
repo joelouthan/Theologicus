@@ -2,6 +2,10 @@
 
 # 17.3 Our God Saves: All in His Son
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >John 21:15–17 (CSB)  
@@ -13,7 +17,7 @@
 
 ## The Chapter
 
-### And though they may, through the temptation of Satan and of the world, the prevalency of corruption remaining in them, and the neglect of means of their preservation, fall into grievous sins, and for a time continue therein, whereby they incur God's displeasure and grieve his Holy Spirit, come to have their graces and comforts impaired, have their hearts hardened, and their consciences wounded, hurt and scandalize others, and bring temporal judgments upon themselves, yet shall they renew their repentance and be preserved through faith in Christ Jesus to the end.
+**And though they may, through the temptation of Satan and of the world, the prevalency of corruption remaining in them, and the neglect of means of their preservation, fall into grievous sins, and for a time continue therein, whereby they incur God's displeasure and grieve his Holy Spirit, come to have their graces and comforts impaired, have their hearts hardened, and their consciences wounded, hurt and scandalize others, and bring temporal judgments upon themselves, yet shall they renew their repentance and be preserved through faith in Christ Jesus to the end.**
 
 ## The Confession
 

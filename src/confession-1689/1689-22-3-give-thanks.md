@@ -2,11 +2,15 @@
 
 # 22.3 Worship: Give Thanks
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### Prayer, with thanksgiving, being one part of natural worship, is by God required of all men. But that it may be accepted, it is to be made in the name of the Son, by the help of the Spirit, according to his will; with understanding, reverence, humility, fervency, faith, love, and perseverance; and when with others, in a known tongue.
+**Prayer, with thanksgiving, being one part of natural worship, is by God required of all men. But that it may be accepted, it is to be made in the name of the Son, by the help of the Spirit, according to his will; with understanding, reverence, humility, fervency, faith, love, and perseverance; and when with others, in a known tongue.**
 
 ## The Confession
 

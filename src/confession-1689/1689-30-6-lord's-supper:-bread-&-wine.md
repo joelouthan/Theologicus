@@ -2,11 +2,15 @@
 
 # 30.6 Lord's Supper: Bread & Wine
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### That doctrine which maintains a change of the substance of bread and wine, into the substance of Christ's body and blood, commonly called transubstantiation, by consecration of a priest, or by any other way, is repugnant not to Scripture alone, but even to common sense and reason, overthroweth the nature of the ordinance, and hath been, and is, the cause of manifold superstitions, yea, of gross idolatries.
+**That doctrine which maintains a change of the substance of bread and wine, into the substance of Christ's body and blood, commonly called transubstantiation, by consecration of a priest, or by any other way, is repugnant not to Scripture alone, but even to common sense and reason, overthroweth the nature of the ordinance, and hath been, and is, the cause of manifold superstitions, yea, of gross idolatries.**
 
 ## The Confession
 

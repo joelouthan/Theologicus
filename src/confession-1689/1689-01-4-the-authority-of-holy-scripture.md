@@ -2,6 +2,10 @@
 
 # 1689 Baptist Confession of Faith, Chapter 1.4 The Authority of Holy Scripture 
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Psalm 19 (CSB)  
@@ -35,7 +39,7 @@
 
 ## The Chapter
 
-### The authority of the Holy Scripture, for which it ought to be believed, dependeth not upon the testimony of any man or church, but wholly upon God (who is truth itself), the author thereof; therefore it is to be received because it is the Word of God.
+**The authority of the Holy Scripture, for which it ought to be believed, dependeth not upon the testimony of any man or church, but wholly upon God (who is truth itself), the author thereof; therefore it is to be received because it is the Word of God.**
 
 ## The Confession
 

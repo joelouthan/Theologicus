@@ -2,13 +2,17 @@
 
 # 19.4 The Command Of The Lord Is Radiant
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Psalm 19:8b (CSB) [...] the command of the LORD is radiant, making the eyes light up.
 
 ## The Chapter
 
-### To them also he gave sundry judicial laws, which expired together with the state of that people, not obliging any now by virtue of that institution; their general equity only being of moral use.
+**To them also he gave sundry judicial laws, which expired together with the state of that people, not obliging any now by virtue of that institution; their general equity only being of moral use.**
 
 ## The Confession
 

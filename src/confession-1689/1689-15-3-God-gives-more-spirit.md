@@ -2,13 +2,17 @@
 
 # 15.3 God Gives More: Spirit
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >John 3:14–15 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
 
 ## The Chapter
 
-### This saving repentance is an evangelical grace, whereby a person, being by the Holy Spirit made sensible of the manifold evils of his sin, doth, by faith in Christ, humble himself for it with godly sorrow, detestation of it, and self-abhorrency, praying for pardon and strength of grace, with a purpose and endeavour, by supplies of the Spirit, to walk before God unto all well-pleasing in all things.
+**This saving repentance is an evangelical grace, whereby a person, being by the Holy Spirit made sensible of the manifold evils of his sin, doth, by faith in Christ, humble himself for it with godly sorrow, detestation of it, and self-abhorrency, praying for pardon and strength of grace, with a purpose and endeavour, by supplies of the Spirit, to walk before God unto all well-pleasing in all things.**
 
 ## The Confession
 

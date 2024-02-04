@@ -2,11 +2,15 @@
 
 # 23.4 Oath: The Clarity of God
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### An oath is to be taken in the plain and common sense of the words, without equivocation or mental reservation.
+**An oath is to be taken in the plain and common sense of the words, without equivocation or mental reservation.**
 
 ## The Confession
 

@@ -2,11 +2,15 @@
 
 # 25.2 From the Bridegroom: Goodness for Husband & Wife
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### Marriage was ordained for the mutual help of husband and wife, for the increase of mankind with a legitimate issue, and the preventing of uncleanness.
+**Marriage was ordained for the mutual help of husband and wife, for the increase of mankind with a legitimate issue, and the preventing of uncleanness.**
 
 ## The Confession
 

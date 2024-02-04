@@ -2,13 +2,17 @@
 
 # 19.1 The Instruction Of The Lord Is Perfect
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Psalm 19:7a (CSB) The instruction of the LORD is perfect, renewing one’s life;
 
 ## The Chapter
 
-### God gave to Adam a law of universal obedience written in his heart, and a particular precept of not eating the fruit of the tree of knowledge of good and evil; by which he bound him and all his posterity to personal, entire, exact, and perpetual obedience; promised life upon the fulfilling, and threatened death upon the breach of it, and endued him with power and ability to keep it.
+**God gave to Adam a law of universal obedience written in his heart, and a particular precept of not eating the fruit of the tree of knowledge of good and evil; by which he bound him and all his posterity to personal, entire, exact, and perpetual obedience; promised life upon the fulfilling, and threatened death upon the breach of it, and endued him with power and ability to keep it.**
 
 ## The Confession
 

@@ -2,11 +2,15 @@
 
 # 30.5 Lord's Supper: Outward Elements
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### The outward elements in this ordinance, duly set apart to the use ordained by Christ, have such relation to him crucified, as that truly, although in terms used figuratively, they are sometimes called by the names of the things they represent, to wit, the body and blood of Christ, albeit, in substance and nature, they still remain truly and only bread and wine, as they were before.
+**The outward elements in this ordinance, duly set apart to the use ordained by Christ, have such relation to him crucified, as that truly, although in terms used figuratively, they are sometimes called by the names of the things they represent, to wit, the body and blood of Christ, albeit, in substance and nature, they still remain truly and only bread and wine, as they were before.**
 
 ## The Confession
 

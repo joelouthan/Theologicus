@@ -2,6 +2,10 @@
 
 # 1689 Baptist Confession of Faith, Chapter 11.2 How Does God Justify Sinners? God Gives Faith
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >James 2:22-24 (CSB) You see that faith was active together with his works, and by works, faith was made complete, and the Scripture was fulfilled that says, Abraham believed God, and it was credited to him as righteousness, and he was called God’s friend. You see that a person is justified by works and not by faith alone.
@@ -10,7 +14,7 @@
 
 ## The Chapter
 
-### Faith thus receiving and resting on Christ and his righteousness, is the alone instrument of justification; yet it is not alone in the person justified, but is ever accompanied with all other saving graces, and is no dead faith, but worketh by love.
+**Faith thus receiving and resting on Christ and his righteousness, is the alone instrument of justification; yet it is not alone in the person justified, but is ever accompanied with all other saving graces, and is no dead faith, but worketh by love.**
 
 ## The Confession
 

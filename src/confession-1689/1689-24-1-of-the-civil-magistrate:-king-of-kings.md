@@ -2,11 +2,15 @@
 
 # 24.1 Of the Civil Magistrate: King of Kings
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### God, the supreme Lord and King of all the world, hath ordained civil magistrates to be under him, over the people, for his own glory and the public good; and to this end hath armed them with the power of the sword, for defence and encouragement of them that do good, and for the punishment of evil doers.
+**God, the supreme Lord and King of all the world, hath ordained civil magistrates to be under him, over the people, for his own glory and the public good; and to this end hath armed them with the power of the sword, for defence and encouragement of them that do good, and for the punishment of evil doers.**
 
 ## The Confession
 

@@ -2,11 +2,15 @@
 
 # 1689 Baptist Confession of Faith, Chapter 11.5 How Does God Justify Sinners? God Gives Eternity
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### God doth continue to forgive the sins of those that are justified, and although they can never fall from the state of justification, yet they may, by their sins, fall under God's fatherly displeasure; and in that condition they have not usually the light of his countenance restored unto them, until they humble themselves, confess their sins, beg pardon, and renew their faith and repentance.
+**God doth continue to forgive the sins of those that are justified, and although they can never fall from the state of justification, yet they may, by their sins, fall under God's fatherly displeasure; and in that condition they have not usually the light of his countenance restored unto them, until they humble themselves, confess their sins, beg pardon, and renew their faith and repentance.**
 
 ## The Confession
 

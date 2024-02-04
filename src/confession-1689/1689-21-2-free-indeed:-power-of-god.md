@@ -2,13 +2,17 @@
 
 # 21.2 Free Indeed: Power of God
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 TODO:
 
 ## The Chapter
 
-### God alone is Lord of the conscience, and hath left it free from the doctrines and commandments of men which are in any thing contrary to his word, or not contained in it. So that to believe such doctrines, or obey such commands out of conscience, is to betray true liberty of conscience; and the requiring of an implicit faith, an absolute and blind obedience, is to destroy liberty of conscience and reason also.
+**God alone is Lord of the conscience, and hath left it free from the doctrines and commandments of men which are in any thing contrary to his word, or not contained in it. So that to believe such doctrines, or obey such commands out of conscience, is to betray true liberty of conscience; and the requiring of an implicit faith, an absolute and blind obedience, is to destroy liberty of conscience and reason also.**
 
 ## The Confession
 

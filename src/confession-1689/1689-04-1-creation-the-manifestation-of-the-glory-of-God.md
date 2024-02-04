@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 4.1 Creation--The Manifestation of the Glory of God
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Genesis 1:1-2 (CSB) In the beginning God created the heavens and the earth. Now the earth was formless and empty, darkness covered the surface of the watery depths, and the Spirit of God was hovering over the surface of the waters.
 
 ## The Chapter
 
-### In the beginning it pleased God the Father, Son, and Holy Spirit, for the manifestation of the glory of his eternal power, wisdom, and goodness, to create or make the world, and all things therein, whether visible or invisible, in the space of six days, and all very good.
+**In the beginning it pleased God the Father, Son, and Holy Spirit, for the manifestation of the glory of his eternal power, wisdom, and goodness, to create or make the world, and all things therein, whether visible or invisible, in the space of six days, and all very good.**
 
 ## The Confession
 

@@ -2,11 +2,15 @@
 
 # 29.4 Baptism: Immersion
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### Immersion, or dipping of the person in water, is necessary to the due administration of this ordinance.
+**Immersion, or dipping of the person in water, is necessary to the due administration of this ordinance.**
 
 ## The Confession
 

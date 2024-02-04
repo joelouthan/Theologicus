@@ -13,13 +13,17 @@
 >> Thou hast cleansed and sanctified me;  
 >> Thou Thyself hast set me free.[^1]
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >John 3:31-36 (CSB) The one who comes from above is above all. The one who is from the earth is earthly and speaks in earthly terms. The one who comes from heaven is above all. He testifies to what he has seen and heard, and yet no one accepts his testimony. The one who has accepted his testimony has affirmed that God is true. For the one whom God sent speaks God’s words, since he gives the Spirit without measure. The Father loves the Son and has given all things into his hands. The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 
 ## The Chapter
 
-### This infallible assurance doth not so belong to the essence of faith, but that a true believer may wait long, and conflict with many difficulties before he be partaker of it; yet being enabled by the Spirit to know the things which are freely given him of God, he may, without extraordinary revelation, in the right use of means, attain thereunto: and therefore it is the duty of every one to give all diligence to make his calling and election sure, that thereby his heart may be enlarged in peace and joy in the Holy Spirit, in love and thankfulness to God, and in strength and cheerfulness in the duties of obedience, the proper fruits of this assurance; -so far is it from inclining men to looseness.
+**This infallible assurance doth not so belong to the essence of faith, but that a true believer may wait long, and conflict with many difficulties before he be partaker of it; yet being enabled by the Spirit to know the things which are freely given him of God, he may, without extraordinary revelation, in the right use of means, attain thereunto: and therefore it is the duty of every one to give all diligence to make his calling and election sure, that thereby his heart may be enlarged in peace and joy in the Holy Spirit, in love and thankfulness to God, and in strength and cheerfulness in the duties of obedience, the proper fruits of this assurance; -so far is it from inclining men to looseness.**
 
 ## The Confession
 

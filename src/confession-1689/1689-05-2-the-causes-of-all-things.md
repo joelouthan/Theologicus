@@ -2,6 +2,10 @@
 
 # 1689 Baptist Confession of Faith, Chapter 5.2 The Causes of All Things
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Romans 11:36 (CSB) For from him and through him  
@@ -10,7 +14,7 @@
 
 ## The Chapter
 
-### Although in relation to the foreknowledge and decree of God, the first cause, all things come to pass immutably and infallibly; so that there is not anything befalls any by chance, or without his providence; yet by the same providence he ordereth them to fall out according to the nature of second causes, either necessarily, freely, or contingently.
+**Although in relation to the foreknowledge and decree of God, the first cause, all things come to pass immutably and infallibly; so that there is not anything befalls any by chance, or without his providence; yet by the same providence he ordereth them to fall out according to the nature of second causes, either necessarily, freely, or contingently.**
 
 ## The Confession
 

@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 6.1 The Fall of Mankind
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Matthew 4:8-10 (CSB) Again, the devil took him to a very high mountain and showed him all the kingdoms of the world and their splendor. And he said to him, “I will give you all these things if you will fall down and worship me.” Then Jesus told him, “Go away, Satan! For it is written: Worship the Lord your God, and serve only him.”
 
 ## The Chapter
 
-### Although God created man upright and perfect, and gave him a righteous law, which had been unto life had he kept it, and threatened death upon the breach thereof, yet he did not long abide in this honor; Satan using the subtlety of the serpent to subdue Eve, then by her seducing Adam, who, without any compulsion, did willfully transgress the law of their creation, and the command given to them, in eating the forbidden fruit, which God was pleased, according to His wise and holy counsel to permit, having purposed to order it to His own glory.
+**Although God created man upright and perfect, and gave him a righteous law, which had been unto life had he kept it, and threatened death upon the breach thereof, yet he did not long abide in this honor; Satan using the subtlety of the serpent to subdue Eve, then by her seducing Adam, who, without any compulsion, did willfully transgress the law of their creation, and the command given to them, in eating the forbidden fruit, which God was pleased, according to His wise and holy counsel to permit, having purposed to order it to His own glory.**
 
 ## The Confession
 

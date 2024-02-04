@@ -13,6 +13,10 @@
 >> And heav’n’s peace and perfect justice  
 >> Kissed a guilty world in love.[^1]
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Revelation 12:10-12 (CSB)  
@@ -39,7 +43,7 @@
 
 ## The Chapter
 
-### This certainty is not a bare conjectural and probable persuasion grounded upon a fallible hope, but an infallible assurance of faith founded on the blood and righteousness of Christ revealed in the Gospel; and also upon the inward evidence of those graces of the Spirit unto which promises are made, and on the testimony of the Spirit of adoption, witnessing with our spirits that we are the children of God; and, as a fruit thereof, keeping the heart both humble and holy.
+**This certainty is not a bare conjectural and probable persuasion grounded upon a fallible hope, but an infallible assurance of faith founded on the blood and righteousness of Christ revealed in the Gospel; and also upon the inward evidence of those graces of the Spirit unto which promises are made, and on the testimony of the Spirit of adoption, witnessing with our spirits that we are the children of God; and, as a fruit thereof, keeping the heart both humble and holy.**
 
 ## The Confession
 

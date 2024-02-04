@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 4.3 The Law of God
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Romans 2:14-16 (CSB) So, when Gentiles, who do not by nature have the law, do what the law demands, they are a law to themselves even though they do not have the law. They show that the work of the law is written on their hearts. Their consciences confirm this. Their competing thoughts either accuse or even excuse them on the day when God judges what people have kept secret, according to my gospel through Christ Jesus.
 
 ## The Chapter
 
-### Besides the law written in their hearts, they received a command not to eat of the tree of knowledge of good and evil, which whilst they kept, they were happy in their communion with God, and had dominion over the creatures.
+**Besides the law written in their hearts, they received a command not to eat of the tree of knowledge of good and evil, which whilst they kept, they were happy in their communion with God, and had dominion over the creatures.**
 
 ## The Confession
 

@@ -2,11 +2,15 @@
 
 # 25.1 From the Bridegroom: Marriage is Between One Man & One Woman
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 ## The Chapter
 
-### Marriage is to be between one man and one woman; neither is it lawful for any man to have more than one wife, nor for any woman to have more than one husband at the same time.
+**Marriage is to be between one man and one woman; neither is it lawful for any man to have more than one wife, nor for any woman to have more than one husband at the same time.**
 
 ## The Confession
 

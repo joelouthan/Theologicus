@@ -2,13 +2,17 @@
 
 # 15.5 God Gives More: Preservation
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Romans 6:23 (CSB) For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
 
 ## The Chapter
 
-### Such is the provision which God hath made through Christ in the covenant of grace for the preservation of believers unto salvation; that although there is no sin so small but it deserves damnation; yet there is no sin so great that it shall bring damnation on them that repent; which makes the constant preaching of repentance necessary.
+**Such is the provision which God hath made through Christ in the covenant of grace for the preservation of believers unto salvation; that although there is no sin so small but it deserves damnation; yet there is no sin so great that it shall bring damnation on them that repent; which makes the constant preaching of repentance necessary.**
 
 ## The Confession
 

@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 11.1 How Does God Justify Sinners? God Cleanses Us From All Unrighteousness
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
 ## The Chapter
 
-### Those whom God effectually calleth, he also freely justifieth, not by infusing righteousness into them, but by pardoning their sins, and by accounting and accepting their persons as righteous; not for anything wrought in them, or done by them, but for Christ's sake alone; not by imputing faith itself, the act of believing, or any other evangelical obedience to them, as their righteousness; but by imputing Christ's active obedience unto the whole law, and passive obedience in his death for their whole and sole righteousness by faith, which faith they have not of themselves; it is the gift of God.
+**Those whom God effectually calleth, he also freely justifieth, not by infusing righteousness into them, but by pardoning their sins, and by accounting and accepting their persons as righteous; not for anything wrought in them, or done by them, but for Christ's sake alone; not by imputing faith itself, the act of believing, or any other evangelical obedience to them, as their righteousness; but by imputing Christ's active obedience unto the whole law, and passive obedience in his death for their whole and sole righteousness by faith, which faith they have not of themselves; it is the gift of God.**
 
 ## The Confession
 

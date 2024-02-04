@@ -2,13 +2,17 @@
 
 # 21.3 Free Indeed: Righteousness of God
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 TODO:
 
 ## The Chapter
 
-### They who upon pretence of Christian liberty do practice any sin, or cherish any sinful lust, as they do thereby pervert the main design of the grace of the gospel to their own destruction, so they wholly destroy the end of Christian liberty, which is, that being delivered out of the hands of all our enemies, we might serve the Lord without fear, in holiness and righeousness before Him, all the days of our lives.
+**They who upon pretence of Christian liberty do practice any sin, or cherish any sinful lust, as they do thereby pervert the main design of the grace of the gospel to their own destruction, so they wholly destroy the end of Christian liberty, which is, that being delivered out of the hands of all our enemies, we might serve the Lord without fear, in holiness and righeousness before Him, all the days of our lives.**
 
 ## The Confession
 

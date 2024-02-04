@@ -13,13 +13,17 @@
 >> Without measure, full and boundless,  
 >> As I yield myself to Thee.[^1]
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Romans 8:38–39 (CSB) For I am persuaded that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
 
 ## The Chapter
 
-### True believers may have the assurance of their salvation divers ways shaken, diminished, and intermitted; as by negligence in preserving of it, by falling into some special sin which woundeth the conscience and grieveth the Spirit; by some sudden or vehement temptation, by God's withdrawing the light of his countenance, and suffering even such as fear him to walk in darkness and to have no light, yet are they never destitute of the seed of God and life of faith, that love of Christ and the brethren, that sincerity of heart and conscience of duty out of which, by the operation of the Spirit, this assurance may in due time be revived, and by the which, in the meantime, they are preserved from utter despair.
+**True believers may have the assurance of their salvation divers ways shaken, diminished, and intermitted; as by negligence in preserving of it, by falling into some special sin which woundeth the conscience and grieveth the Spirit; by some sudden or vehement temptation, by God's withdrawing the light of his countenance, and suffering even such as fear him to walk in darkness and to have no light, yet are they never destitute of the seed of God and life of faith, that love of Christ and the brethren, that sincerity of heart and conscience of duty out of which, by the operation of the Spirit, this assurance may in due time be revived, and by the which, in the meantime, they are preserved from utter despair.**
 
 ## The Confession
 

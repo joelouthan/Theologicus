@@ -2,13 +2,17 @@
 
 # 20.1 Of The Gospel: From Everlasting to Everlasting
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Psalm 90:2 (CSB) Before the mountains were born, before you gave birth to the earth and the world, from eternity to eternity, you are God. 
 
 ## The Chapter
 
-### The covenant of works being broken by sin, and made unprofitable unto life, God was pleased to give forth the promise of Christ, the seed of the woman, as the means of calling the elect, and begetting in them faith and repentance; in this promise the gospel, as to the substance of it, was revealed, and is therein effectual for the conversion and salvation of sinners.
+**The covenant of works being broken by sin, and made unprofitable unto life, God was pleased to give forth the promise of Christ, the seed of the woman, as the means of calling the elect, and begetting in them faith and repentance; in this promise the gospel, as to the substance of it, was revealed, and is therein effectual for the conversion and salvation of sinners.**
 
 ## The Confession
 

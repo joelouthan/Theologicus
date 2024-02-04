@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 8.6 The Eternalness of the Messiah
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Revelation 1:8 (CSB) “I am the Alpha and the Omega,” says the Lord God, “the one who is, who was, and who is to come, the Almighty.”
 
 ## The Chapter
 
-### Although the price of redemption was not actually paid by Christ till after his incarnation, yet the virtue, efficacy, and benefit thereof were communicated to the elect in all ages, successively from the beginning of the world, in and by those promises, types, and sacrifices wherein he was revealed, and signified to be the seed which should bruise the serpent's head; and the Lamb slain from the foundation of the world, being the same yesterday, and to-day and for ever.
+**Although the price of redemption was not actually paid by Christ till after his incarnation, yet the virtue, efficacy, and benefit thereof were communicated to the elect in all ages, successively from the beginning of the world, in and by those promises, types, and sacrifices wherein he was revealed, and signified to be the seed which should bruise the serpent's head; and the Lamb slain from the foundation of the world, being the same yesterday, and to-day and for ever.**
 
 ## The Confession
 

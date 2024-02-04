@@ -2,13 +2,17 @@
 
 # 21.1 Free Indeed: Sons of God
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 TODO:
 
 ## The Chapter
 
-### The liberty which Christ hath purchased for believers under the gospel, consists in their freedom from the guilt of sin, the condemning wrath of God, the rigour and curse of the law, and in their being delivered from this present evil world, bondage to Satan, and dominion of sin, from the evil of afflictions, the fear and sting of death, the victory of the grave, and ever- lasting damnation: as also in their free access to God, and their yielding obedience unto Him, not out of slavish fear, but a child-like love and willing mind. All which were common also to believers under the law for the substance of them; but under the New Testament the liberty of Christians is further enlarged, in their freedom from the yoke of a ceremonial law, to which the Jewish church was subjected, and in greater boldness of access to the throne of grace, and in fuller communications of the free Spirit of God, than believers under the law did ordinarily partake of.
+**The liberty which Christ hath purchased for believers under the gospel, consists in their freedom from the guilt of sin, the condemning wrath of God, the rigour and curse of the law, and in their being delivered from this present evil world, bondage to Satan, and dominion of sin, from the evil of afflictions, the fear and sting of death, the victory of the grave, and ever- lasting damnation: as also in their free access to God, and their yielding obedience unto Him, not out of slavish fear, but a child-like love and willing mind. All which were common also to believers under the law for the substance of them; but under the New Testament the liberty of Christians is further enlarged, in their freedom from the yoke of a ceremonial law, to which the Jewish church was subjected, and in greater boldness of access to the throne of grace, and in fuller communications of the free Spirit of God, than believers under the law did ordinarily partake of.**
 
 ## The Confession
 

@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 11.4 How Does God Justify Sinners? God Gives His Spirit
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Ephesians 1:4-6 (CSB) For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
 
 ## The Chapter
 
-### God did from all eternity decree to justify all the elect, and Christ did in the fullness of time die for their sins, and rise again for their justification; nevertheless, they are not justified personally, until the Holy Spirit doth in time due actually apply Christ unto them.
+**God did from all eternity decree to justify all the elect, and Christ did in the fullness of time die for their sins, and rise again for their justification; nevertheless, they are not justified personally, until the Holy Spirit doth in time due actually apply Christ unto them.**
 
 ## The Confession
 

@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 3.6 The Free Purpose of the Will of God
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Romans 5:12 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.
 
 ## The Chapter
 
-### As God hath appointed the elect unto glory, so he hath, by the eternal and most free purpose of his will, foreordained all the means thereunto; wherefore they who are elected, being fallen in Adam, are redeemed by Christ, are effectually called unto faith in Christ, by his Spirit working in due season, are justified, adopted, sanctified, and kept by his power through faith unto salvation; neither are any other redeemed by Christ, or effectually called, justified, adopted, sanctified, and saved, but the elect only.
+**As God hath appointed the elect unto glory, so he hath, by the eternal and most free purpose of his will, foreordained all the means thereunto; wherefore they who are elected, being fallen in Adam, are redeemed by Christ, are effectually called unto faith in Christ, by his Spirit working in due season, are justified, adopted, sanctified, and kept by his power through faith unto salvation; neither are any other redeemed by Christ, or effectually called, justified, adopted, sanctified, and saved, but the elect only.**
 
 ## The Confession
 
@@ -134,8 +138,6 @@ What God has started in you, God will finish in you. It is a done deal. We start
 >Psalm 17:15 (CSB) But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
 
 God will bring us all the way home. That is the gospel.
-
-### Our Response
 
 ### kept by his power through faith unto salvation
 

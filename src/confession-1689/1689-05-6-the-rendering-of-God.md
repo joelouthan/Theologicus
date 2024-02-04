@@ -2,13 +2,17 @@
 
 # 1689 Baptist Confession of Faith, Chapter 5.6 The Rendering of God
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Hebrews 6:4-6 (CSB) For it is impossible to renew to repentance those who were once enlightened, who tasted the heavenly gift, who shared in the Holy Spirit, who tasted God’s good word and the powers of the coming age, and who have fallen away. This is because, to their own harm, they are recrucifying the Son of God and holding him up to contempt.
 
 ## The Chapter
 
-### As for those wicked and ungodly men whom God, as the righteous judge, for former sin doth blind and harden; from them he not only withholdeth his grace, whereby they might have been enlightened in their understanding, and wrought upon their hearts; but sometimes also withdraweth the gifts which they had, and exposeth them to such objects as their corruption makes occasion of sin; and withal, gives them over to their own lusts, the temptations of the world, and the power of Satan, whereby it comes to pass that they harden themselves, under those means which God useth for the softening of others.
+**As for those wicked and ungodly men whom God, as the righteous judge, for former sin doth blind and harden; from them he not only withholdeth his grace, whereby they might have been enlightened in their understanding, and wrought upon their hearts; but sometimes also withdraweth the gifts which they had, and exposeth them to such objects as their corruption makes occasion of sin; and withal, gives them over to their own lusts, the temptations of the world, and the power of Satan, whereby it comes to pass that they harden themselves, under those means which God useth for the softening of others.**
 
 ## The Confession
 

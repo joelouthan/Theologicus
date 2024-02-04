@@ -2,13 +2,17 @@
 
 # 20.2 Of The Gospel: The Seed of the Woman
 
+## Table of Contents
+
+<!-- toc -->
+
 ## The Text
 
 >Genesis 3:15 (CSB) I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
 
 ## The Chapter
 
-### This promise of Christ, and salvation by him, is revealed only by the Word of God; neither do the works of creation or providence, with the light of nature, make discovery of Christ, or of grace by him, so much as in a general or obscure way; much less that men destitute of the revelation of Him by the promise or gospel, should be enabled thereby to attain saving faith or repentance.
+**This promise of Christ, and salvation by him, is revealed only by the Word of God; neither do the works of creation or providence, with the light of nature, make discovery of Christ, or of grace by him, so much as in a general or obscure way; much less that men destitute of the revelation of Him by the promise or gospel, should be enabled thereby to attain saving faith or repentance.**
 
 ## The Confession
 
