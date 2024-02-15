@@ -31,6 +31,8 @@ Now, please forgive me because I speak in generalities. It is only recently that
 
 I say all of that to say this: the Confession is clear that the judicial laws of the Old Testament are no longer binding. They expired with the state of that people. However, their general equity is of moral use. The Confession is referring to the moral principles behind the laws. The moral principles are still binding. The laws themselves are not.
 
+TODO: Tattoos, mixed fabrics, and shellfish. What about those?
+
 >1 Corinthians 9:8–10 (CSB) Am I saying this from a human perspective? Doesn’t the law also say the same thing? For it is written in the law of Moses, Do not muzzle an ox while it treads out grain. Is God really concerned about oxen? Isn’t he really saying it for our sake? Yes, this is written for our sake, because he who plows ought to plow in hope, and he who threshes should thresh in hope of sharing the crop.
 
 The Apostle Paul is clearly saying that the law of Moses is very revelant to us in the church today. That the Old Testament, fully Scripture, perfectly inspired and breathed out by the Holy Spirit from the mouth of God, still applies to us today--just not in the way that some theonomists apply it. 
