@@ -41,7 +41,11 @@ I wanted to use this example because it is quite personal to me--I have tattoos.
 
 So was I in defiance against a holy God and have zero regard for his holy law. Well, that depends on how you read the Bible. If you read the Bible in such a way that every phrase within the Bible stands completely on its own and the rest of the Bible is not needed for context or understanding of what is in the Bible, then you would have to say, "Indeed, you, Joseph, willfully sinned against the holy God." And then, I would speculate you would then question my salvation.
 
-But that is not how the church historically has read, taught, understood, and preached from the Scriptures. I say that generally speaking we have not read it but you and I know that many in the church and in the world read the Bible as a series of one-liners. Throughout the history of the people of God, since Adam and Eve, people have the proclivity to read the Bible in as a series of unrelated phrases as though it is one long 11,000 task list of to-dos.
+But that is not how the church historically has read, taught, understood, and preached from the Scriptures. In the right context, we are not to be like the world around us that practices witchcraft and mark our bodies for the dead as to possess their conscience and soul.
+
+>Leviticus 19:26-28 (CSB) “You are not to eat anything with blood in it. You are not to practice divination or witchcraft. You are not to cut off the hair at the sides of your head or mar the edge of your beard. You are not to make gashes on your bodies for the dead or put tattoo marks on yourselves; I am the LORD.
+
+I say that generally speaking we have not read it but you and I know that many in the church and in the world read the Bible as a series of one-liners. Throughout the history of the people of God, since Adam and Eve, people have the proclivity to read the Bible in as a series of unrelated phrases as though it is one long 11,000 task list of to-dos.
 
 But the Bible is not a master Reminder app. Not a long shot. There are command and laws of God in the Bible but there are backgrounds and reasons why for those laws. They are not built on anything other than the holiness and love of God.
 
