@@ -31,11 +31,29 @@ Now, please forgive me because I speak in generalities. It is only recently that
 
 I say all of that to say this: the Confession is clear that the judicial laws of the Old Testament are no longer binding. They expired with the state of that people. However, their general equity is of moral use. The Confession is referring to the moral principles behind the laws. The moral principles are still binding. The laws themselves are not.
 
-TODO: Tattoos, mixed fabrics, and shellfish. What about those?
+---
+
+One of the best examples of God's sundry judicial laws is the straight-forward God's forbidding tattoos upon one's body.
+
+>Leviticus 19:28 (CSB) You are not to make gashes on your bodies for the dead or put tattoo marks on yourselves; I am the LORD.
+
+I wanted to use this example because it is quite personal to me--I have tattoos. And before you can think that I had them before I was saved. No. All of my tattoos came after I was saved.
+
+So was I in defiance against a holy God and have zero regard for his holy law. Well, that depends on how you read the Bible. If you read the Bible in such a way that every phrase within the Bible stands completely on its own and the rest of the Bible is not needed for context or understanding of what is in the Bible, then you would have to say, "Indeed, you, Joseph, willfully sinned against the holy God." And then, I would speculate you would then question my salvation.
+
+But that is not how the church historically has read, taught, understood, and preached from the Scriptures. I say that generally speaking we have not read it but you and I know that many in the church and in the world read the Bible as a series of one-liners. Throughout the history of the people of God, since Adam and Eve, people have the proclivity to read the Bible in as a series of unrelated phrases as though it is one long 11,000 task list of to-dos.
+
+But the Bible is not a master Reminder app. Not a long shot. There are command and laws of God in the Bible but there are backgrounds and reasons why for those laws. They are not built on anything other than the holiness and love of God.
+
+And I want to us to examine our hearts in this moment. If you see the Bible with its 11,000+ to-dos as something you can *obtain* if you just worked hard enough, then you are in desperate need of the gospel of Christ.
+
+Christ has fulfilled the law for us. It is never "do this and live" but it is "believe the Christ and live!"
+
+---
 
 >1 Corinthians 9:8–10 (CSB) Am I saying this from a human perspective? Doesn’t the law also say the same thing? For it is written in the law of Moses, Do not muzzle an ox while it treads out grain. Is God really concerned about oxen? Isn’t he really saying it for our sake? Yes, this is written for our sake, because he who plows ought to plow in hope, and he who threshes should thresh in hope of sharing the crop.
 
-The Apostle Paul is clearly saying that the law of Moses is very revelant to us in the church today. That the Old Testament, fully Scripture, perfectly inspired and breathed out by the Holy Spirit from the mouth of God, still applies to us today--just not in the way that some theonomists apply it. 
+The Apostle Paul is clearly saying that the law of Moses is very relevant to us in the church today. That the Old Testament, fully Scripture, perfectly inspired and breathed out by the Holy Spirit from the mouth of God, still applies to us today--just not in the way that some theonomists apply it. 
 
 We have these various, different, sundry judacial laws that were used to govern the nation-state of Israel once upon ago. God was their Ruler--King, Prophet, and Priest. He was their God. He was their everything.
 
