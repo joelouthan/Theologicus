@@ -22,9 +22,21 @@
 
 >James 2:8–12 (CSB) Indeed, if you fulfill the royal law prescribed in the Scripture, Love your neighbor as yourself, you are doing well. If, however, you show favoritism, you commit sin and are convicted by the law as transgressors. For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all. For he who said, Do not commit adultery, also said, Do not murder. So if you do not commit adultery, but you murder, you are a lawbreaker. Speak and act as those who are to be judged by the law of freedom.
 
+But what is crystal clear is the moral law of God that was written on the hearts of upon the Gentiles starting with Adam:
+
+>Romans 2:14-16 (CSB) So, when Gentiles, who do not by nature have the law, do what the law demands, they are a law to themselves even though they do not have the law. They show that the work of the law is written on their hearts. Their consciences confirm this. Their competing thoughts either accuse or even excuse them on the day when God judges what people have kept secret, according to my gospel through Christ Jesus.
+
+This is the moral law that clearly defines what is good and evil and right and wrong. The sinful fallen nature of man might debate, argue, kill for and impose their own unholy opinions about what is right and wrong and the nuances within. But God does not. God has laid this moral law down within the hearts of every person ever in existence.
+
 ### and that not only in regard of the matter contained in it, but also in respect of the authority of God the Creator, who gave it
 
 >James 2:10–11 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all. For he who said, Do not commit adultery, also said, Do not murder. So if you do not commit adultery, but you murder, you are a lawbreaker.
+
+You might think that those who would twist the law or ignore the law is not a respecter of God in this matter. They do not believe in God. But it is not as easy as that:
+
+>Romans 1:18-23 (CSB) For God’s wrath is revealed from heaven against all godlessness and unrighteousness of people who by their unrighteousness suppress the truth, since what can be known about God is evident among them, because God has shown it to them. For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse. For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. Claiming to be wise, they became fools and exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles.
+
+Within each of us, born of Adam, do our best to suppress the knowledge of God. We know he is real but without God dwelling in us, all of us are prone to suppress what we know of God. We have to. We have to some way sear our conscience in order that we can freely sin against God and against one another. We have to ignore the guilt, shame, and pain. But because we were created in the image of God, and even despite our brokenness, our mind, soul, heart, and body knows sin and the its effects. This is what we call trauma.
 
 ### neither does Christ in the Gospel any way dissolve, but much strengthen this obligation
 
