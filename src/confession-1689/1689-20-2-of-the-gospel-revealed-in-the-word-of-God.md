@@ -1,6 +1,6 @@
 <img class="intro-right" src="art-1689.png">
 
-# 20.2 Of The Gospel: The Seed of the Woman
+# 20.2 Of The Gospel: Revealed in the Word of God
 
 ## Table of Contents
 
@@ -8,7 +8,7 @@
 
 ## The Text
 
->Genesis 3:15 (CSB) I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
+>Matthew 4:4 (CSB) He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
 
 ## The Chapter
 
