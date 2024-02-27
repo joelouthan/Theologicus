@@ -150,7 +150,7 @@
   - [XX. Of the Gospel and the Extent of Grace Thereof](confession-1689/1689-20-0-index.md)
     - [20.1 Of The Gospel: From Everlasting to Everlasting](confession-1689/1689-20-1-of-the-gospel-from-everlasting-to-everlasting.md)
     - [20.2 Of The Gospel: Revealed in the Word of God](confession-1689/1689-20-2-of-the-gospel-revealed-in-the-word-of-God.md)
-    - [20.3 Of The Gospel: Only Begotten Son](confession-1689/1689-20-3-of-the-gospel-only-begotten-son.md)
+    - [20.3 Of The Gospel: Only Begotten Son](confession-1689/1689-20-3-of-the-gospel-of-God-alone.md)
     - [20.4 Of The Gospel: The Just Shall Live By Faith](confession-1689/1689-20-4-of-the-gospel-the-just-shall-live-by-faith.md)
   - [XXI. Of Christian Liberty and Liberty of Conscience](confession-1689/1689-21-0-index.md)
     - [21.1 Free Indeed: Sons of God](confession-1689/1689-21-1-free-indeed-sons-of-god.md)
