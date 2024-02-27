@@ -1673,7 +1673,7 @@ Neither are the aforementioned uses of the law contrary to the grace of the Gosp
 
 ## [Chapter XX. Of the Gospel and the Extent of Grace Thereof](1689-20-0-index.md)
 
-### [20.1 Of The Gospel: From Everlasting to Everlasting](1689-20-1-of-the-gospel:-from-everlasting-to-everlasting.md)
+### [20.1 Of The Gospel: From Everlasting to Everlasting](1689-20-1-of-the-gospel-from-everlasting-to-everlasting.md)
 
 The covenant of works being broken by sin, and made unprofitable unto life, God was pleased to give forth the promise of Christ, the seed of the woman, as the means of calling the elect, and begetting in them faith and repentance; in this promise the gospel, as to the substance of it, was revealed, and is therein effectual for the conversion and salvation of sinners.
 
@@ -1681,7 +1681,7 @@ The covenant of works being broken by sin, and made unprofitable unto life, God 
 
 >Revelation 13:8 (CSB) All those who live on the earth will worship it, everyone whose name was not written from the foundation of the world in the book of life of the Lamb who was slaughtered.
 
-### [20.2 Of The Gospel: The Seed of the Woman](1689-20-2-of-the-gospel:-the-seed-of-the-woman.md)
+### [20.2 Of The Gospel: The Seed of the Woman](1689-20-2-of-the-gospel-revealed-in-the-word-of-God.md)
 
 This promise of Christ, and salvation by him, is revealed only by the Word of God; neither do the works of creation or providence, with the light of nature, make discovery of Christ, or of grace by him, so much as in a general or obscure way; much less that men destitute of the revelation of Him by the promise or gospel, should be enabled thereby to attain saving faith or repentance.
 
@@ -1699,7 +1699,7 @@ This promise of Christ, and salvation by him, is revealed only by the Word of Go
 
 >Isaiah 60:2–3 (CSB) For look, darkness will cover the earth, and total darkness the peoples; but the LORD will shine over you, and his glory will appear over you. Nations will come to your light, and kings to your shining brightness.
 
-### [20.3 Of The Gospel: Only Begotten Son](1689-20-3-of-the-gospel:-only-begotten-son.md)
+### [20.3 Of The Gospel: Only Begotten Son](1689-20-3-of-the-gospel-of-God-alone.md)
 
 The revelation of the gospel unto sinners, made in divers times and by sundry parts, with the addition of promises and precepts for the obedience required therein, as to the nations and persons to whom it is granted, is merely of the sovereign will and good pleasure of God; not being annexed by virtue of any promise to the due improvement of men's natural abilities, by virtue of common light received without it, which none ever did make, or can do so; and therefore in all ages, the preaching of the gospel has been granted unto persons and nations, as to the extent or straitening of it, in great variety, according to the counsel of the will of God.
 
@@ -1709,7 +1709,7 @@ The revelation of the gospel unto sinners, made in divers times and by sundry pa
 
 >Romans 1:18–32 (CSB) For God’s wrath is revealed from heaven against all godlessness and unrighteousness of people who by their unrighteousness suppress the truth, since what can be known about God is evident among them, because God has shown it to them. For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse. For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. Claiming to be wise, they became fools and exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles. Therefore God delivered them over in the desires of their hearts to sexual impurity, so that their bodies were degraded among themselves. They exchanged the truth of God for a lie, and worshiped and served what has been created instead of the Creator, who is praised forever. Amen. For this reason God delivered them over to disgraceful passions. Their women exchanged natural sexual relations for unnatural ones. The men in the same way also left natural relations with women and were inflamed in their lust for one another. Men committed shameless acts with men and received in their own persons the appropriate penalty of their error. And because they did not think it worthwhile to acknowledge God, God delivered them over to a corrupt mind so that they do what is not right. They are filled with all unrighteousness, evil, greed, and wickedness. They are full of envy, murder, quarrels, deceit, and malice. They are gossips, slanderers, God-haters, arrogant, proud, boastful, inventors of evil, disobedient to parents, senseless, untrustworthy, unloving, and unmerciful. Although they know God’s just sentence—that those who practice such things deserve to die—they not only do them, but even applaud others who practice them.
 
-### [20.4 Of The Gospel: The Just Shall Live By Faith](1689-20-4-of-the-gospel:-the-just-shall-live-by-faith.md)
+### [20.4 Of The Gospel: The Just Shall Live By Faith](1689-20-4-of-the-gospel-the-just-shall-live-by-faith.md)
 
 Although the gospel be the only outward means of revealing Christ and saving grace, and is, as such, abundantly sufficient thereunto; yet that men who are dead in trespasses may be born again, quickened or regenerated, there is moreover necessary an effectual insuperable work of the Holy Spirit upon the whole soul, for the producing in them a new spiritual life; without which no other means will effect their conversion unto God.
 
@@ -1725,7 +1725,7 @@ Although the gospel be the only outward means of revealing Christ and saving gra
 
 ## [Chapter XXI. Of Christian Liberty and Liberty of Conscience](1689-21-0-index.md)
 
-### [21.1 Free Indeed: Sons of God](1689-21-1-free-indeed:-sons-of-god.md)
+### [21.1 Free Indeed: Sons of God](1689-21-1-free-indeed-sons-of-god.md)
 
 The liberty which Christ hath purchased for believers under the gospel, consists in their freedom from the guilt of sin, the condemning wrath of God, the rigour and curse of the law, and in their being delivered from this present evil world, bondage to Satan, and dominion of sin, from the evil of afflictions, the fear and sting of death, the victory of the grave, and ever- lasting damnation: as also in their free access to God, and their yielding obedience unto Him, not out of slavish fear, but a child-like love and willing mind. All which were common also to believers under the law for the substance of them; but under the New Testament the liberty of Christians is further enlarged, in their freedom from the yoke of a ceremonial law, to which the Jewish church was subjected, and in greater boldness of access to the throne of grace, and in fuller communications of the free Spirit of God, than believers under the law did ordinarily partake of.
 
@@ -1755,7 +1755,7 @@ The liberty which Christ hath purchased for believers under the gospel, consists
 
 >Hebrews 10:19–21 (CSB) Therefore, brothers and sisters, since we have boldness to enter the sanctuary through the blood of Jesus—he has inaugurated for us a new and living way through the curtain (that is, through his flesh)—and since we have a great high priest over the house of God,
 
-### [21.2 Free Indeed: Power of God](1689-21-2-free-indeed:-power-of-god.md)
+### [21.2 Free Indeed: Power of God](1689-21-2-free-indeed-power-of-god.md)
 
 God alone is Lord of the conscience, and hath left it free from the doctrines and commandments of men which are in any thing contrary to his word, or not contained in it. So that to believe such doctrines, or obey such commands out of conscience, is to betray true liberty of conscience; and the requiring of an implicit faith, an absolute and blind obedience, is to destroy liberty of conscience and reason also.
 
@@ -1775,7 +1775,7 @@ God alone is Lord of the conscience, and hath left it free from the doctrines an
 
 >2 Corinthians 1:24 (CSB) I do not mean that we lord it over your faith, but we are workers with you for your joy, because you stand firm in your faith.
 
-### [21.3 Free Indeed: Righteousness of God](1689-21-3-free-indeed:-righteousness-of-god.md)
+### [21.3 Free Indeed: Righteousness of God](1689-21-3-free-indeed-righteousness-of-god.md)
 
 They who upon pretence of Christian liberty do practice any sin, or cherish any sinful lust, as they do thereby pervert the main design of the grace of the gospel to their own destruction, so they wholly destroy the end of Christian liberty, which is, that being delivered out of the hands of all our enemies, we might serve the Lord without fear, in holiness and righeousness before Him, all the days of our lives.
 
@@ -1921,7 +1921,7 @@ The sabbath is then kept holy unto the Lord, when men, after a due preparing of 
 
 ## [Chapter XXIII. Of Lawful Oaths and Vows](1689-23-0-index.md)
 
-### [23.1 Oath: The Witness of God](1689-23-1-oath:-the-witness-of-god.md)
+### [23.1 Oath: The Witness of God](1689-23-1-oath-the-witness-of-god.md)
 
 A lawful oath is a part of religious worship, wherein the person swearing in truth, righteousness, and judgement, solemnly calleth God to witness what he sweareth, and to judge him according to the truth or falseness thereof.
 
@@ -1933,7 +1933,7 @@ A lawful oath is a part of religious worship, wherein the person swearing in tru
 
 >2 Chronicles 6:22–23 (CSB) If a man sins against his neighbor and is forced to take an oath and he comes to take an oath before your altar in this temple, may you hear in heaven and act. May you judge your servants, condemning the wicked man by bringing what he has done on his own head and providing justice for the righteous by rewarding him according to his righteousness.
 
-### [23.2 Oath: The Name Of God](1689-23-2-oath:-the-name-of-god.md)
+### [23.2 Oath: The Name Of God](1689-23-2-oath-the-name-of-god.md)
 
 The name of God only is that by which men ought to swear; and therein it is to be used, with all holy fear and reverence; therefore to swear vainly or rashly by that glorious and dreadful name, or to swear at all by any other thing, is sinful, and to be abhorred; yet as in matter of weight and moment, for confirmation of truth, and ending all strife, an oath is warranted by the word of God; so a lawful oath being imposed by lawful authority in such matters, ought to be taken.
 
@@ -1947,7 +1947,7 @@ The name of God only is that by which men ought to swear; and therein it is to b
 
 >Nehemiah 13:25 (CSB) I rebuked them, cursed them, beat some of their men, and pulled out their hair. I forced them to take an oath before God and said, “You must not give your daughters in marriage to their sons or take their daughters as wives for your sons or yourselves!
 
-### [23.3 Oath: The Weight of Glory](1689-23-3-oath:-the-weight-of-glory.md)
+### [23.3 Oath: The Weight of Glory](1689-23-3-oath-the-weight-of-glory.md)
 
 Whosoever taketh an oath warranted by the Word of God, ought duly to consider the weightiness of so solemn an act, and therein to avouch nothing but what he knoweth to be truth; for that by rash, false, and vain oaths, the Lord is provoked, and for them this land mourns.
 
@@ -1955,13 +1955,13 @@ Whosoever taketh an oath warranted by the Word of God, ought duly to consider th
 
 >Jeremiah 23:10 (CSB) For the land is full of adulterers; the land mourns because of the curse, and the grazing lands in the wilderness have dried up. Their way of life has become evil, and their power is not rightly used
 
-### [23.4 Oath: The Clarity of God](1689-23-4-oath:-the-clarity-of-god.md)
+### [23.4 Oath: The Clarity of God](1689-23-4-oath-the-clarity-of-god.md)
 
 An oath is to be taken in the plain and common sense of the words, without equivocation or mental reservation.
 
 >Psalm 24:4 (CSB) The one who has clean hands and a pure heart, who has not appealed to what is false, and who has not sworn deceitfully.
 
-### [23.5 Vow: To God Alone](1689-23-5-vow:-to-god-alone.md)
+### [23.5 Vow: To God Alone](1689-23-5-vow-to-god-alone.md)
 
 A vow, which is not to be made to any creature, but to God alone, is to be made and performed with all religious care and faithfulness; but popish monastical vows of perpetual single life, professed poverty, and regular obedience, are so far from being degrees of higher perfection, that they are superstitious and sinful snares, in which no Christian may entangle himself.
 
@@ -1977,13 +1977,13 @@ A vow, which is not to be made to any creature, but to God alone, is to be made 
 
 ## [Chapter XXIV. Of the Civil Magistrate](1689-24-0-index.md)
 
-### [24.1 Of the Civil Magistrate: King of Kings](1689-24-1-of-the-civil-magistrate:-king-of-kings.md)
+### [24.1 Of the Civil Magistrate: King of Kings](1689-24-1-of-the-civil-magistrate-king-of-kings.md)
 
 God, the supreme Lord and King of all the world, hath ordained civil magistrates to be under him, over the people, for his own glory and the public good; and to this end hath armed them with the power of the sword, for defence and encouragement of them that do good, and for the punishment of evil doers.
 
 >Romans 13:1–4 (CSB) Let everyone submit to the governing authorities, since there is no authority except from God, and the authorities that exist are instituted by God. So then, the one who resists the authority is opposing God’s command, and those who oppose it will bring judgment on themselves. For rulers are not a terror to good conduct, but to bad. Do you want to be unafraid of the one in authority? Do what is good, and you will have its approval. For it is God’s servant for your good. But if you do wrong, be afraid, because it does not carry the sword for no reason. For it is God’s servant, an avenger that brings wrath on the one who does wrong.
 
-### [24.2 Of the Civil Magistrate: Lord of Lords](1689-24-2-of-the-civil-magistrate:-lord-of-lords.md)
+### [24.2 Of the Civil Magistrate: Lord of Lords](1689-24-2-of-the-civil-magistrate-lord-of-lords.md)
 
 It is lawful for Christians to accept and execute the office of a magistrate when called there unto; in the management whereof, as they ought especially to maintain justice and peace, according to the wholesome laws of each kingdom and commonwealth, so for that end they may lawfully now, under the New Testament wage war upon just and necessary occasions.
 
@@ -1993,7 +1993,7 @@ It is lawful for Christians to accept and execute the office of a magistrate whe
 
 >Luke 3:14 (CSB) Some soldiers also questioned him, “What should we do?” He said to them, “Don’t take money from anyone by force or false accusation, and be satisfied with your wages.”
 
-### [24.3 Of the Civil Magistrate: The Almighty God](1689-24-3-of-the-civil-magistrate:-the-almighty-god.md)
+### [24.3 Of the Civil Magistrate: The Almighty God](1689-24-3-of-the-civil-magistrate-the-almighty-god.md)
 
 Civil magistrates being set up by God for the ends aforesaid; subjection, in all lawful things commanded by them, ought to be yielded by us in the Lord, not only for wrath, but for conscience sake; and we ought to make supplications and prayers for kings and all that are in authority, that under them we may live a quiet and peaceable life, in all godliness and honesty.
 
@@ -2005,7 +2005,7 @@ Civil magistrates being set up by God for the ends aforesaid; subjection, in all
 
 ## [Chapter XXV. Of Marriage](1689-25-0-index.md)
 
-### [25.1 From the Bridegroom: Marriage is Between One Man & One Woman](1689-25-1-from-the-bridegroom:-marriage-is-between-one-man-&-one-woman.md)
+### [25.1 From the Bridegroom: Marriage is Between One Man & One Woman](1689-25-1-from-the-bridegroom-marriage-is-between-one-man-&-one-woman.md)
 
 Marriage is to be between one man and one woman; neither is it lawful for any man to have more than one wife, nor for any woman to have more than one husband at the same time.
 
@@ -2015,7 +2015,7 @@ Marriage is to be between one man and one woman; neither is it lawful for any ma
 
 >Matthew 19:5–6 (CSB) and he also said, ‘For this reason a man will leave his father and mother and be joined to his wife, and the two will become one flesh’? So they are no longer two, but one flesh. Therefore, what God has joined together, let no one separate.”
 
-### [25.2 From the Bridegroom: Goodness for Husband & Wife](1689-25-2-from-the-bridegroom:-goodness-for-husband-&-wife.md)
+### [25.2 From the Bridegroom: Goodness for Husband & Wife](1689-25-2-from-the-bridegroom-goodness-for-husband-&-wife.md)
 
 Marriage was ordained for the mutual help of husband and wife, for the increase of mankind with a legitimate issue, and the preventing of uncleanness.
 
@@ -2025,7 +2025,7 @@ Marriage was ordained for the mutual help of husband and wife, for the increase 
 
 >1 Corinthians 7:2–9 (CSB) But because sexual immorality is so common, each man should have sexual relations with his own wife, and each woman should have sexual relations with her own husband. A husband should fulfill his marital duty to his wife, and likewise a wife to her husband. A wife does not have the right over her own body, but her husband does. In the same way, a husband does not have the right over his own body, but his wife does. Do not deprive one another—except when you agree for a time, to devote yourselves to prayer. Then come together again; otherwise, Satan may tempt you because of your lack of self-control. I say this as a concession, not as a command. I wish that all people were as I am. But each has his own gift from God, one person has this gift, another has that. I say to the unmarried and to widows: It is good for them if they remain as I am. But if they do not have self-control, they should marry, since it is better to marry than to burn with desire.
 
-### [25.3 From the Bridegroom: Equally Yoked Between Husband & Wife](1689-25-3-from-the-bridegroom:-equally-yoked-between-husband-&-wife.md)
+### [25.3 From the Bridegroom: Equally Yoked Between Husband & Wife](1689-25-3-from-the-bridegroom-equally-yoked-between-husband-&-wife.md)
 
 It is lawful for all sorts of people to marry, who are able with judgment to give their consent; yet it is the duty of Christians to marry in the Lord; and therefore such as profess the true religion, should not marry with infidels, or idolaters; neither should such as are godly, be unequally yoked, by marrying with such as are wicked in their life, or maintain damnable heresy.
 
@@ -2037,7 +2037,7 @@ It is lawful for all sorts of people to marry, who are able with judgment to giv
 
 >Nehemiah 13:25–27 (CSB) I rebuked them, cursed them, beat some of their men, and pulled out their hair. I forced them to take an oath before God and said, “You must not give your daughters in marriage to their sons or take their daughters as wives for your sons or yourselves! Didn’t King Solomon of Israel sin in matters like this? There was not a king like him among many nations. He was loved by his God, and God made him king over all Israel, yet foreign women drew him into sin. Why then should we hear about you doing all this terrible evil and acting unfaithfully against our God by marrying foreign women?”
 
-### [25.4 From the Bridegroom: Marriage is of Man & Wife](1689-25-4-from-the-bridegroom:-marriage-is-of-man-&-wife.md)
+### [25.4 From the Bridegroom: Marriage is of Man & Wife](1689-25-4-from-the-bridegroom-marriage-is-of-man-&-wife.md)
 
 Marriage ought not to be within the degrees of consanguinity or affinity, forbidden in the Word; nor can such incestuous marriages ever be made lawful, by any law of man or consent of parties, so as those persons may live together as man and wife.
 
@@ -2049,7 +2049,7 @@ Marriage ought not to be within the degrees of consanguinity or affinity, forbid
 
 ## [Chapter XXVI. Of the Church](1689-26-0-index.md)
 
-### [26.1 Of The Bride: We Are The Body of Christ](1689-26-1-of-the-bride:-we-are-the-body-of-christ.md)
+### [26.1 Of The Bride: We Are The Body of Christ](1689-26-1-of-the-bride-we-are-the-body-of-christ.md)
 
 The catholic or universal church, which (with respect to the internal work of the Spirit and truth of grace) may be called invisible, consists of the whole number of the elect, that have been, are, or shall be gathered into one, under Christ, the head thereof; and is the spouse, the body, the fulness of him that filleth all in all.
 
@@ -2061,7 +2061,7 @@ The catholic or universal church, which (with respect to the internal work of th
 
 >Ephesians 5:23–32 (CSB) because the husband is the head of the wife as Christ is the head of the church. He is the Savior of the body. Now as the church submits to Christ, so also wives are to submit to their husbands in everything. Husbands, love your wives, just as Christ loved the church and gave himself for her to make her holy, cleansing her with the washing of water by the word. He did this to present the church to himself in splendor, without spot or wrinkle or anything like that, but holy and blameless. In the same way, husbands are to love their wives as their own bodies. He who loves his wife loves himself. For no one ever hates his own flesh but provides and cares for it, just as Christ does for the church, since we are members of his body. For this reason a man will leave his father and mother and be joined to his wife, and the two will become one flesh. This mystery is profound, but I am talking about Christ and the church.
 
-### [26.2 Of The Bride: Those of the Whole World](1689-26-2-of-the-bride:-those-of-the-whole-world.md)
+### [26.2 Of The Bride: Those of the Whole World](1689-26-2-of-the-bride-those-of-the-whole-world.md)
 
 All persons throughout the world, professing the faith of the gospel, and obedience unto God by Christ according unto it, not destroying their own profession by any errors everting the foundation, or unholiness of conversation, are and may be called visible saints; and of such ought all particular congregations to be constituted.
 
@@ -2073,7 +2073,7 @@ All persons throughout the world, professing the faith of the gospel, and obedie
 
 >Ephesians 1:20–22 (CSB) He exercised this power in Christ by raising him from the dead and seating him at his right hand in the heavens—far above every ruler and authority, power and dominion, and every title given, not only in this age but also in the one to come. And he subjected everything under his feet and appointed him as head over everything for the church,
 
-### [26.3 Of The Bride: The Shepherd Knows His Sheep](1689-26-3-of-the-bride:-the-shepherd-knows-his-sheep.md)
+### [26.3 Of The Bride: The Shepherd Knows His Sheep](1689-26-3-of-the-bride-the-shepherd-knows-his-sheep.md)
 
 The purest churches under heaven are subject to mixture and error; and some have so degenerated as to become no churches of Christ, but synagogues of Satan; nevertheless Christ always hath had, and ever shall have a kingdom in this world, to the end thereof, of such as believe in him, and make profession of his name.
 
@@ -2095,7 +2095,7 @@ The purest churches under heaven are subject to mixture and error; and some have
 
 >Revelation 12:17 (CSB) So the dragon was furious with the woman and went off to wage war against the rest of her offspring—those who keep the commands of God and hold firmly to the testimony about Jesus.
 
-### [26.4 Of The Bride: The Head Pastor](1689-26-4-of-the-bride:-the-head-pastor.md)
+### [26.4 Of The Bride: The Head Pastor](1689-26-4-of-the-bride-the-head-pastor.md)
 
 The Lord Jesus Christ is the Head of the church, in whom, by the appointment of the Father, all power for the calling, institution, order or government of the church, is invested in a supreme and sovereign manner; neither can the Pope of Rome in any sense be head thereof, but is that antichrist, that man of sin, and son of perdition, that exalteth himself in the church against Christ, and all that is called God; whom the Lord shall destroy with the brightness of his coming.
 
@@ -2107,7 +2107,7 @@ The Lord Jesus Christ is the Head of the church, in whom, by the appointment of 
 
 >2 Thessalonians 2:2–9 (CSB) not to be easily upset or troubled, either by a prophecy or by a message or by a letter supposedly from us, alleging that the day of the Lord has come. Don’t let anyone deceive you in any way. For that day will not come unless the apostasy comes first and the man of lawlessness is revealed, the man doomed to destruction. He opposes and exalts himself above every so-called god or object of worship, so that he sits in God’s temple, proclaiming that he himself is God. Don’t you remember that when I was still with you I used to tell you about this? And you know what currently restrains him, so that he will be revealed in his time. For the mystery of lawlessness is already at work, but the one now restraining will do so until he is out of the way, and then the lawless one will be revealed. The Lord Jesus will destroy him with the breath of his mouth and will bring him to nothing at the appearance of his coming. The coming of the lawless one is based on Satan’s working, with every kind of miracle, both signs and wonders serving the lie,
 
-### [26.5 Of The Bride: The Calling of His People](1689-26-5-of-the-bride:-the-calling-of-his-people.md)
+### [26.5 Of The Bride: The Calling of His People](1689-26-5-of-the-bride-the-calling-of-his-people.md)
 
 In the execution of this power wherewith he is so intrusted, the Lord Jesus calleth out of the world unto himself, through the ministry of his word, by his Spirit, those that are given unto him by his Father, that they may walk before him in all the ways of obedience, which he prescribeth to them in his word. Those thus called, he commandeth to walk together in particular societies, or churches, for their mutual edification, and the due performance of that public worship, which he requireth of them in the world.
 
@@ -2119,7 +2119,7 @@ In the execution of this power wherewith he is so intrusted, the Lord Jesus call
 
 >Matthew 18:15–20 (CSB) “If your brother sins against you, go tell him his fault, between you and him alone. If he listens to you, you have won your brother. But if he won’t listen, take one or two others with you, so that by the testimony of two or three witnesses every fact may be established. If he doesn’t pay attention to them, tell the church. If he doesn’t pay attention even to the church, let him be like a Gentile and a tax collector to you. Truly I tell you, whatever you bind on earth will have been bound in heaven, and whatever you loose on earth will have been loosed in heaven. Again, truly I tell you, if two of you on earth agree about any matter that you pray for, it will be done for you by my Father in heaven. For where two or three are gathered together in my name, I am there among them.”
 
-### [26.6 Of The Bride: The Good Trees](1689-26-6-of-the-bride:-the-good-trees.md)
+### [26.6 Of The Bride: The Good Trees](1689-26-6-of-the-bride-the-good-trees.md)
 
 The members of these churches are saints by calling, visibly manifesting and evidencing (in and by their profession and walking) their obedience unto that call of Christ; and do willingly consent to walk together, according to the appointment of Christ; giving up themselves to the Lord, and one to another, by the will of God, in professed subjection to the ordinances of the Gospel.
 
@@ -2133,7 +2133,7 @@ The members of these churches are saints by calling, visibly manifesting and evi
 
 >2 Corinthians 9:13 (CSB) Because of the proof provided by this ministry, they will glorify God for your obedient confession of the gospel of Christ, and for your generosity in sharing with them and with everyone.
 
-### [26.7 Of The Bride: The Authority Given](1689-26-7-of-the-bride:-the-authority-given.md)
+### [26.7 Of The Bride: The Authority Given](1689-26-7-of-the-bride-the-authority-given.md)
 
 To each of these churches thus gathered, according to his mind declared in his word, he hath given all that power and authority, which is in any way needful for their carrying on that order in worship and discipline, which he hath instituted for them to observe; with commands and rules for the due and right exerting, and executing of that power.
 
@@ -2145,7 +2145,7 @@ To each of these churches thus gathered, according to his mind declared in his w
 
 >2 Corinthians 2:6–8 (CSB) This punishment by the majority is sufficient for that person. As a result, you should instead forgive and comfort him. Otherwise, he may be overwhelmed by excessive grief. Therefore I urge you to reaffirm your love to him.
 
-### [26.8 Of The Bride: The Members Gathered](1689-26-8-of-the-bride:-the-members-gathered.md)
+### [26.8 Of The Bride: The Members Gathered](1689-26-8-of-the-bride-the-members-gathered.md)
 
 A particular church, gathered and completely organized according to the mind of Christ, consists of officers and members; and the officers appointed by Christ to be chosen and set apart by the church (so called and gathered), for the peculiar administration of ordinances, and execution of power or duty, which he intrusts them with, or calls them to, to be continued to the end of the world, are bishops or elders, and deacons.
 
@@ -2153,7 +2153,7 @@ A particular church, gathered and completely organized according to the mind of 
 
 >Philippians 1:1 (CSB) Paul and Timothy, servants of Christ Jesus: To all the saints in Christ Jesus who are in Philippi, including the overseers and deacons.
 
-### [26.9 Of The Bride: The Laying On of Hands](1689-26-9-of-the-bride:-the-laying-on-of-hands.md)
+### [26.9 Of The Bride: The Laying On of Hands](1689-26-9-of-the-bride-the-laying-on-of-hands.md)
 
 The way appointed by Christ for the calling of any person, fitted and gifted by the Holy Spirit, unto the office of bishop or elder in a church, is, that he be chosen thereunto by the common suffrage of the church itself; and solemnly set apart by fasting and prayer, with imposition of hands of the eldership of the church, if there be any before constituted therein; and of a deacon that he be chosen by the like suffrage, and set apart by prayer, and the like imposition of hands.
 
@@ -2163,7 +2163,7 @@ The way appointed by Christ for the calling of any person, fitted and gifted by 
 
 >Acts 6:3–6 (CSB) Brothers and sisters, select from among you seven men of good reputation, full of the Spirit and wisdom, whom we can appoint to this duty. But we will devote ourselves to prayer and to the ministry of the word.” This proposal pleased the whole company. So they chose Stephen, a man full of faith and the Holy Spirit, and Philip, Prochorus, Nicanor, Timon, Parmenas, and Nicolaus, a convert from Antioch. They had them stand before the apostles, who prayed and laid their hands on them.
 
-### [26.10 Of The Bride: The Work of the Minister](1689-26-10-of-the-bride:-the-work-of-the-minister.md)
+### [26.10 Of The Bride: The Work of the Minister](1689-26-10-of-the-bride-the-work-of-the-minister.md)
 
 The work of pastors being constantly to attend the service of Christ, in his churches, in the ministry of the word and prayer, with watching for their souls, as they that must give an account to Him; it is incumbent on the churches to whom they minister, not only to give them all due respect, but also to communicate to them of all their good things according to their ability, so as they may have a comfortable supply, without being themselves entangled in secular affairs; and may also be capable of exercising hospitality towards others; and this is required by the law of nature, and by the express order of our Lord Jesus, who hath ordained that they that preach the Gospel should live of the Gospel.
 
@@ -2181,7 +2181,7 @@ The work of pastors being constantly to attend the service of Christ, in his chu
 
 >1 Corinthians 9:6–14 (CSB) Or do only Barnabas and I have no right to refrain from working? Who serves as a soldier at his own expense? Who plants a vineyard and does not eat its fruit? Or who shepherds a flock and does not drink the milk from the flock? Am I saying this from a human perspective? Doesn’t the law also say the same thing? For it is written in the law of Moses, Do not muzzle an ox while it treads out grain. Is God really concerned about oxen? Isn’t he really saying it for our sake? Yes, this is written for our sake, because he who plows ought to plow in hope, and he who threshes should thresh in hope of sharing the crop. If we have sown spiritual things for you, is it too much if we reap material benefits from you? If others have this right to receive benefits from you, don’t we even more? Nevertheless, we have not made use of this right; instead, we endure everything so that we will not hinder the gospel of Christ. Don’t you know that those who perform the temple services eat the food from the temple, and those who serve at the altar share in the offerings of the altar? In the same way, the Lord has commanded that those who preach the gospel should earn their living by the gospel.
 
-### [26.11 Of The Bride: The Prophecy of the Word](1689-26-11-of-the-bride:-the-prophecy-of-the-word.md)
+### [26.11 Of The Bride: The Prophecy of the Word](1689-26-11-of-the-bride-the-prophecy-of-the-word.md)
 
 Although it be incumbent on the bishops or pastors of the churches, to be instant in preaching the word, by way of office, yet the work of preaching the word is not so peculiarly confined to them but that others also gifted and fitted by the Holy Spirit for it, and approved and called by the church, may and ought to perform it.
 
@@ -2189,7 +2189,7 @@ Although it be incumbent on the bishops or pastors of the churches, to be instan
 
 >1 Peter 4:10–11 (CSB) Just as each one has received a gift, use it to serve others, as good stewards of the varied grace of God. If anyone speaks, let it be as one who speaks God’s words; if anyone serves, let it be from the strength God provides, so that God may be glorified through Jesus Christ in everything. To him be the glory and the power forever and ever. Amen.
 
-### [26.12 Of The Bride: Saved To One Another](1689-26-12-of-the-bride:-saved-to-one-another.md)
+### [26.12 Of The Bride: Saved To One Another](1689-26-12-of-the-bride-saved-to-one-another.md)
 
 As all believers are bound to join themselves to particular churches, when and where they have opportunity so to do; so all that are admitted unto the privileges of a church, are also under the censures and government thereof, according to the rule of Christ.
 
@@ -2197,7 +2197,7 @@ As all believers are bound to join themselves to particular churches, when and w
 
 >2 Thessalonians 3:6–15 (CSB) Now we command you, brothers and sisters, in the name of our Lord Jesus Christ, to keep away from every brother or sister who is idle and does not live according to the tradition received from us. For you yourselves know how you should imitate us: We were not idle among you; we did not eat anyone’s food free of charge; instead, we labored and toiled, working night and day, so that we would not be a burden to any of you. It is not that we don’t have the right to support, but we did it to make ourselves an example to you so that you would imitate us. In fact, when we were with you, this is what we commanded you: “If anyone isn’t willing to work, he should not eat.” For we hear that there are some among you who are idle. They are not busy but busybodies. Now we command and exhort such people by the Lord Jesus Christ to work quietly and provide for themselves. But as for you, brothers and sisters, do not grow weary in doing good. If anyone does not obey our instruction in this letter, take note of that person; don’t associate with him, so that he may be ashamed. Yet don’t consider him as an enemy, but warn him as a brother.
 
-### [26.13 Of The Bride: Bonded to One Another](1689-26-13-of-the-bride:-bonded-to-one-another.md)
+### [26.13 Of The Bride: Bonded to One Another](1689-26-13-of-the-bride-bonded-to-one-another.md)
 
 No church members, upon any offence taken by them, having performed their duty required of them towards the person they are offended at, ought to disturb any church-order, or absent themselves from the assemblies of the church, or administration of any ordinances, upon the account of such offence at any of their fellow members, but to wait upon Christ, in the further proceeding of the church.
 
@@ -2205,7 +2205,7 @@ No church members, upon any offence taken by them, having performed their duty r
 
 >Ephesians 4:2–3 (CSB) with all humility and gentleness, with patience, bearing with one another in love, making every effort to keep the unity of the Spirit through the bond of peace.
 
-### [26.14 Of The Bride: Brothers & Sisters of Christ](1689-26-14-of-the-bride:-brothers-&-sisters-of-christ.md)
+### [26.14 Of The Bride: Brothers & Sisters of Christ](1689-26-14-of-the-bride-brothers-&-sisters-of-christ.md)
 
 As each church, and all the members of it, are bound to pray continually for the good and prosperity of all the churches of Christ, in all places, and upon all occasions to further every one within the bounds of their places and callings, in the exercise of their gifts and graces, so the churches, when planted by the providence of God, so as they may enjoy opportunity and advantage for it, ought to hold communion among themselves, for their peace, increase of love, and mutual edification.
 
@@ -2217,7 +2217,7 @@ As each church, and all the members of it, are bound to pray continually for the
 
 >3 John 8–10 (CSB) Therefore, we ought to support such people so that we can be coworkers with the truth. I wrote something to the church, but Diotrephes, who loves to have first place among them, does not receive our authority. This is why, if I come, I will remind him of the works he is doing, slandering us with malicious words. And he is not satisfied with that! He not only refuses to welcome fellow believers, but he even stops those who want to do so and expels them from the church.
 
-### [26.15 Of The Bride: Peace of God](1689-26-15-of-the-bride:-peace-of-god.md)
+### [26.15 Of The Bride: Peace of God](1689-26-15-of-the-bride-peace-of-god.md)
 
 In cases of difficulties or differences, either in point of doctrine or administration, wherein either the churches in general are concerned, or any one church, in their peace, union, and edification; or any member or members of any church are injured, in or by any proceedings in censures not agreeable to truth and order: it is according to the mind of Christ, that many churches holding communion together, do, by their messengers, meet to consider, and give their advice in or about that matter in difference, to be reported to all the churches concerned; howbeit these messengers assembled, are not intrusted with any church-power properly so called; or with any jurisdiction over the churches themselves, to exercise any censures either over any churches or persons; or to impose their determination on the churches or officers.
 
@@ -2229,7 +2229,7 @@ In cases of difficulties or differences, either in point of doctrine or administ
 
 ## [Chapter XXVII. Of the Communion of Saints](1689-27-0-index.md)
 
-### [27.1 Communion of the Saints: Co-Heirs](1689-27-1-communion-of-the-saints:-co-heirs.md)
+### [27.1 Communion of the Saints: Co-Heirs](1689-27-1-communion-of-the-saints-co-heirs.md)
 
 All saints that are united to Jesus Christ, their head, by his Spirit, and faith, although they are not made thereby one person with him, have fellowship in his graces, sufferings, death, resurrection, and glory; and, being united to one another in love, they have communion in each others gifts and graces, and are obliged to the performance of such duties, public and private, in an orderly way, as do conduce to their mutual good, both in the inward and outward man.
 
@@ -2255,7 +2255,7 @@ All saints that are united to Jesus Christ, their head, by his Spirit, and faith
 
 >Galatians 6:10 (CSB) Therefore, as we have opportunity, let us work for the good of all, especially for those who belong to the household of faith.
 
-### [27.2 Communion of the Saints: Cattle On A Thousand Hills](1689-27-2-communion-of-the-saints:-cattle-on-a-thousand-hills.md)
+### [27.2 Communion of the Saints: Cattle On A Thousand Hills](1689-27-2-communion-of-the-saints-cattle-on-a-thousand-hills.md)
 
 Saints by profession are bound to maintain an holy fellowship and communion in the worship of God, and in performing such other spiritual services as tend to their mutual edification; as also in relieving each other in outward things according to their several abilities, and necessities; which communion, according to the rule of the gospel, though especially to be exercised by them, in the relation wherein they stand, whether in families, or churches, yet, as God offereth opportunity, is to be extended to all the household of faith, even all those who in every place call upon the name of the Lord Jesus; nevertheless their communion one with another as saints, doth not take away or infringe the title or propriety which each man hath in his goods and possessions.
 
@@ -2275,7 +2275,7 @@ Saints by profession are bound to maintain an holy fellowship and communion in t
 
 ## [Chapter XXVIII. Of Baptism and the Lord's Supper](1689-28-0-index.md)
 
-### [28.1 Ordinances: Appointed by Christ](1689-28-1-ordinances:-appointed-by-christ.md)
+### [28.1 Ordinances: Appointed by Christ](1689-28-1-ordinances-appointed-by-christ.md)
 
 Baptism and the Lord's Supper are ordinances of positive and sovereign institution, appointed by the Lord Jesus, the only lawgiver, to be continued in his church to the end of the world.
 
@@ -2283,7 +2283,7 @@ Baptism and the Lord's Supper are ordinances of positive and sovereign instituti
 
 >1 Corinthians 11:26 (CSB) For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes.
 
-### [28.2 Ordinances: Commission by Christ](1689-28-2-ordinances:-commission-by-christ.md)
+### [28.2 Ordinances: Commission by Christ](1689-28-2-ordinances-commission-by-christ.md)
 
 These holy appointments are to be administered by those only who are qualified and thereunto called, according to the commission of Christ.
 
@@ -2293,7 +2293,7 @@ These holy appointments are to be administered by those only who are qualified a
 
 ## [Chapter XXVIX. Of Baptism](1689-29-0-index.md)
 
-### [29.1 Baptism: Death to Life](1689-29-1-baptism:-death-to-life.md)
+### [29.1 Baptism: Death to Life](1689-29-1-baptism-death-to-life.md)
 
 Baptism is an ordinance of the New Testament, ordained by Jesus Christ, to be unto the party baptized, a sign of his fellowship with him, in his death and resurrection; of his being engrafted into him; of remission of sins; and of giving up into God, through Jesus Christ, to live and walk in newness of life.
 
@@ -2311,7 +2311,7 @@ Baptism is an ordinance of the New Testament, ordained by Jesus Christ, to be un
 
 >Romans 6:4 (CSB) Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life.
 
-### [29.2 Baptism: Freed from Sin](1689-29-2-baptism:-freed-from-sin.md)
+### [29.2 Baptism: Freed from Sin](1689-29-2-baptism-freed-from-sin.md)
 
 Those who do actually profess repentance towards God, faith in, and obedience to, our Lord Jesus Christ, are the only proper subjects of this ordinance.
 
@@ -2325,7 +2325,7 @@ Those who do actually profess repentance towards God, faith in, and obedience to
 
 >Acts 18:8 (CSB) Crispus, the leader of the synagogue, believed in the Lord, along with his whole household. Many of the Corinthians, when they heard, believed and were baptized.
 
-### [29.3 Baptism: In the Name of God](1689-29-3-baptism:-in-the-name-of-god.md)
+### [29.3 Baptism: In the Name of God](1689-29-3-baptism-in-the-name-of-god.md)
 
 The outward element to be used in this ordinance is water, wherein the party is to be baptized, in the name of the Father, and of the Son, and of the Holy Spirit.
 
@@ -2333,7 +2333,7 @@ The outward element to be used in this ordinance is water, wherein the party is 
 
 >Acts 8:38 (CSB) So he ordered the chariot to stop, and both Philip and the eunuch went down into the water, and he baptized him.
 
-### [29.4 Baptism: Immersion](1689-29-4-baptism:-immersion.md)
+### [29.4 Baptism: Immersion](1689-29-4-baptism-immersion.md)
 
 Immersion, or dipping of the person in water, is necessary to the due administration of this ordinance.
 
@@ -2343,7 +2343,7 @@ Immersion, or dipping of the person in water, is necessary to the due administra
 
 ## [Chapter XXX. Of the Lord's Supper](1689-30-0-index.md)
 
-### [30.1 Lord's Supper: Always Observed](1689-30-1-lord's-supper:-always-observed.md)
+### [30.1 Lord's Supper: Always Observed](1689-30-1-lord's-supper-always-observed.md)
 
 The supper of the Lord Jesus was instituted by him the same night wherein he was betrayed, to be observed in his churches, unto the end of the world, for the perpetual remembrance, and shewing forth the sacrifice of himself in his death, confirmation of the faith of believers in all the benefits thereof, their spiritual nourishment, and growth in him, their further engagement in, and to all duties which they owe to him; and to be a bond and pledge of their communion with him, and with each other.
 
@@ -2351,7 +2351,7 @@ The supper of the Lord Jesus was instituted by him the same night wherein he was
 
 >1 Corinthians 10:16–21 (CSB) The cup of blessing that we bless, is it not a sharing in the blood of Christ? The bread that we break, is it not a sharing in the body of Christ? Because there is one bread, we who are many are one body, since all of us share the one bread. Consider the people of Israel. Do not those who eat the sacrifices participate in the altar? What am I saying then? That food sacrificed to idols is anything, or that an idol is anything? No, but I do say that what they sacrifice, they sacrifice to demons and not to God. I do not want you to be participants with demons! You cannot drink the cup of the Lord and the cup of demons. You cannot share in the Lord’s table and the table of demons.
 
-### [30.2 Lord's Supper: In Remembrance](1689-30-2-lord's-supper:-in-remembrance-.md)
+### [30.2 Lord's Supper: In Remembrance](1689-30-2-lord's-supper-in-remembrance-.md)
 
 In this ordinance Christ is not offered up to his Father, nor any real sacrifice made at all for remission of sin of the quick or dead, but only a memorial of that one offering up of himself by himself upon the cross, once for all; and a spiritual oblation of all possible praise unto God for the same. So that the popish sacrifice of the mass, as they call it, is most abominable, injurious to Christ's own sacrifice the alone propitiation for all the sins of the elect.
 
@@ -2361,13 +2361,13 @@ In this ordinance Christ is not offered up to his Father, nor any real sacrifice
 
 >Matthew 26:26–27 (CSB) As they were eating, Jesus took bread, blessed and broke it, gave it to the disciples, and said, “Take and eat it; this is my body.” Then he took a cup, and after giving thanks, he gave it to them and said, “Drink from it, all of you.
 
-### [30.3 Lord's Supper: To A Holy Use](1689-30-3-lord's-supper:-to-a-holy-use.md)
+### [30.3 Lord's Supper: To A Holy Use](1689-30-3-lord's-supper-to-a-holy-use.md)
 
 The Lord Jesus hath, in this ordinance, appointed his ministers to pray, and bless the elements of bread and wine, and thereby to set them apart from a common to a holy use, and to take and break the bread; to take the cup, and, they communicating also themselves, to give both to the communicants.
 
 >1 Corinthians 11:23–26 (CSB) For I received from the Lord what I also passed on to you: On the night when he was betrayed, the Lord Jesus took bread, and when he had given thanks, broke it, and said, “This is my body, which is for you. Do this in remembrance of me.” In the same way also he took the cup, after supper, and said, “This cup is the new covenant in my blood. Do this, as often as you drink it, in remembrance of me.” For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes.
 
-### [30.4 Lord's Supper: For His People](1689-30-4-lord's-supper:-for-his-people.md)
+### [30.4 Lord's Supper: For His People](1689-30-4-lord's-supper-for-his-people.md)
 
 The denial of the cup to the people, worshipping the elements, the lifting them up, or carrying them about for adoration, and reserving them for any pretended religious use, are all contrary to the nature of this ordinance, and to the institution of Christ.
 
@@ -2377,7 +2377,7 @@ The denial of the cup to the people, worshipping the elements, the lifting them 
 
 >Exodus 20:4–5 (CSB) Do not make an idol for yourself, whether in the shape of anything in the heavens above or on the earth below or in the waters under the earth. Do not bow in worship to them, and do not serve them; for I, the LORD your God, am a jealous God, bringing the consequences of the fathers’ iniquity on the children to the third and fourth generations of those who hate me,
 
-### [30.5 Lord's Supper: Outward Elements](1689-30-5-lord's-supper:-outward-elements.md)
+### [30.5 Lord's Supper: Outward Elements](1689-30-5-lord's-supper-outward-elements.md)
 
 The outward elements in this ordinance, duly set apart to the use ordained by Christ, have such relation to him crucified, as that truly, although in terms used figuratively, they are sometimes called by the names of the things they represent, to wit, the body and blood of Christ, albeit, in substance and nature, they still remain truly and only bread and wine, as they were before.
 
@@ -2385,7 +2385,7 @@ The outward elements in this ordinance, duly set apart to the use ordained by Ch
 
 >1 Corinthians 11:26–28 (CSB) For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes. So, then, whoever eats the bread or drinks the cup of the Lord in an unworthy manner will be guilty of sin against the body and blood of the Lord. Let a person examine himself; in this way let him eat the bread and drink from the cup.
 
-### [30.6 Lord's Supper: Bread & Wine](1689-30-6-lord's-supper:-bread-&-wine.md)
+### [30.6 Lord's Supper: Bread & Wine](1689-30-6-lord's-supper-bread-&-wine.md)
 
 That doctrine which maintains a change of the substance of bread and wine, into the substance of Christ's body and blood, commonly called transubstantiation, by consecration of a priest, or by any other way, is repugnant not to Scripture alone, but even to common sense and reason, overthroweth the nature of the ordinance, and hath been, and is, the cause of manifold superstitions, yea, of gross idolatries.
 
@@ -2395,7 +2395,7 @@ That doctrine which maintains a change of the substance of bread and wine, into 
 
 >1 Corinthians 11:24–25 (CSB) and when he had given thanks, broke it, and said, “This is my body, which is for you. Do this in remembrance of me.” In the same way also he took the cup, after supper, and said, “This cup is the new covenant in my blood. Do this, as often as you drink it, in remembrance of me.”
 
-### [30.7 Lord's Supper: Belongs to Believers](1689-30-7-lord's-supper:-belongs-to-believers.md)
+### [30.7 Lord's Supper: Belongs to Believers](1689-30-7-lord's-supper-belongs-to-believers.md)
 
 Worthy receivers, outwardly partaking of the visible elements in this ordinance, do then also inwardly by faith, really and indeed, yet not carnally and corporally, but spiritually receive, and feed upon Christ crucified, and all the benefits of his death; the body and blood of Christ being then not corporally or carnally, but spiritually present to the faith of believers in that ordinance, as the elements themselves are to their outward senses.
 
@@ -2403,7 +2403,7 @@ Worthy receivers, outwardly partaking of the visible elements in this ordinance,
 
 >1 Corinthians 11:23–26 (CSB) For I received from the Lord what I also passed on to you: On the night when he was betrayed, the Lord Jesus took bread, and when he had given thanks, broke it, and said, “This is my body, which is for you. Do this in remembrance of me.” In the same way also he took the cup, after supper, and said, “This cup is the new covenant in my blood. Do this, as often as you drink it, in remembrance of me.” For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes.
 
-### [30.8 Lord's Supper: Does Not Belong to Unbelievers](1689-30-8-lord's-supper:-does-not-belong-to-unbelievers.md)
+### [30.8 Lord's Supper: Does Not Belong to Unbelievers](1689-30-8-lord's-supper-does-not-belong-to-unbelievers.md)
 
 All ignorant and ungodly persons, as they are unfit to enjoy communion with Christ, so are they unworthy of the Lord's table, and cannot, without great sin against him, while they remain such, partake of these holy mysteries, or be admitted thereunto; yea, whosoever shall receive unworthily, are guilty of the body and blood of the Lord, eating and drinking judgment to themselves.
 
@@ -2415,7 +2415,7 @@ All ignorant and ungodly persons, as they are unfit to enjoy communion with Chri
 
 ## [Chapter XXXI. Of the State of Man After Death, and of the Resurrection of the Dead](1689-31-0-index.md)
 
-### [31.1 Made From Dust: Return to Dust](1689-31-1-made-from-dust:-return-to-dust.md)
+### [31.1 Made From Dust: Return to Dust](1689-31-1-made-from-dust-return-to-dust.md)
 
 The bodies of men after death return to dust, and see corruption; but their souls, which neither die nor sleep, having an immortal subsistence, immediately return to God who gave them. The souls of the righteous being then made perfect in holiness, are received into paradise, where they are with Christ, and behold the face of God in light and glory, waiting for the full redemption of their bodies; and the souls of the wicked are cast into hell; where they remain in torment and utter darkness, reserved to the judgment of the great day; besides these two places, for souls separated from their bodies, the Scripture acknowledgeth none.
 
@@ -2439,7 +2439,7 @@ The bodies of men after death return to dust, and see corruption; but their soul
 
 >Luke 16:23–24 (CSB) And being in torment in Hades, he looked up and saw Abraham a long way off, with Lazarus at his side. ‘Father Abraham!’ he called out, ‘Have mercy on me and send Lazarus to dip the tip of his finger in water and cool my tongue, because I am in agony in this flame!’
 
-### [31.2 Made From Dust: Raised to God](1689-31-2-made-from-dust:-raised-to-god.md)
+### [31.2 Made From Dust: Raised to God](1689-31-2-made-from-dust-raised-to-god.md)
 
 At the last day, such of the saints as are found alive, shall not sleep, but be changed; and all the dead shall be raised up with the selfsame bodies, and none other; although with different qualities, which shall be united again to their souls forever.
 
@@ -2451,7 +2451,7 @@ At the last day, such of the saints as are found alive, shall not sleep, but be 
 
 >1 Corinthians 15:42–43 (CSB) So it is with the resurrection of the dead: Sown in corruption, raised in incorruption; sown in dishonor, raised in glory; sown in weakness, raised in power;
 
-### [31.3 Made From Dust: Glorified By God](1689-31-3-made-from-dust:-glorified-by-god.md)
+### [31.3 Made From Dust: Glorified By God](1689-31-3-made-from-dust-glorified-by-god.md)
 
 The bodies of the unjust shall, by the power of Christ, be raised to dishonour; the bodies of the just, by his Spirit, unto honour, and be made conformable to his own glorious body.
 
@@ -2463,7 +2463,7 @@ The bodies of the unjust shall, by the power of Christ, be raised to dishonour; 
 
 ## [Chapter XXXII. Of the Last Judgement](1689-32-0-index.md)
 
-### [32.1 The Quick & The Dead: Judgment Day](1689-32-1-the-quick-&-the-dead:-judgment-day.md)
+### [32.1 The Quick & The Dead: Judgment Day](1689-32-1-the-quick-&-the-dead-judgment-day.md)
 
 God hath appointed a day wherein he will judge the world in righteousness, by Jesus Christ; to whom all power and judgment is given of the Father; in which day, not only the apostate angels shall be judged, but likewise all persons that have lived upon the earth shall appear before the tribunal of Christ, to give an account of their thoughts, words, and deeds, and to receive according to what they have done in the body, whether good or evil.
 
@@ -2485,7 +2485,7 @@ God hath appointed a day wherein he will judge the world in righteousness, by Je
 
 >Matthew 25:32–46 (CSB) All the nations will be gathered before him, and he will separate them one from another, just as a shepherd separates the sheep from the goats. He will put the sheep on his right and the goats on the left. Then the King will say to those on his right, ‘Come, you who are blessed by my Father; inherit the kingdom prepared for you from the foundation of the world. “ ‘For I was hungry and you gave me something to eat; I was thirsty and you gave me something to drink; I was a stranger and you took me in; I was naked and you clothed me; I was sick and you took care of me; I was in prison and you visited me.’ “Then the righteous will answer him, ‘Lord, when did we see you hungry and feed you, or thirsty and give you something to drink? When did we see you a stranger and take you in, or without clothes and clothe you? When did we see you sick, or in prison, and visit you?’ “And the King will answer them, ‘Truly I tell you, whatever you did for one of the least of these brothers and sisters of mine, you did for me.’ “Then he will also say to those on the left, ‘Depart from me, you who are cursed, into the eternal fire prepared for the devil and his angels! For I was hungry and you gave me nothing to eat; I was thirsty and you gave me nothing to drink; I was a stranger and you didn’t take me in; I was naked and you didn’t clothe me, sick and in prison and you didn’t take care of me.’ “Then they too will answer, ‘Lord, when did we see you hungry, or thirsty, or a stranger, or without clothes, or sick, or in prison, and not help you?’ “Then he will answer them, ‘Truly I tell you, whatever you did not do for one of the least of these, you did not do for me.’ “And they will go away into eternal punishment, but the righteous into eternal life.”
 
-### [32.2 The Quick & The Dead: Manifestation of His Glory](1689-32-2-the-quick-&-the-dead:-manifestation-of-his-glory.md)
+### [32.2 The Quick & The Dead: Manifestation of His Glory](1689-32-2-the-quick-&-the-dead-manifestation-of-his-glory.md)
 
 The end of God's appointing this day, is for the manifestation of the glory of his mercy, in the eternal salvation of the elect; and of his justice, in the eternal damnation of the reprobate, who are wicked and disobedient; for then shall the righteous go into everlasting life, and receive that fulness of joy and glory with everlasting rewards, in the presence of the Lord; but the wicked, who know not God, and obey not the gospel of Jesus Christ, shall be cast aside into everlasting torments, and punished with everlasting destruction, from the presence of the Lord, and from the glory of his power.
 
@@ -2501,7 +2501,7 @@ The end of God's appointing this day, is for the manifestation of the glory of h
 
 >2 Thessalonians 1:7–10 (CSB) and to give relief to you who are afflicted, along with us. This will take place at the revelation of the Lord Jesus from heaven with his powerful angels, when he takes vengeance with flaming fire on those who don’t know God and on those who don’t obey the gospel of our Lord Jesus. They will pay the penalty of eternal destruction from the Lord’s presence and from his glorious strength on that day when he comes to be glorified by his saints and to be marveled at by all those who have believed, because our testimony among you was believed.
 
-### [32.3 The Quick & The Dead: Come Lord Jesus--Amen](1689-32-3-the-quick-&-the-dead:-come-lord-jesus-amen.md)
+### [32.3 The Quick & The Dead: Come Lord Jesus--Amen](1689-32-3-the-quick-&-the-dead-come-lord-jesus-amen.md)
 
 As Christ would have us to be certainly persuaded that there shall be a day of judgment, both to deter all men from sin, and for the greater consolation of the godly in their adversity, so will he have the day unknown to men, that they may shake off all carnal security, and be always watchful, because they know not at what hour the Lord will come, and may ever be prepared to say, Come Lord Jesus; come quickly. Amen.
 
