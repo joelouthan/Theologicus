@@ -1,6 +1,6 @@
 <img class="intro-right" src="art-1689.png">
 
-# 20.2 Of The Gospel: Revealed in the Word of God
+# 20.2 Of The Gospel: Revealed in the Word of God Alone
 
 ## Table of Contents
 
