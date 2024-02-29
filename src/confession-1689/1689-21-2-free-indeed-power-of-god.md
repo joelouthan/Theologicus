@@ -8,7 +8,7 @@
 
 ## The Text
 
-TODO:
+>Romans 6:1–4 (CSB) What should we say then? Should we continue in sin so that grace may multiply? Absolutely not! How can we who died to sin still live in it? Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life.
 
 ## The Chapter
 

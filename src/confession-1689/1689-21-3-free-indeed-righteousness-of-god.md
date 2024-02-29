@@ -8,7 +8,7 @@
 
 ## The Text
 
-TODO:
+>Matthew 5:17–19 (CSB) “Don’t think that I came to abolish the Law or the Prophets. I did not come to abolish but to fulfill. For truly I tell you, until heaven and earth pass away, not the smallest letter or one stroke of a letter will pass away from the law until all things are accomplished. Therefore, whoever breaks one of the least of these commands and teaches others to do the same will be called least in the kingdom of heaven. But whoever does and teaches these commands will be called great in the kingdom of heaven.
 
 ## The Chapter
 
