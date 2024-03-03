@@ -34,6 +34,7 @@
 - [Second London Baptist Confession of Faith](confession-1689/index.md)
   - [Introduction & Resources](confession-1689/1689-00-intro.md)
   - [I. Of The Holy Scriptures](confession-1689/1689-01-0-index.md)
+    - [Teaching Notes: Revelation & Inspiration of the Holy Scriptures](confession-1689/1689-01-teaching-revelation-inspiration-of-holy-scriptures.md)
     - [1.1 The Holy Scriptures](confession-1689/1689-01-1-the-holy-scriptures.md)
     - [1.2 The Old and New Testaments of Holy Scripture](confession-1689/1689-01-2-old-and-new-testaments.md)
     - [1.3 The Apocrypha of Holy Scripture](confession-1689/1689-01-3-the-apocrypha-of-holy-scripture.md)

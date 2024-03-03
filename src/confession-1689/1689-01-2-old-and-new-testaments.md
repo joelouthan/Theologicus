@@ -20,7 +20,7 @@
 
 **OF THE NEW TESTAMENT: Matthew, Mark, Luke, John, The Acts of the Apostles, Paul's Epistle to the Romans, I Corinthians, II Corinthians, Galatians, Ephesians, Philippians, Colossians, I Thessalonians, II Thessalonians, I Timothy, II Timothy, To Titus, To Philemon, The Epistle to the Hebrews, Epistle of James, The first and second Epistles of Peter, The first, second, and third Epistles of John, The Epistle of Jude, The Revelation**
 
-**All of which are given by the inspiration of God, to be the rule of faith and life.****
+**All of which are given by the inspiration of God, to be the rule of faith and life.**
 
 ## The Confession
 
