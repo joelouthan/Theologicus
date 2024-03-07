@@ -24,3 +24,6 @@ tmp
 # Needing to block out theme/Gutenberg until I can get it folded
 
 theme/Gutenberg
+
+# Local Netlify folder
+.netlify

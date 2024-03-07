@@ -13,3 +13,5 @@ export default async (request, context) => {
 
   return context.next();
 };
+
+export const config = { path: "/test1" };
