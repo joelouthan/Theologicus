@@ -29,7 +29,12 @@ Corem Deo. I will live before the face of my God. And I know that one day, I wil
 
 #### tech
 
-![Crates.io](https://img.shields.io/crates/v/mdbook) ![Crates.io](https://img.shields.io/crates/v/mdbook-toc)
+[![tools](https://skillicons.dev/icons?i=vscode,vim,rust)]()
+[![tools](https://skillicons.dev/icons?i=md,css,html)]()
+[![tools](https://skillicons.dev/icons?i=bash,git,github)]()
 
-[![tools](https://skillicons.dev/icons?i=vscode,vim,rust,md,css,html,bash,git,github,netlify,linux)]()
 <a href="https://www.netlify.com"><img src="https://www.netlify.com/v3/img/components/netlify-color-accent.svg" alt="Deploys by Netlify" /></a>
+
+![Crates.io](https://img.shields.io/crates/v/mdbook)
+
+![Crates.io](https://img.shields.io/crates/v/mdbook-toc)
