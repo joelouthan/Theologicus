@@ -33,6 +33,10 @@ of my only, only Lord Jesus.
 
 [![tools](https://skillicons.dev/icons?i=vscode,vim,rust,md,css,html,bash,git,github,netlify,linux)]()
 
+## built on
+
+<a href="https://www.netlify.com"> <img src="https://www.netlify.com/v3/img/components/netlify-color-accent.svg" alt="Deploys by Netlify" /> </a>
+
 ## contact me
 
 [![Cell](https://img.shields.io/badge/SMS-joseph-437790?style=flat-square&logo=Apple)](sms:8177071486)
