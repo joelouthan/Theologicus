@@ -1,10 +1,16 @@
-# Code of Conduct for Theologicus
+# Code of Conduct
 
 ## The Introduction
 
-Hello and welcome to Theologicus! I am thrilled to have you here.
+Hello and welcome to [Theologicus](https://theologic.us/)! My name is Joseph Louthan, the sole proprietor and I am thrilled to have you here.
 
-Taking a quick glance at the content therein, you can quickly see that Theologicus is a small collection of my thoughts on God. This is from a Reformed, Baptist, theologically conservative, orthodox Christian perspective.
+By simply taking a quick glance at the content therein, you can quickly see that [Theologicus](https://theologic.us/) is a small collection of my personal thoughts on God. These writings are from a specific perspective, namely:
+
+- Christian
+- Reformed Baptist ([1689 2LBC](https://theologic.us/confession-1689/))
+- theologically classic
+- theologically conservative
+- historically orthodox
 
 To that end, this project is Open Source. Open Source is a collaborative approach that allows anyone to freely use, modify, and distribute the project's resources, fostering innovation and community development.
 
