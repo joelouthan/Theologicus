@@ -8,11 +8,11 @@ Taking a quick glance at the content therein, you can quickly see that Theologic
 
 To that end, this project is Open Source. Open Source is a collaborative approach that allows anyone to freely use, modify, and distribute the project's resources, fostering innovation and community development.
 
-Since this project is Open Source and open to collaboration, there is a need for a Code of Conduct. This Code of Conduct is designed to ensure a supportive and inclusive environment for everyone involved. My goal is to foster an open and welcoming community where contributors of all backgrounds feel safe to participate, share ideas, and collaborate effectively.
+Since this project is Open Source and therefore, is open to collaboration, there is a need for a Code of Conduct. This Code of Conduct is designed to ensure a supportive and inclusive environment for everyone involved. My goal is to foster an open and welcoming community where contributors of all backgrounds feel safe to participate, share ideas, and collaborate effectively.
 
 ## The Standards
 
-In the pursuit of creating a positive environment, we encourage the following behaviors:
+In the pursuit of creating a positive environment, I encourage the following behaviors:
 
 - Demonstrating empathy and kindness toward other people
 - Being respectful of differing opinions, viewpoints, and experiences
@@ -32,7 +32,7 @@ Unacceptable behaviors include, but are not limited to:
 
 ## Responsibilities
 
-Project maintainers are responsible for clarifying and enforcing our standards of acceptable behavior. We have the right and responsibility to remove, edit, or reject comments, commits, code, wiki edits, issues, and other contributions that are not aligned with this Code of Conduct.
+For the moment, I am the sole project maintainer. So it is my responsibility for clarifying and enforcing these standards of acceptable behavior. I have the right and responsibility to remove, edit, or reject comments, commits, code, wiki edits, issues, and other contributions that are not aligned with this Code of Conduct.
 
 ## Scope
 
