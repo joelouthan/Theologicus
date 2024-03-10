@@ -64,3 +64,14 @@ Today, we are going to answer some basic questions about the Bible:
 2. Isaiah 55:11 & Matt 4:4 - burn all bibles and delete the entire Bible.  Jesus Christ is the same forever 
 
 3. All saving knowledge comes from the scriptures alone - what's does the scriptures say? there is no other name by which we are saved; here is the gospel x10 
+
+>Luke 18:13 (CSB) “But the tax collector, standing far off, would not even raise his eyes to heaven but kept striking his chest and saying, ‘God, have mercy on me, a sinner! ’
+
+>Lamentations 3:22-24 (CSB)  
+>Because of the LORD’s faithful love  
+>we do not perish,  
+>for his mercies never end.  
+>They are new every morning;  
+>great is your faithfulness!  
+>I say, “The LORD is my portion,  
+>therefore I will put my hope in him.”
