@@ -77,3 +77,7 @@ TODO:
 >great is your faithfulness!  
 >I say, “The LORD is my portion,  
 >therefore I will put my hope in him.”
+
+TODO:
+
+1 John 1:1-4 - these things were written for us
