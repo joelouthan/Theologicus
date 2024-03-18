@@ -2,6 +2,8 @@
 
 # Luke 12:13-13:5 Christ Our All
 
+<!-- toc -->
+
 >Luke 12:13-21 (CSB) Someone from the crowd said to him, “Teacher, tell my brother to divide the inheritance with me.”
 >
 >“Friend,” he said to him, “who appointed me a judge or arbitrator over you?” He then told them, “Watch out and be on guard against all greed, because one’s life is not in the abundance of his possessions.”

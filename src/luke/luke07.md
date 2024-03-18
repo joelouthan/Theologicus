@@ -2,6 +2,8 @@
 
 # Luke 7 The Responses of Mankind
 
+<!-- toc -->
+
 >Luke 7:1–10 (CSB) When he had concluded saying all this to the people who were listening, he entered Capernaum. A centurion’s servant, who was highly valued by him, was sick and about to die. When the centurion heard about Jesus, he sent some Jewish elders to him, requesting him to come and save the life of his servant. When they reached Jesus, they pleaded with him earnestly, saying, “He is worthy for you to grant this, because he loves our nation and has built us a synagogue.”
 >
 >Jesus went with them, and when he was not far from the house, the centurion sent friends to tell him, “Lord, don’t trouble yourself, since I am not worthy to have you come under my roof. That is why I didn’t even consider myself worthy to come to you. But say the word, and my servant will be healed. For I too am a man placed under authority, having soldiers under my command. I say to this one, ‘Go,’ and he goes; and to another, ‘Come,’ and he comes; and to my servant, ‘Do this,’ and he does it.”

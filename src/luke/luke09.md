@@ -2,6 +2,8 @@
 
 # Luke 9 What is Christ Calling Us To?
 
+<!-- toc -->
+
 >Luke 9:1–6 (CSB) Summoning the Twelve, he gave them power and authority over all the demons and to heal diseases.  Then he sent them to proclaim the kingdom of God and to heal the sick.
 >
 >“Take nothing for the road,” he told them, “no staff, no traveling bag, no bread, no money; and don’t take an extra shirt.  Whatever house you enter, stay there and leave from there.  If they do not welcome you, when you leave that town, shake off the dust from your feet as a testimony against them.”  So they went out and traveled from village to village, proclaiming the good news and healing everywhere.

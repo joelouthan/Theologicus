@@ -2,6 +2,8 @@
 
 # Luke 19 Christ Comes in the Name of the Lord
 
+<!-- toc -->
+
 >Luke 19:1-10 (CSB) He entered Jericho and was passing through. There was a man named Zacchaeus who was a chief tax collector, and he was rich. He was trying to see who Jesus was, but he was not able because of the crowd, since he was a short man. So running ahead, he climbed up a sycamore tree to see Jesus, since he was about to pass that way. When Jesus came to the place, he looked up and said to him, “Zacchaeus, hurry and come down because today it is necessary for me to stay at your house.”
 >
 >So he quickly came down and welcomed him joyfully. All who saw it began to complain, “He’s gone to stay with a sinful man.”

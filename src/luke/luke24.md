@@ -2,6 +2,8 @@
 
 # Luke 24 Christ Lives
 
+<!-- toc -->
+
 ><img class="intro-right" src="art-luke.jpg">Luke 24:1-8 (CSB) On the first day of the week, very early in the morning, they came to the tomb, bringing the spices they had prepared. They found the stone rolled away from the tomb. They went in but did not find the body of the Lord Jesus. While they were perplexed about this, suddenly two men stood by them in dazzling clothes. So the women were terrified and bowed down to the ground.
 >
 >“Why are you looking for the living among the dead?” asked the men. “He is not here, but he has risen! Remember how he spoke to you when he was still in Galilee, saying, ‘It is necessary that the Son of Man be betrayed into the hands of sinful men, be crucified, and rise on the third day’?” And they remembered his words.
