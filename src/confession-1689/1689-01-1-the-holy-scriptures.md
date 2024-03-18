@@ -147,7 +147,7 @@ God in his own time, according to his own will, for his own glory reveal his wil
 
 But now we have the Christ, Son of God, who is God. God the Father, decided, in one history changing moment, revealed his only begotten Son--the Hebrew-scriptures-concealed Messiah and Savior of the world alongside the New Testament-revealed Worthy Lamb Who was Slain.
 
-Glory, glory to Him!
+Glory, glory to Him alone!
 
 TODO:
 
