@@ -2,7 +2,7 @@
 
 # Notes :: The Revelation & Inspiration of the Holy Scriptures
 
-Teaching notes for Reforming Truth Church's Conference "1689 On Holy Scriptures", March 23, 2024. These notes will be covering:
+*Teaching notes for Reforming Truth Church's Conference "1689 On Holy Scriptures", March 23, 2024. These notes will be covering:*
 
 - [1689.1.1 The Holy Scriptures](1689-01-1-the-holy-scriptures.md)
 - [1689.1.2 The Old & New Testaments](1689-01-2-old-and-new-testaments.md)
