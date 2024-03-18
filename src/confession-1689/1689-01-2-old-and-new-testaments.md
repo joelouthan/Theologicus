@@ -30,7 +30,7 @@ How did the canonization of the sixty-six books of the Bible come to being?
 
 Without going into a lengthy, detailed history lesson, let me put it simply: what did the ministers in the first few centuries of the church preach from? They preached from the sixty-six books of the Bible. If you take a stroll through a large bookstore chain, in around the Christian book section, you might find some book catch your eye like "The Lost Gospel of Thomas" or some such.
 
-Let me encourage if you got the time and energy: go and read these suppose lost gospels or lost books of the Bible. But you better know your Bible well. If you know your Bible, what you will find is that these lost books will start to contradict and contrast the Bible, the minstry of Christ and the gospel of Christ. You will quickly see that they don't belong there.
+Let me encourage if you got the time and energy: go and read these suppose lost gospels or lost books of the Bible. But you better know your Bible well. If you know your Bible, what you will find is that these lost books will start to contradict and contrast the Bible, the ministry of Christ and the gospel of Christ. You will quickly see that they don't belong there.
 
 If you don't know your Bible well, you might be tempted to think that there is better good news than the good news that Christ has: "repent of your sin, give it over to him because it is killing you, Christ will give you his righteousness, so you might live". All you are going to get outside the Bible is do a bunch of back-breaking things, know the super secret so that you know you can really be saved. And that salvation is more dependent upon you rather that Christ--that is damnable.
 
