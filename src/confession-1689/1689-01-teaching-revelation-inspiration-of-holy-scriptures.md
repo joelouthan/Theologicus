@@ -28,6 +28,8 @@ Today, we are going to answer some basic questions about the Bible:
 
 "So what?" I could stand here and give you a bunch of trivia facts about the Bible. What I want for you and me to come away from today's conference is to answer the question, "So what? What does the Bible mean for me as a child of God?"
 
+TODO: teaching in reserve 1) comes from the Spirit 2) get the 66 books 3) this is what it is for
+
 ## What is the Bible?
 
 ### 1689.1.1 On the Holy Scriptures
