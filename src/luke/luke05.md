@@ -8,7 +8,7 @@
 
 >Luke 5:1–7 (CSB) As the crowd was pressing in on Jesus to hear God’s word, he was standing by Lake Gennesaret.  He saw two boats at the edge of the lake; the fishermen had left them and were washing their nets.  He got into one of the boats, which belonged to Simon, and asked him to put out a little from the land. Then he sat down and was teaching the crowds from the boat.  When he had finished speaking, he said to Simon, “Put out into deep water and let down your nets for a catch.”  “Master,” Simon replied, “we’ve worked hard all night long and caught nothing. But if you say so, I’ll let down the nets.”  When they did this, they caught a great number of fish, and their nets began to tear.  So they signaled to their partners in the other boat to come and help them; they came and filled both boats so full that they began to sink.
 
-Genesis 1:1 (CSB) In the beginning God created the heavens and the earth.
+>Genesis 1:1 (CSB) In the beginning God created the heavens and the earth.
 
 If God created the heavens and the earth, does He control and command the heavens and the earth?
 
@@ -20,7 +20,7 @@ Can God control the weather?
 
 >Luke 5:8–11 (CSB) When Simon Peter saw this, he fell at Jesus’s knees and said, “Go away from me, because I’m a sinful man, Lord!”  For he and all those with him were amazed at the catch of fish they had taken,  and so were James and John, Zebedee’s sons, who were Simon’s partners. “Don’t be afraid,” Jesus told Simon. “From now on you will be catching people.”  Then they brought the boats to land, left everything, and followed him.
 
-John 6:66–69 (CSB) From that moment many of his disciples turned back and no longer accompanied him.  So Jesus said to the Twelve, “You don’t want to go away too, do you?”  Simon Peter answered, “Lord, to whom will we go? You have the words of eternal life.  We have come to believe and know that you are the Holy One of God.”
+>John 6:66–69 (CSB) From that moment many of his disciples turned back and no longer accompanied him.  So Jesus said to the Twelve, “You don’t want to go away too, do you?”  Simon Peter answered, “Lord, to whom will we go? You have the words of eternal life.  We have come to believe and know that you are the Holy One of God.”
 
 Why does Christ call us to turn away from our sins and this world and follow him?
 
@@ -38,11 +38,11 @@ Does the God who created us would be in charge over us? Why or why not?
 
 >Luke 5:17-20 On one of those days, as he was teaching, Pharisees and teachers of the law were sitting there, who had come from every village of Galilee and Judea and from Jerusalem. And the power of the Lord was with him to heal. And behold, some men were bringing on a bed a man who was paralyzed, and they were seeking to bring him in and lay him before Jesus, but finding no way to bring him in, because of the crowd, they went up on the roof and let him down with his bed through the tiles into the midst before Jesus. And when he saw their faith, he said, “Man, your sins are forgiven you.”
 
-Romans 1:16–17 (CSB) For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek.  For in it the righteousness of God is revealed from faith to faith, just as it is written: "The righteous will live by faith."
+>Romans 1:16–17 (CSB) For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek.  For in it the righteousness of God is revealed from faith to faith, just as it is written: "The righteous will live by faith."
 
-Galatians 2:20 (CSB) I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
+>Galatians 2:20 (CSB) I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
 
-Hebrews 12:1–2 (CSB) Therefore, since we also have such a large cloud of witnesses surrounding us, let us lay aside every hindrance and the sin that so easily ensnares us. Let us run with endurance the race that lies before us,  keeping our eyes on Jesus, the pioneer and perfecter of our faith. For the joy that lay before him, he endured the cross, despising the shame, and sat down at the right hand of the throne of God.
+>Hebrews 12:1–2 (CSB) Therefore, since we also have such a large cloud of witnesses surrounding us, let us lay aside every hindrance and the sin that so easily ensnares us. Let us run with endurance the race that lies before us,  keeping our eyes on Jesus, the pioneer and perfecter of our faith. For the joy that lay before him, he endured the cross, despising the shame, and sat down at the right hand of the throne of God.
 
 What is faith?
 
