@@ -19,30 +19,68 @@
 
 ## The Intro
 
+In an CNN Red Chair Interview, Richard Dawkins was asked what would he say if he met God after his death:
+
+>What's going to happen when I die, if I met god in the unlikely event after I died, I think the first thing I would say is well, which one are you? Are you Zeus? Are you Thor? Are you Baal? Are you Mithras? Are you Yahweh? Which god are you?
+
+Which is a bit peculiar, to say the least. But that bit of end-of-ones-life banter with the Holy Almighty God is leading up to what Dawkins really wants to ask and I quote:
+
+>And why did you take such great pains to conceal yourself and to hide away from us? 
+>
+> Richard Dawkins. CNN Red Chair Interview. September 5, 2012. [CNN](https://www.cnn.com/videos/living/2012/09/05/orig-red-chair-richard-dawkins.cnn)
+
+But God did not hide himself. Not even close. I would even give Mr. Dawkins a fair shake if Christ came in as a nobody and left as a nobody and then all of sudden myth after myths started coming up about some son of a carpenter in the Palestinian Middle East some 2000 years ago.
+
+Christ came in as a nobody, this is true. Yet, it pleased the Father by the power of the Spirit to reveal God in the flesh--his only begotten Son, Jesus Christ, Son of God who is God:
+
+>John 1:14–18 (CSB) The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth. (John testified concerning him and exclaimed, “This was the one of whom I said, ‘The one coming after me ranks ahead of me, because he existed before me.’ ”)
+
+Yet, the entire basis of the Jewish faith prophesied that this was to be start. Starting with Genesis and ending with Malachi. Over 200 prophecies about the upcoming Messiah:
+
+>Indeed, we have all received grace upon grace from his fullness, for the law was given through Moses; grace and truth came through Jesus Christ.
+
+Christ, born of a virgin, into a know-nothing family, in a know-nothing back-country town of Bethlehem.
+
+>Isaiah 53:1-2 (CSB) Who has believed what we have heard?  
+>And to whom has the arm of the LORD been revealed?  
+>He grew up before him like a young plant  
+>and like a root out of dry ground.  
+>He didn’t have an impressive form  
+>or majesty that we should look at him,  
+>no appearance that we should desire him.
+
+All of humankind, you, me, and Mr. Dawkins, included are without excuse. From Adam onwards, God has written his moral law upon our hearts. Despite our born sin nature and our own sin, we try to suppress that God exist or God is not who he says he is why? So that we can do sin more--so that we can do what is right in our own eyes. That is our natural born state.
+
+But God, fully perfect, fully good, fully holy, and fully merciful and love, did what for the world? Sent his only begotten Son.
+
+And for all the atheism and agnosticism and suppression of the truth that the sons of Adam try to come up with, there is no one in their right mind can deny the historical Jesus of Nazareth. You wouldn't just be denying the Bible (that is easy enough) but you would be denying the historical records of the greatest empire of all time: the Greco-Roman Empire. Deny that Jesus ever existed and you would look like a fool.
+
+>John 1:18 (CSB) No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
+
+God did reveal himself. He sent his precious Son to live and die and save his people from their sins. (Matthew 1:21)
+
 Today, we are going to answer some basic questions about the Bible:
 
-- What is the Bible?
+- Where does the Bible come from? What is the source?
 - What does the Bible contain?
-- How did we get the Bible?
+- What is the Bible about and what is it for? What is the purpose of the Bible?
 - Last and certainly not least, so what?
 
-"So what?" I could stand here and give you a bunch of trivia facts about the Bible. What I want for you and me to come away from today's conference is to answer the question, "So what? What does the Bible mean for me as a child of God?"
+"So what?" I could stand here and give you a bunch of trivia facts about the Bible. What I want for you and me to come away from today's conference is to answer the question, "So what? What does the Bible mean for me as an adopted child of God?"
 
-TODO: teaching in reserve 1) comes from the Spirit 2) get the 66 books 3) this is what it is for
+## Where does the Bible come from? What is the source?
+
+### 1689.1.8 On the Inspiration of the Holy Scriptures
+
+**The Old Testament in Hebrew (which was the native language of the people of God of old), and the New Testament in Greek (which at the time of the writing of it was most generally known to the nations), being immediately inspired by God, and by His singular care and providence kept pure in all ages, are therefore authentic; so as in all controversies of religion, the church is finally to appeal to them. But because these original tongues are not known to all the people of God, who have a right unto, and interest in the Scriptures, and are commanded in the fear of God to read, and search them, therefore they are to be translated into the vulgar language of every nation unto which they come, that the Word of God dwelling plentifully in all, they may worship Him in an acceptable manner, and through patience and comfort of the Scriptures may have hope.**
+
+- only the original manuscripts that were inspired by the Spirit through the mind and heart and soul and hand of the author unto the papyrus and parchment.
+- will have slight differences but none of them disagree with each other when it comes to doctrine, theology, law and the gospel.
+- in other words, there isn't a copy of the word ever in existence that allows a sin that we have mistranslated or something that gets the gospel wrong. Neither, "Oopsies, homosexuality is permissable by the Holy God" nor "Oh, I am sorry--we have to break our backs to earn the love and grace of the Lord Jesus Christ. Silly me."
 
 ## What is the Bible?
 
-### 1689.1.1 On the Holy Scriptures
-
-**The Holy Scripture is the only sufficient, certain, and infallible rule of all saving knowledge, faith, and obedience, although the light of nature, and the works of creation and providence do so far manifest the goodness, wisdom, and power of God, as to leave men inexcusable; yet are they not sufficient to give that knowledge of God and his will which is necessary unto salvation. Therefore it pleased the Lord at sundry times and in divers manners to reveal himself, and to declare that his will unto his church; and afterward for the better preserving and propagating of the truth, and for the more sure establishment and comfort of the church against the corruption of the flesh, and the malice of Satan, and of the world, to commit the same wholly unto writing; which maketh the Holy Scriptures to be most necessary, those former ways of God's revealing his will unto his people being now ceased.**
-
-- only source of how are are saved by God
-  - No other place
-  - outside the Bible? you are not going to have saving knowledge
-- Modern: the reduction of the Bible as yet-another-piece-of-literature
-- yet, it please the Lord at various times to reveal himself in his word through 40 plus authors that making up the 66 books of the Bible.
-
-## What is in the Bible?
+*What does the Bible contain?*
 
 ### 1689.1.2 The Old & New Testament of the Holy Scriptures
 
@@ -54,16 +92,46 @@ TODO: teaching in reserve 1) comes from the Spirit 2) get the 66 books 3) this i
 
 **All of which are given by the inspiration of God, to be the rule of faith and life.**
 
+- never forget, all of the Scriptures are about the Lord Jesus Christ. For it is Christ, the Son of God who is God said:
+
+>John 5:39 (CSB) You pore over the Scriptures because you think you have eternal life in them, and yet they testify about me.
+
+If you are digging in the Bible hoping for eternal life, then pay attention to what the Bible is saying outloud and clearly:
+
+>John 3:14–15 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
+
 ### 1689.1.3 On The Apocrypha of the Holy Scriptures
 
 **The books commonly called Apocrypha, not being of divine inspiration, are no part of the canon or rule of the Scripture, and, therefore, are of no authority to the church of God, nor to be any otherwise approved or made use of than other human writings.**
 
+- Quote from Sproul's "Truths We Confess" - "It's worth the read like any good piece of literature. But divinely inspired, it is not."
 
-## How did we receive this Bible?
+William Perkins in his wonderful book, "The Art of Prophesying and the Calling of the Ministry," (while not explicitly linked to the Confession, it is a great little read that pairs well in teaching parts of the Confession) puts it succinctly on the Apocrypha:
 
-### 1689.1.8 On the Inspiration of the Holy Scriptures
+- They were not written by the prophets
+- They were not written in Hebrew
+- In the New Testament, neither Christ nor the apostles appeal to the testimony of those books
+- They include false teaching which is contrary to the Scriptures[^perkins-apocrypha]
 
-**The Old Testament in Hebrew (which was the native language of the people of God of old), and the New Testament in Greek (which at the time of the writing of it was most generally known to the nations), being immediately inspired by God, and by his singular care and providence kept pure in all ages, are therefore authentic; so as in all controversies of religion, the church is finally to appeal to them. But because these original tongues are not known to all the people of God, who have a right unto, and interest in the Scriptures, and are commanded in the fear of God to read and search them, therefore they are to be translated into the vulgar language of every nation unto which they come, that the Word of God dwelling plentifully in all, they may worship him in an acceptable manner, and through patience and comfort of the Scriptures may have hope.**
+## What is in the Bible?
+
+*What is the Bible about?*
+
+### 1689.1.1 On the Holy Scriptures
+
+**The Holy Scripture is the only sufficient, certain, and infallible rule of all saving knowledge, faith, and obedience, although the light of nature, and the works of creation and providence do so far manifest the goodness, wisdom, and power of God, as to leave men inexcusable; yet they are not sufficient to give that knowledge of God and His will which is necessary unto salvation. Therefore it pleased the Lord at sundry times and in diversified manners to reveal Himself, and to declare (that) His will unto His church; and afterward for the better preserving and propagating of the truth, and for the more sure establishment and comfort of the church against the corruption of the flesh, and the malice of Satan, and of the world, to commit the same wholly unto writing; which makes the Holy Scriptures to be most necessary, those former ways of God's revealing His will unto His people being now completed.**
+
+- Gary Thomas. Sacred Pathways. Made notice of the personality types of the worshippers of God. Some in music. Some in art. Some in nature. Some in the study.
+
+>1 Corinthians 10:31 (CSB) So, whether you eat or drink, or whatever you do, do everything for the glory of God.
+
+- there are so many things given to all of mankind by the hand of God that certain reveals that there is a creator and he is sovereign over all of his creation
+- but no matter how many sunsets, trees, rivers, or Grand Canyons; infinite data and books; endless music and creation of art--will NEVER save not one son of Adam to God
+- how are we are saved by God--that is saving knowledge, faith, and obedience--can only be found in the Scriptures. No exception.
+- Modern mindset
+  - the reduction of the Bible as yet-another-piece-of-literature akin to The Lord of the Rings, Autobiography of Malcolm X or even the Quran
+  - "How can you be so sure? What if a person cannot read?" You mean like 99% of the people mentioned in the pages of the Bible? Ordinary means of grace--the preaching of the word of God--is not an new thing. It is an ancient thing going all the way back to God preaching the law in Genesis 2 and proclaiming the gospel in Genesis 3
+- yet, it please the Lord at various times to reveal himself in his word through 40 plus authors that making up the 66 books of the Bible.
 
 ## So what?
 
@@ -209,3 +277,5 @@ He called upon the God who just in wrath--but the only God poured out his saving
 The tax collector knew this. You know this. And I know this.
 
 These things were written, in this Bible, all 66 books, containing saving knowledge of God, so that you and my joy may be complete. (1 John 1:4)
+
+[^perkins-apocrypha]: William Perkins. The Art of Prophesying and the Calling of the Ministry. 24.
