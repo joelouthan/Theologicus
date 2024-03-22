@@ -24,9 +24,9 @@ Copies and translations will have minor differences and errors in them. Are we t
 
 No. Not even in the least bit.
 
-What is mind boggling about the Hebrew and the Greek manuscripts is that despite the minor differences and errors, no, none, zero primary and secondary doctrines were changed and affected. The gospel is always the gospel. Christ is still Christ. The Triune God is still Triune. Creeds are still the Creeds. Confessions (that came 1200 years after the Creeds) are still Confessional.
+What is mind boggling about the translations from the Hebrew and the Greek manuscripts is that despite the minor differences and errors, no, none, zero primary and secondary doctrines were changed and affected. The gospel is always the gospel. Christ is still Christ. The Triune God is still Triune. Creeds are still the Creeds. Confessions (that came 1200 years after the Creeds) are still Confessional.
 
-You and I don't have to worry that we have missed something. We have God. We haven't missed a thing.
+You and I don't have to worry that we have missed something. We have God and his word. We haven't missed a thing.
 
 Or you can be like every single human in history who overthought this point went searching the Scriptures for some other kind of life when the Scriptures testify about Jesus Christ:
 
