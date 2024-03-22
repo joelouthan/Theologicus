@@ -45,7 +45,7 @@ Which is a bit peculiar, to say the least. But that bit of end-of-ones-life bant
 
 But God did not hide himself. Not even close. I would even give Mr. Dawkins a fair shake if Christ came in as a nobody and left as a nobody and then all of sudden myth after myths started coming up about some son of a carpenter in the Palestinian Middle East some 2000 years ago.
 
-Christ came in as a nobody, this is true.
+Christ came in as a nobody, this is true. Yet, it pleased the Father by the power of the Spirit to reveal God in the flesh--his only begotten Son, Jesus Christ, Son of God who is God:
 
 >John 1:14–18 (CSB) The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth. (John testified concerning him and exclaimed, “This was the one of whom I said, ‘The one coming after me ranks ahead of me, because he existed before me.’ ”)
 
@@ -55,15 +55,15 @@ Yet, the entire basis of the Jewish faith prophesied that this was to be start. 
 
 Christ, born of a virgin, into a know-nothing family, in a know-nothing back-country town of Bethlehem.
 
->Isaiah 53:1-2 (CSB) Who has believed what we have heard?
-And to whom has the arm of the LORD been revealed?
-He grew up before him like a young plant
-and like a root out of dry ground.
-He didn’t have an impressive form
-or majesty that we should look at him,
-no appearance that we should desire him.
+>Isaiah 53:1-2 (CSB) Who has believed what we have heard?  
+>And to whom has the arm of the LORD been revealed?  
+>He grew up before him like a young plant  
+>and like a root out of dry ground.  
+>He didn’t have an impressive form  
+>or majesty that we should look at him,  
+>no appearance that we should desire him.
 
-All of humankind, you, me, and Mr Dawkins, included are without excuse. From Adam onwards, God has written his moral law upon our hearts. Despite our born sin nature and our own sin, we try to suppress that God exist or God is not who he says he is why? So that we can do sin more--so that we can do what is right in our own eyes. That is our natural born state.
+All of humankind, you, me, and Mr. Dawkins, included are without excuse. From Adam onwards, God has written his moral law upon our hearts. Despite our born sin nature and our own sin, we try to suppress that God exist or God is not who he says he is why? So that we can do sin more--so that we can do what is right in our own eyes. That is our natural born state.
 
 But God, fully perfect, fully good, fully holy, and fully merciful and love, did what for the world? Sent his only begotten Son.
 
