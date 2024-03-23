@@ -50,11 +50,13 @@
 
 >John 1:14 (CSB) The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth.
 
+*4m*
+
 - Jesus Christ is the greatest individual in all of history.
 - All of humankind--you, me, and Mr. Dawkins included, are without excuse to believe and trust in the one whom God sent for us. 
-- All of us--in our natural sin state were born trying to suppress the knowledge that God exists. The 1st chapter of Romans testify to these things.
+- All of us--in our natural sin state were born trying to suppress the knowledge that God exists.
 - Everything we know and see all around us--even if we never heard of God--testify that there is a God
-- So God, fully perfect, fully good, fully holy, and fully merciful and love, did this one blessed and wonderful thing: for his great love for the world, he revealed himself by sending his only begotten Son, Jesus Christ our Lord, Savior, and King.
+- So God, fully perfect, fully good, fully holy, and fully merciful and love, did this one blessed and wonderful thing: in his great love for the world, he revealed himself by sending his only begotten Son, Jesus Christ our Lord, Savior, and King.
 
 >John 1:18 (CSB) No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
 
@@ -67,7 +69,7 @@
 - We have the message about the Christ.
 - We have the Bible.
 
-- This is why the first chapter of the 1689 Second London Baptist Confession starts off the only source of our saving knowledge, faith, and obedience to the Christ who loved me and gave himself up for me. (Galatians 2:20)
+- This is why the first chapter of the 1689 Second London Baptist Confession starts off the only source of our saving knowledge, faith, and obedience to the Christ who loved us and gave himself up for us. (Galatians 2:20)
 
 Today, in our first session of RTC's inaugural mini conference, we are going to answer some basic questions about the Bible:
 
@@ -96,7 +98,7 @@ All Scripture is inspired by God and is profitable for teaching, for rebuking, f
 - The words contained in this Bible, in the order that they were put together, constructed to form complete and coherent thoughts, ideas, statements, instructions, and proclamations come directly from and inspired by the Almighty God himself.
 - That it please the Father in different times, through the power of the Spirit, to inspire authors to write about his only begotten Son, Jesus Christ.
 - And to that end, it is the original manuscripts that the confession declares to be infallible and inerrant--that is, without mistakes nor errors.
-- have you ever thought about that? The Confession is not saying "every copy of the original manuscripts and every translation is considered to be inerrant and infallible--just the original."
+- have you ever thought about that? The Confession is saying "every copy of the original manuscripts and every translation is not considered to be inerrant and infallible--just the original."
 - The copies that were made from the original manuscripts will have slight differences between the copies of the Scriptures but none of them disagree with each other and rightfully support one another when it comes to doctrine, theology, law and the gospel.
 - So to that end, the translations, by and large can be trusted. Your NIV contains the law and the gospel. Your KJV masterfully recites the Psalms. Your NASB tries its best to translate from the original languages word for word. Your ESV takes that word for word and makes that a bit more readable. The CSB takes its one step further and takes away the odd word pacing of the ESV and strives for even a greater readability.
 - Faithful translations in and of themselves are not infallible and inerrant. They do contain miniscule differences and minor errors
@@ -206,8 +208,7 @@ Come now, Lord Jesus.
 - The same infallible, same perfect Scriptures that Christ himself equates as "the mouth of God" (Matthew 4:4) contains the same laws of God that demands our perfection in order for us to be with God. 
 - So, my question to those who want the Bible to not to mean what it says: why do you want to change the Scriptures? 
 - Do you want to be with God? 
-- We could be in line with numerous wicked people who attempted to change the Bible for our own ill-gotten gains. 
-- But us changing a copy of or a translation--changing  one dot one tittle of the law will not save us. 
+- All of our changing the Bible--thru twisting or coming up with our own unfaithful translations will not save us. 
 - You are trying to change the law of God which wasn't going to save us in the first place. 
 - Eternal life is not found in the Scriptures but the One whom the Scriptures once concealed now revealed to be the Savior of the world--that is Jesus Christ.
 
@@ -215,7 +216,7 @@ Come now, Lord Jesus.
 - What did James said, "Break one law and we break them all." (James 2:10)
 - We have broken one law.
 - Therefore, we have broken all of the law.
-- And God demands that you have never broken any of us laws in order to be with him.
+- And God demands that you have never broken any of his laws in order to be with him.
 - Who is going to save us?
 - It is the same infallible, same perfect Scriptures that contain the law of God that also gives us a plan of salvation. Trust in one who both gives us the law but perfectly obeyed the law and fulfilled the law. His name is Jesus Christ. Call upon his name and you will be saved.
 
