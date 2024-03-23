@@ -1,13 +1,15 @@
 <img class="intro-right" src="art-1689.png">
 
-# Notes :: The Revelation & Inspiration of the Holy Scriptures
+# The Revelation & Inspiration of the Holy Scriptures
 
-*Teaching notes for Reforming Truth Church's Conference "1689 On Holy Scriptures", March 23, 2024. These notes will be covering:*
-
-- [1689.1.1 The Holy Scriptures](1689-01-1-the-holy-scriptures.md)
-- [1689.1.2 The Old & New Testaments](1689-01-2-old-and-new-testaments.md)
-- [1689.1.3 On the Apocrypha](1689-01-3-the-apocrypha-of-holy-scripture.md)
-- [1689.1.8 On the Inspiration of the Holy Scriptures](1689-01-8-the-inspiration-of-God-on-scripture.md)
+>*Teaching notes for Reforming Truth Church's Conference "1689 On Holy Scriptures", March 23, 2024. These notes will be covering:*
+>
+>- [1689.1.1 The Holy Scriptures](1689-01-1-the-holy-scriptures.md)
+>- [1689.1.2 The Old & New Testaments](1689-01-2-old-and-new-testaments.md)
+>- [1689.1.3 On the Apocrypha](1689-01-3-the-apocrypha-of-holy-scripture.md)
+>- [1689.1.8 On the Inspiration of the Holy Scriptures](1689-01-8-the-inspiration-of-God-on-scripture.md)
+>
+> Livestream & Recording: [Reforming Truth Church](https://www.youtube.com/@reformingtruthchurch/streams)
 
 ## Table of Contents
 
@@ -15,58 +17,61 @@
 
 ## The Text
 
->Matthew 4:4 (CSB) He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
+>Matthew 4:1-4 (CSB) Then Jesus was led up by the Spirit into the wilderness to be tempted by the devil. After he had fasted forty days and forty nights, he was hungry. Then the tempter approached him and said, “If you are the Son of God, tell these stones to become bread.” **He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”**
 
 ## The Intro
 
-In an CNN Red Chair Interview, Richard Dawkins was asked what would he say if he met God after his death:
+- In an CNN Red Chair Interview, Richard Dawkins was asked what would he say if he met God after his death:
 
 >What's going to happen when I die, if I met god in the unlikely event after I died, I think the first thing I would say is well, which one are you? Are you Zeus? Are you Thor? Are you Baal? Are you Mithras? Are you Yahweh? Which god are you?
 
-I think that answer is  a bit peculiar, to say the least. Joking aside, I suspect what he really wants to say when he stands before the Almighty God, maker of heaven and earth is this question:
+- I think that answer is  a bit peculiar, to say the least. Joking aside, I suspect what he really wants to say when he stands before the Almighty God, maker of heaven and earth is this question:
 
 >And why did you take such great pains to conceal yourself and to hide away from us? 
 >
 > Richard Dawkins. CNN Red Chair Interview. September 5, 2012. [CNN](https://www.cnn.com/videos/living/2012/09/05/orig-red-chair-richard-dawkins.cnn)
 
-But God did not hide himself. Not even close. 
+- But God did not hide himself. Not even close. 
 
-I would even give Mr. Dawkins a fair shake if Christ came into our world as a nobody and left as a nobody and then all of sudden, over the course of time, myth after myths started coming up about man who taught about loving your neighbor and be kind to everyone and then, because of a corrupt justice system, was wrongfully tried and executed.
+- I would even give Mr. Dawkins a fair shake if Christ came into our world as a nobody and left as a nobody and then all of sudden, over the course of time, myth after myths started coming up about man who taught about loving your neighbor and be kind to everyone and then, because of a corrupt justice system, was wrongfully tried and executed.
 
-Christ came in as a nobody, this is true. But his life--particularly his ministry, his perfec work, his death on the cross, his resurrection from actual death to actual life, and his ascension to the right hand of the Almighty God the Father--was far, far from ordinary and quiet. His appearance--his existance with his creation changed all of history for all time.
+- Christ came in as a nobody, this is true. He wasn't born in a palace of any sort. His parents were just ordinary working class folk.
+- But his life--particularly his ministry, his perfec work, his death on the cross, his resurrection from actual death to actual life, and his ascension to the right hand of the Almighty God the Father--was far, far from ordinary and quiet.
+- His appearance--his existance with his creation changed all of history for all time.
+- It pleased the Father by the power of the Spirit to change the course of human history in such a way as this: to reveal God in the flesh--his only begotten Son, Jesus Christ, Son of God who is God:
 
-It pleased the Father by the power of the Spirit to change the course of human history in such a way as this: to reveal God in the flesh--his only begotten Son, Jesus Christ, Son of God who is God:
+>John 1:14 (CSB) The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth.
 
->John 1:14–18 (CSB) The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth. (John testified concerning him and exclaimed, “This was the one of whom I said, ‘The one coming after me ranks ahead of me, because he existed before me.’ ”)
-
-Yet, the entire basis of the Jewish faith prophesied that this was to be start. Starting with Genesis and ending with Malachi. Over 200 prophecies about the upcoming Messiah:
-
->Indeed, we have all received grace upon grace from his fullness, for the law was given through Moses; grace and truth came through Jesus Christ.
-
-Jesus Christ is the greatest historical individual in all of history. All of humankind--you, me, and Mr. Dawkins included, are without excuse to believe and trust in the one whom God sent for us. Despite having the moral law of  God has written upon our hearts, we have all sinned and fallen short of the glory of God. By that very broken born sin nature and by the sins we commit, we try to suppress the fact that  God exist! We would dare stand before the God who knitted us in our mother's womb and ask "Are you Odin? Are you Allah?" We are born suppressing this truth to the point of sounding as foolish as the day we were born. And we suppress this truth to do what?  So that we can do sin more--so that we can do what is right in our own eyes. That is our natural born state.
-
-But God, fully perfect, fully good, fully holy, and fully merciful and love, did this one blessed and wonderful thing: he sent his only begotten Son.
-
-And for all the atheism and agnosticism and suppression of the truth that the sons of Adam try to come up with, there is no one in their right mind can deny the historical Jesus of Nazareth. You wouldn't just be denying the Bible (that is easy enough) but you would be denying the historical records of the greatest empire of all time: the Greco-Roman Empire. Deny that Jesus ever existed and you would look like a fool.
+- Jesus Christ is the greatest historical individual in all of history.
+- All of humankind--you, me, and Mr. Dawkins included, are without excuse to believe and trust in the one whom God sent for us. 
+- All of us--in our natural sin state were born trying to suppress the knowledge that God exists. The 1st chapter of Romans testify to these things.
+- Everything we know and see all around us--even if we never heard of God--testify that there is a God
+- So God, fully perfect, fully good, fully holy, and fully merciful and love, did this one blessed and wonderful thing: for his great love for the world, he revealed himself by sending his only begotten Son, Jesus Christ our Lord, Savior, and King.
 
 >John 1:18 (CSB) No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
 
-God did reveal himself. He sent his precious Son to live and die and save his people from their sins. (Matthew 1:21)
+- God did reveal himself.
+- We are all without excuse.
+- And how do we know this to be sure?
+- Furthermore, how do we know this and believe in him and trust in him so that we may not perish in our sins but have everlasting life?
 
-And how do we know this to be sure? Furthermore, how do we know this and believe in him and trust in him so that we may not perish in our sins but have everlasting life?
+- Because, we have the Holy Scriptures.
+- We have the message about the Christ.
+- We have the Bible.
 
-Because, we have the Holy Scriptures. We have the message about the Christ. We have the Bible.
+- This is why the first chapter of the 1689 Second London Baptist Confession starts off the only source of our saving knowledge, faith, and obedience to the Christ who loved me and gave himself up for me. (Galatians 2:20)
 
-This is why the first chapter of the 1689 Second London Baptist Confession starts off the only source of our saving knowledge, faith, and obedience to the Christ who loved me and gave himself up for me. (Galatians 2:20)
-
-Today, in our first session of today's inaugural RTC mini conference, we are going to answer some basic questions about the Bible:
+Today, in our first session of RTC's inaugural mini conference, we are going to answer some basic questions about the Bible:
 
 - Where does the Bible come from? In other words, what is the source of the words in this book?
 - Second, what does the Bible contain?
 - Next, what is the Bible about and what is it for? What is the purpose of the Bible?
 - Lastly and certainly not least, so what?
 
-"So what?" I could stand here and give you a bunch of trivia facts about the Bible. But what I want for you and me to come away from today's conference is to answer the question, "So what? What does the Bible mean for me as an adopted child of God?"
+- "So what?" I don't want to use my time today to give us a bunch of trivia facts that you could easily look up on the Internet.
+- I want to encourage you: if you don't have that still small voice that so many people don't have, guess what, you still hear from God because you have the Christ because the Holy Spirit dwells in you
+- I want you to be strengthen: when we sin and when our faith is at a breaking point, it is not that we hold on to God but the Father and Son doubly infinitely hold on to us that is sealed by the Spirit
+- I want you to be loved: we don't always feel it but we get to hear that the steadfast love of the Lord never ceases for us and his mercies for us never come to an end.
 
 ## Where does the Bible come from? What is the source?
 
@@ -190,57 +195,28 @@ The same infallible, same perfect Scriptures that Christ himself equates as "the
 
 It is the exact same Bible that tells us how infinitely far we are in our depravity and what the Infinite God did to save us from our sins.
 
-2\. **Confidence despite apparent contradictions** - Despite written with the minds and hands of human authors, their inspiration did not come from within their IQ, schooling, EQ, creative talents or even their command of their written language--although, all of that is factored into the word we have today. No, all Scripture is inspired and breathed out by the Holy Spirit:
-
->2 Timothy 3:16–17 (CSB) All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
-
-This word--these Scriptures are outside of our world. They are completely and wholly supernatural. Go to all the Christian schools. Study away your life. Search the Scriptures and without the Holy Spirit opening up our minds and our hearts, we will search these Scriptures in vain. 
-
-Even when you read the Bible and see apparent contradictions... I will give you the biggest contradiction: take Romans 4 and James 2. You know where I am going with this. Paul quotes Genesis 15.
-
->Romans 4:3 (CSB) For what does the Scripture say? Abraham believed God, and it was credited to him for righteousness.
-
-What does James say? On the surface, it seems he is countering what Paul is saying:
-
->James 2:22-24 (CSB) You see that faith was active together with his works, and by works, faith was made complete, and the Scripture was fulfilled that says, Abraham believed God, and it was credited to him as righteousness, and he was called God’s friend. You see that a person is justified by works and not by faith alone.
-
-The modern man will go "Ah ha! Look! James is contradicts Paul!" But oh Au contraire mon frère! Let me submit to you that Paul would not have been offended but he would have wholeheartedly  agreed. I am not making this up! "Yes, James..."
-
->Ephesians 2:10 (CSB) For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
-
-Luke chimes in:
-
->Acts 17:25 (CSB) Neither is he served by human hands, as though he needed anything, since he himself gives everyone life and breath and all things.
-
-We are not saved by doing good works. But when we are saved, we do good works for our neighbor. Remember the words of Christ:
-
->Matthew 22:37-39 (CSB) He said to him, “Love the Lord your God with all your heart, with all your soul, and with all your mind. This is the greatest and most important command. The second is like it: Love your neighbor as yourself.
-
-The second is like it. You love God? Love your neighbor. John agrees:
-
->1 John 4:20-21 (CSB) If anyone says, “I love God,” and yet hates his brother or sister, he is a liar. For the person who does not love his brother or sister whom he has seen cannot love God whom he has not seen. And we have this command from him: The one who loves God must also love his brother and sister.
-
-When it seems we have stumbled upon an apparent contradiction, be humble. You and I ain't the first to see this. Don't you think when when the early church fathers canonized the 66 books, that they didn't already think of that? It is the hubris of the modern person to think that we caught something that the early church totally whiffed on.
-
-Is it that they completely missed it or is it the possibility that we have over 2,000 years of Christ building his church to which the gates of hell will not withstand? And that generation after generation stood fast, even to the point of torture and death for this one truth--the Holy Scriptures that contain knowledge of salvation, faith, and obedience unto God.
-
-We don't have to change one word or idea in this book. When we come upon something that is out of sorts, we must remember we are not the first and we must remember the entire character of God Almighty.
-
-3\. Try to remove the Bible, the Bible lives forever
+2\. Try to remove the Bible, the Bible lives forever
 
 >Isaiah 55:10 (CSB) For just as rain and snow fall from heaven and do not return there without saturating the earth and making it germinate and sprout, and providing seed to sow and food to eat,
 
-Burn all Bibles and delete the entire Bible from the internet. Guess what? You can't eradicate it. The Bible does not come from man but from God. 
+- Come out with your own blasphemous translation? His word lives forever because God is forever.
+- Burn all Bibles? His promises are steadfast because Christ is the yes and amen to all the promises of God. Satan, demons, and mankind tried to kill him but he rose again from the dead.
+- Delete the entire Bible from the internet. Guess what? You can't eradicate it. The Bible does not come from man but from the Infinite God. 
 
 >Romans 10:17 (CSB) So faith comes from what is heard, and what is heard comes through the message about Christ.
 
-We will still be saved by the message about Christ. The Bible will never die because God is the God of the everlasting.
+- The Holy Scriptures are about the Christ. We will always have the Scriptures because his people are saved by hearing the message of Christ preached.
+- The Bible will never die because God is the God of the everlasting.
 
-Here's the first point and the last point:
+Here's the last point and I will be done:
 
-4\. **All saving knowledge comes from the scriptures alone** - what's does the scriptures say? there is no other name by which we are saved; here is the gospel:
+3\. **The Holy Scripture is the only sufficient, certain, and infallible rule of all saving knowledge, faith, and obedience**
 
-For here is love:
+- What does the Holy Scriptures say?
+- There is no other name other than the name of Jesus Christ by which we are saved
+- The Holy Scriptures is the only sufficient, certain, and infallible rule of all saving knowledge, faith, and obedience because it is the only thing that contains the gospel of Jesus Christ.
+
+What is the gospel?
 
 >Genesis 3:15  
 >I will put enmity between you and the woman,  
@@ -248,63 +224,35 @@ For here is love:
 >he shall bruise your head,  
 >and you shall bruise his heel.
 
-And here is love:
-
->Deuteronomy 7:6-8 “For you are a people holy to the LORD your God. The LORD your God has chosen you to be a people for his treasured possession, out of all the peoples who are on the face of the earth. It was not because you were more in number than any other people that the LORD set his love on you and chose you, for you were the fewest of all peoples, but it is because the LORD loves you and is keeping the oath that he swore to your fathers, that the LORD has brought you out with a mighty hand and redeemed you from the house of slavery, from the hand of Pharaoh king of Egypt.
-
-And here is love:
-
->Psalm 103:15-18 As for man, his days are like grass; he flourishes like a flower of the field; for the wind passes over it, and it is gone, and its place knows it no more. But the steadfast love of the LORD is from everlasting to everlasting on those who fear him, and his righteousness to children’s children, to those who keep his covenant and remember to do his commandments.
-
-And here is love:
+And here is some good news:
 
 >Ezekiel 36:22-28 And I will give them one heart, and a new spirit I will put within them. I will remove the heart of stone from their flesh and give them a heart of flesh, that they may walk in my statutes and keep my rules and obey them. And they shall be my people, and I will be their God.
 
-And here is love:
+And here is some good news:
 
 >Matthew 1:21 She shall bare a son and you shall call his name Jesus for He will save His people from their sins
 
-And here is love:
-
->John 3:16 For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life.
-
-And here is love:
+And here is some good news:
 
 >Romans 5:8 but God shows his love for us in that while we were still sinners, Christ died for us.
 
-And here is love:
+And here is the love of God for you and me: 
 
->2 Corinthians 5:21 For our sake, He made Him to be sin who knew no sin so that in Him we might become the righteousness of God.
+>1 John 4:10 (ESV) In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.**
 
-And here is love:
+- If faith comes from hearing and hearing from the message of Christ, then it would stand to reason we should hear the message of Christ from the Christ.
+- Would you agree?
 
->Romans 9:25-26  
->… Those who were not my people I will call ‘my people,’  
->and her who was not beloved I will call ‘beloved.’  
->And in the very place where it was said to them, ‘You are not my people,’  
->there they will be called ‘sons of the living God.’
+>Luke 18:9-14 (CSB) He also told this parable to some who trusted in themselves that they were righteous and looked down on everyone else: “Two men went up to the temple to pray, one a Pharisee and the other a tax collector. The Pharisee was standing and praying like this about himself: ‘God, I thank you that I’m not like other people — greedy, unrighteous, adulterers, or even like this tax collector. I fast twice a week; I give a tenth of everything I get.’
+“But the tax collector, standing far off, would not even raise his eyes to heaven but kept striking his chest and saying, **‘God, have mercy on me, a sinner! ’**
 
-And here is love:
+- Look at what Christ declares
+  
+> I tell you, this one went down to his house justified rather than the other, because everyone who exalts himself will be humbled, but the one who humbles himself will be exalted.”
 
->Galatians 2:20 I have been crucified with Christ. It is no longer I who live, but Christ who lives in me. And the life I now live in the flesh I live by faith in the Son of God, who loved me and gave himself for me.
-
-And here is love:
-
->Romans 8:1 There is therefore now no condemnation for those who are in Christ Jesus.
-
-And here is love:
-
->Romans 8:38-39 For I am sure that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor anything else in all creation, will be able to separate us from the love God in Christ Jesus our Lord.
-
-And... 
-
->1 John 4:10 In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.**
-
-Don't you know that the tax collector, who heard the ordinary preaching of the gospel, he was cut to the heart! He stood off and away from the gathered church, would not dare raise his eyes to the Triune but he beat his chest and cried out, "**GOD HAVE MERCY ON ME, A SINNER!** (Luke 18:13)
-
-We all know the story of the Pharisee and the tax collector. The Pharisee thanks God that he is not like this tax collector. How did the tax collector respond? Not for a moment did the tax collector try to change the words of God. He heard the law and he was found lacking--falling infinitely short of the infinite glory of God. He truly saw himself as a sinner for the first time because for the first time in his life, God opened his eyes.
-
-How did he respond? Trying to trip up the omniscient, all wise and all good God with contradictions? No! He had nowhere else to go. He called upon the God who pours out his saving mercies every single day:
+- This the gospel message of Christ
+- Call upon his name and you will be saved
+- Why?
 
 >Lamentations 3:22-24 (CSB)  
 >Because of the LORD’s faithful love  
@@ -315,9 +263,9 @@ How did he respond? Trying to trip up the omniscient, all wise and all good God 
 >I say, “The LORD is my portion,  
 >therefore I will put my hope in him.”
 
-The tax collector knew this. You know this. And I know this.
-
-These things were written, in this Bible, all 66 books, containing saving knowledge of God, so that our joy may be complete. (1 John 1:4)
+- If you call upon the name of the Lord, you will be saved. No delays. No waiting. No conditions other than the sin we bring to him.
+- We know this because we have the Holy Scriptures.
+- And all of these things are written in the Holy Scriptures so that your joy and my joy may be complete.
 
 Amen.
 
