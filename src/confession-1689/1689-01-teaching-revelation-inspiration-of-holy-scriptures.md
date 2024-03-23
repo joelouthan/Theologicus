@@ -19,6 +19,8 @@
 
 >Matthew 4:1-4 (CSB) Then Jesus was led up by the Spirit into the wilderness to be tempted by the devil. After he had fasted forty days and forty nights, he was hungry. Then the tempter approached him and said, “If you are the Son of God, tell these stones to become bread.” **He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”**
 
+## Prayer
+
 ## The Intro
 
 - In an CNN Red Chair Interview, Richard Dawkins was asked what would he say if he met God after his death:
@@ -31,18 +33,24 @@
 >
 > Richard Dawkins. CNN Red Chair Interview. September 5, 2012. [CNN](https://www.cnn.com/videos/living/2012/09/05/orig-red-chair-richard-dawkins.cnn)
 
-- But God did not hide himself. Not even close. 
+- To you and me, that is the peculiar thing.
+- Mr. Dawkins is self-proclaimed militant atheist who, as Romans 1 describes it so well, has taken active steps to suppress the knowledge of God.
+- In one sense, Mr. Dawkins is correct. God is infinitely far from us.
+- It would seem that God has concealed himself or hidden himself from man.
+- But you and I know he did not.
+- Where we, as created mortal finite beings, cannot travel infinitely to God
+- God came to us
+- God revealed himself to us. How? By his only begotten Son, who put on flesh.
+- We know him, love him, adore him, and worship him as Jesus Christ, the Son of God who is God.
 
-- I would even give Mr. Dawkins a fair shake if Christ came into our world as a nobody and left as a nobody and then all of sudden, over the course of time, myth after myths started coming up about man who taught about loving your neighbor and be kind to everyone and then, because of a corrupt justice system, was wrongfully tried and executed.
-
-- Christ came in as a nobody, this is true. He wasn't born in a palace of any sort. His parents were just ordinary working class folk.
-- But his life--particularly his ministry, his perfec work, his death on the cross, his resurrection from actual death to actual life, and his ascension to the right hand of the Almighty God the Father--was far, far from ordinary and quiet.
-- His appearance--his existance with his creation changed all of history for all time.
+- Christ came into our world as almost a nobody, this is true. He wasn't born in a palace of any sort. His parents were just ordinary working class folk.
+- But his life--particularly his ministry, his perfect work, his death on the cross, his resurrection from actual death to actual life, and his ascension to the right hand of the Almighty God the Father--was far, far from ordinary and quiet.
+- His appearance--his existence with his creation changed all of history for all time.
 - It pleased the Father by the power of the Spirit to change the course of human history in such a way as this: to reveal God in the flesh--his only begotten Son, Jesus Christ, Son of God who is God:
 
 >John 1:14 (CSB) The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth.
 
-- Jesus Christ is the greatest historical individual in all of history.
+- Jesus Christ is the greatest individual in all of history.
 - All of humankind--you, me, and Mr. Dawkins included, are without excuse to believe and trust in the one whom God sent for us. 
 - All of us--in our natural sin state were born trying to suppress the knowledge that God exists. The 1st chapter of Romans testify to these things.
 - Everything we know and see all around us--even if we never heard of God--testify that there is a God
@@ -68,10 +76,11 @@ Today, in our first session of RTC's inaugural mini conference, we are going to 
 - Next, what is the Bible about and what is it for? What is the purpose of the Bible?
 - Lastly and certainly not least, so what?
 
-- "So what?" I don't want to use my time today to give us a bunch of trivia facts that you could easily look up on the Internet.
-- I want to encourage you: if you don't have that still small voice that so many people don't have, guess what, you still hear from God because you have the Christ because the Holy Spirit dwells in you
-- I want you to be strengthen: when we sin and when our faith is at a breaking point, it is not that we hold on to God but the Father and Son doubly infinitely hold on to us that is sealed by the Spirit
-- I want you to be loved: we don't always feel it but we get to hear that the steadfast love of the Lord never ceases for us and his mercies for us never come to an end.
+"So what?" I don't want to use my time today to give us a bunch of trivia facts that you could have easily look up on the Internet.
+
+- I want to encourage you: if you don't have that still small voice that so many people don't have, guess what, you still hear from God because you have the Christ because the Holy Spirit dwells in you and because of that, you understand the Holy Scriptures
+- I want you to be strengthen: when we sin and when our faith is at a breaking point, it is not that we hold on to God but the Father and Son doubly infinitely hold on to us and that infinite grip is sealed by the Spirit. God will not lose us.
+- I want you to be loved: we don't always feel it but in his word alone, we get to hear that the steadfast love of the Lord never ceases for us and his mercies for us will never come to an end.
 
 ## Where does the Bible come from? What is the source?
 
@@ -117,15 +126,17 @@ All Scripture is inspired by God and is profitable for teaching, for rebuking, f
 
 >John 5:39 (CSB) You pore over the Scriptures because you think you have eternal life in them, and yet they testify about me.
 
+>Luke 24:26-27 (CSB) Wasn’t it necessary for the Messiah to suffer these things and enter into his glory? ” Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
+
 - It has been said, rightfully so, that the Old Testament is Christ concealed and the New Testament is Christ revealed.
 - Why is that a true saying?
-- Go and do a word search in the OLd Testament: look up "Jesus" or "Christ". What are you going to find? Zero items found. Why? Because the Old Testament simply prophesies, foreshadows, mentions, alludes to a Messiah who will destroy the works of Satan and will save sinful men like me. 
+- Go and do a word search in the Old Testament: look up "Jesus" or "Christ". What are you going to find? Zero items found. Why? Because the Old Testament simply prophesies, foreshadows, mentions, alludes to a Messiah who will destroy the works of Satan and will save sinful men like me. 
 - The Old Testament is where God will call upon ordinary people and give them grace to extraordinary things. And as spectacular as the stories of Noah, Abraham, Ruth or King David, they were not the Christ.
 - You see bits and parts.
 - You hear the promises and covenants, building up on top of the other
 - but what was the end goal? 
 - so that when the people of God had God in the flesh in their existence, they would not deny the truth but believe that Jesus is the Holy One of God.
-- Listen, in order for them to believe, they will need the work of the Holy Spirit--but I will get to that in a moment.
+- Listen, in order for them to believe, they will need the work of the Holy Spirit--but that is for another teaching coming up later today.
 
 To sum up the books of the Bible, let me give you a pro tip: If you are digging in the Bible hoping for eternal life, then pay attention to what the Bible is actually saying, "Look to the Christ!":
 
@@ -159,27 +170,32 @@ We know where the Bible comes from--God. We know what the Bible contains--66 div
 
 - there are so many things given to all of mankind by the hand of God that certain reveals that there is a creator and he is sovereign over all of his creation
 - but no matter how many sunsets, trees, rivers, or Grand Canyons; infinite data and all the books in the world; endless music and creation of art--will not get you one inch closer into the saving arms of the Lord Jesus Christ.
-- all of these good thing are from a great God but they are pale in comparison to the loveliness of our only, only Lord Jesus Christ.
-- how are we are saved by God--that is saving knowledge, faith, and obedience--can only be found in the Scriptures. No exception.
+- all of these good things come from a great God but they are pale in comparison to the loveliness of our only, only Lord Jesus Christ.
+- how are we are saved by God--that is the saving knowledge, faith, and obedience--can only be found in the Scriptures. No exception.
 - Modern mindset tends to do two things when confronted with that truth:
   - the reduction of the Bible as yet-another-piece-of-literature akin to The Lord of the Rings, Autobiography of Malcolm X or even the Quran--"How can you say that the Bible is so much different that any of religious text or fictional myths and fables and tall tales?"
     - Books like the Lord of Rings come from the creativity of man
     - Biographies like Malcolm X tell about the life of a person who lived
     - Religious texts like Quran are demonic inspired and are not from the God of the Bible (Deuteronomy 32:16–17; 1 Corinthians 10:20; 1 Timothy 4:1)
-  - "How can you be so sure? What if a person cannot read?" You mean like 99% of the people mentioned in the pages of the Bible? The printing press was invented over 500 years ago. How did people come upon the saving knowledge, faith, and obedience of God when they could not read and was not wealthy enough to own written materials? Ordinary means of grace--the preaching of the word of God. Preaching is not an new thing. It is an ancient thing going all the way back to God preaching the law in Genesis 2 and proclaiming the gospel in Genesis 3
+  - "How can you be so sure? What if a person cannot read?" You mean like 99% of the people mentioned in the pages of the Bible? The printing press was invented over 500 years ago. How did people come upon the saving knowledge, faith, and obedience to God when they could not read and were not wealthy enough to own written materials?
+  - Ordinary means of grace--the preaching of the word of God. Preaching is not an new thing. It is an ancient thing going all the way back to God preaching the law in Genesis 2 and proclaiming the gospel in Genesis 3
 - yet, in all of that, from the mouth of God to the opened ears of believers, it pleased the Lord at various times to reveal himself in his word, the Holy Scriptures, through 40 plus authors that making up the 66 books of the Bible.
 
-Now we have some of the fact, that just leaves one question to be answered:
+Now we have some of the facts about the Bible, that just leaves one question to be answered:
 
 ## So what?
 
-So what? That's all well and good. If I trust and believe in Jesus, what does that mean for me?
+So what? That's all well and good. If I trust and believe in Jesus Christ, what does that mean for me?
 
-1\. **Confidence despite the urge to downgrade or eliminate laws** -- we are at a place in time where the world and even some Christians are so desperate to get the law of God to make it mean what he so plainly says. 
+1\. **Confidence despite the urge to downgrade or eliminate laws** -- we are at a place in time where the world and even some Christians are so desperate to get the law of God to mean something it does not mean. 
 
-Just to give an stunning example, you have heard this, "Jesus never talked about marriage."
-
-I remember the first time I heard that. I remember the 100th time I heard that. I was dumbfounded. I awestruck. What do you say to someone who has little or no knowledge of the word of God.
+- Just to give an stunning example:
+- You have heard it said, "Jesus never talked about marriage."
+- I remember the first time I heard that.
+- I remember the 100th time I heard that.
+- I was dumbfounded.
+- I awestruck.
+- What do you say to someone who has little or no knowledge of the word of God.
 
 >Matthew 19:4-6 (CSB) “Haven’t you read,” he replied, “that he who created them in the beginning made them male and female, and he also said, ‘For this reason a man will leave his father and mother and be joined to his wife, and the two will become one flesh’? So they are no longer two, but one flesh. Therefore, what God has joined together, let no one separate.”
 
@@ -187,9 +203,19 @@ It's right there. Clear as a bell. You and I see this as, "that's the answer!" H
 
 Come now, Lord Jesus.
 
-The same infallible, same perfect Scriptures that Christ himself equates as "the mouth of God" (Matthew 4:4) contains the same laws of God that demands our perfection in order for us to be with God. So, my question to those who want the Bible to not to mean what it says: why do you want to change the Scriptures? Do you want to be with God? We could be in line with numerous wicked people who attempted to change the Bible for our own ill-gotten gains. But us changing a copy of or a translation--changing  one dot one tittle of the law will not save us. You are trying to change the law of God which wasn't going to save us in the first place. Eternal life is not found in the Scriptures but the One whom the Scriptures once concealed now revealed to be the Savior of the world--that is Jesus Christ.
+- The same infallible, same perfect Scriptures that Christ himself equates as "the mouth of God" (Matthew 4:4) contains the same laws of God that demands our perfection in order for us to be with God. 
+- So, my question to those who want the Bible to not to mean what it says: why do you want to change the Scriptures? 
+- Do you want to be with God? 
+- We could be in line with numerous wicked people who attempted to change the Bible for our own ill-gotten gains. 
+- But us changing a copy of or a translation--changing  one dot one tittle of the law will not save us. 
+- You are trying to change the law of God which wasn't going to save us in the first place. 
+- Eternal life is not found in the Scriptures but the One whom the Scriptures once concealed now revealed to be the Savior of the world--that is Jesus Christ.
 
-- To save ourselves from death and damnation, we need to fulfill the law. - What did James said, "Break one law and we break them all."
+- To save ourselves from death and damnation, we need to fulfill the law.
+- What did James said, "Break one law and we break them all." (James 2:10)
+- We have broken one law.
+- Therefore, we have broken all of the law.
+- And God demands that you have never broken any of us laws in order to be with him.
 - Who is going to save us?
 - It is the same infallible, same perfect Scriptures that contain the law of God that also gives us a plan of salvation. Trust in one who both gives us the law but perfectly obeyed the law and fulfilled the law. His name is Jesus Christ. Call upon his name and you will be saved.
 
@@ -197,9 +223,18 @@ It is the exact same Bible that tells us how infinitely far we are in our deprav
 
 2\. Try to remove the Bible, the Bible lives forever
 
->Isaiah 55:10 (CSB) For just as rain and snow fall from heaven and do not return there without saturating the earth and making it germinate and sprout, and providing seed to sow and food to eat,
+>Isaiah 55:10-11 (CSB) For just as rain and snow fall from heaven  
+>and do not return there  
+>without saturating the earth  
+>and making it germinate and sprout,  
+>and providing seed to sow  
+>and food to eat,  
+>so my word that comes from my mouth  
+>will not return to me empty,  
+>but it will accomplish what I please  
+>and will prosper in what I send it to do.”
 
-- Come out with your own blasphemous translation? His word lives forever because God is forever.
+- Wicked people will twist Scripture just like their father Satan and come out with antichrist translations. Yet his word lives forever because God is forever.
 - Burn all Bibles? His promises are steadfast because Christ is the yes and amen to all the promises of God. Satan, demons, and mankind tried to kill him but he rose again from the dead.
 - Delete the entire Bible from the internet. Guess what? You can't eradicate it. The Bible does not come from man but from the Infinite God. 
 
@@ -210,7 +245,7 @@ It is the exact same Bible that tells us how infinitely far we are in our deprav
 
 Here's the last point and I will be done:
 
-3\. **The Holy Scripture is the only sufficient, certain, and infallible rule of all saving knowledge, faith, and obedience**
+3\. **The Holy Scripture is the only sufficient, certain, and infallible rule of all saving knowledge, faith, and obedience unto God**
 
 - What does the Holy Scriptures say?
 - There is no other name other than the name of Jesus Christ by which we are saved
@@ -230,7 +265,7 @@ And here is some good news:
 
 And here is some good news:
 
->Matthew 1:21 She shall bare a son and you shall call his name Jesus for He will save His people from their sins
+>Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 And here is some good news:
 
@@ -238,7 +273,7 @@ And here is some good news:
 
 And here is the love of God for you and me: 
 
->1 John 4:10 (ESV) In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.**
+>1 John 4:10 (ESV) In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.
 
 - If faith comes from hearing and hearing from the message of Christ, then it would stand to reason we should hear the message of Christ from the Christ.
 - Would you agree?
@@ -265,7 +300,7 @@ And here is the love of God for you and me:
 
 - If you call upon the name of the Lord, you will be saved. No delays. No waiting. No conditions other than the sin we bring to him.
 - We know this because we have the Holy Scriptures.
-- And all of these things are written in the Holy Scriptures so that your joy and my joy may be complete.
+- And all of these things are written in the Holy Scriptures so that your joy and my joy may be complete. (1 John 1:4)
 
 Amen.
 
