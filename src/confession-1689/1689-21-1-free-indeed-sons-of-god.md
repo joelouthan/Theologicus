@@ -114,6 +114,8 @@ Winslow continues:
 
 >Romans 8:15 (CSB) For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!”
 
+TODO:
+
 ### but a child-like love and willing mind
 
 >Luke 1:73–75 (CSB) the oath that he swore to our father Abraham. He has given us the privilege, since we have been rescued from the hand of our enemies, to serve him without fear in holiness and righteousness in his presence all our days.
