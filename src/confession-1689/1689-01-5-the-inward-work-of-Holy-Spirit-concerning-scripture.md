@@ -81,6 +81,10 @@ In other words, you will need the Holy Spirit to understand the Bible. Without H
 
 ### We may be moved and induced by the testimony of the church of God to an high and reverent esteem of the Holy Scriptures; and the heavenliness of the matter, the efficacy of the doctrine
 
+>>Today the bands of evil may environ the church of God, and threaten her with destruction; but ere long they shall pass away like the foam on the waters, and the noise of their tumult shall be silent in the grave. The darkest hour of the night is just before the turning of the morning; and then, even then, shall the Lord appear as the great ally of his church.
+>>
+>>Charles Spurgeon on Psalm 46:5.
+
 Wherever we might be in our theology and doctrine and the sheer academic study of the Scriptures, we stand on the giants of the faith before us. That is the church of Christ before us. Going back to the Christ and his ministry and then going back further to the work of Moses, we know nothing outside the testimony of the Church. All the pastors, all the Apostles, all the Prophets, the Kings, the Priests under the sovereign grace of Christ, who is the head of the church.
 
 We get to know or discover nothing new outside all of our brothers and sisters before us have done.
