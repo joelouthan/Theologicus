@@ -46,6 +46,18 @@ I remember one pastor responded this way, "Well, 'No one is righteous' does not 
 
 >Titus 3:3–5 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit.
 
+TODO: Expound on the following:
+
+```
+Hodge - Omnipotence, Sovereignty and Freedom and with out sin
+
+Man, in our sin and hubris and fallen ness and corruption, want to sin all the more yet more in prisoner to sin 
+
+God completely free and free from sin
+
+Man born to sin, wants to sin more, but has no freedom 
+```
+
 We were born in sin. We were born apart from God. And unless God gets involved, we are born as children of his wrath and we will perish in our sins.
 
 But Christ:

@@ -1,6 +1,6 @@
 <img class="intro-right" src="art-1689.png">
 
-# 1689 Baptist Confession of Faith, Chapter 8.3 The Son of Man"
+# 1689 Baptist Confession of Faith, Chapter 8.3 The Son of Man
 
 <style>
 r { color: Red }
