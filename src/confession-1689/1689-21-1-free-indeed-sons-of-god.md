@@ -114,7 +114,7 @@ Winslow continues:
 
 >Romans 8:15 (CSB) For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!”
 
-TODO:
+Despite the best efforts of prideful mankind, Christianity is not one of fear of wrath and of control. Even when man feebly tries to control others and blasphemously uses the name of God to do so, it always fails. Try controlling your children. Even the most brutally wicked parent will be met with a child that yearns to be free.
 
 ### but a child-like love and willing mind
 
@@ -122,9 +122,15 @@ TODO:
 
 >1 John 4:18 (CSB) There is no fear in love; instead, perfect love drives out fear, because fear involves punishment. So the one who fears is not complete in love.
 
+Just like man and God are nothing alike, so too are the fear of man and fear of God are nothing alike. We fear evil men. We fear wickedness and deceit. We fear atrocities and depravity and we long for quick and swift justice to make it right. Yet, when we fear the Lord, it is a fear that is the opposite of fearing not the Lord. For yes, he is almighty and vengeful and with perfect justice but he does not oppose those who are in his Son but is perfectly oppose to those who are not in his Son. We are called to this fear of Someone for whom we are so desperate for evil to be vanquished and justice to come. We fear the Lord our God in the Son of God who conquered all evil, all hell, all of Satan, all demons, and all death. And Christ is so Almighty, he conquered and vanquished his foes and delivered justice all on a Friday in April over 2,000 years ago.
+
 ### All which were common also to believers under the law for the substance of them
 
 >Galatians 3:9–14 (CSB) Consequently, those who have faith are blessed with Abraham, who had faith. For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed. Now it is clear that no one is justified before God by the law, because the righteous will live by faith. But the law is not based on faith; instead, the one who does these things will live by them. Christ redeemed us from the curse of the law by becoming a curse for us, because it is written, Cursed is everyone who is hung on a tree. The purpose was that the blessing of Abraham would come to the Gentiles by Christ Jesus, so that we could receive the promised Spirit through faith.
+
+If you are not in Christ, you are still under the curse of the law. The law only brings judgment upon your head. Once more, it does not save you. You cannot be saved by obeying the law because it is impossible for you and me, the sons of Adam, born in sin and continuously sin and have sin and therefore broken all of the law, to obey the law and to live righteous.
+
+Christ was not born of Adam but begotten of God and born of Mary. You believe and trust in this Christ, you shall be saved!
 
 ### but under the New Testament the liberty of Christians is further enlarged, in their freedom from the yoke of a ceremonial law, to which the Jewish church was subjected, and in greater boldness of access to the throne of grace, and in fuller communications of the free Spirit of God, than believers under the law did ordinarily partake of
 
@@ -134,4 +140,16 @@ TODO:
 
 >John 8:35-36 (CSB) A slave does not remain in the household forever, but a son does remain forever. So if the Son sets you free, you really will be free.
 
-Beloved, you are completely free. No matter what is going on in your life, you belong to the Almighty God. If you belong to him, you are free indeed. Forever and ever.
+Our Christ has come not to erase the law but to fulfill the law:
+
+>Matthew 5:17-18 (CSB) “Don’t think that I came to abolish the Law or the Prophets. I did not come to abolish but to fulfill. For truly I tell you, until heaven and earth pass away, not the smallest letter or one stroke of a letter will pass away from the law until all things are accomplished.
+
+The world desperately tries to fulfill the law so that they can be saved by there own efforts. Why do I say this? Because they keep tell Christians that Scriptures do not mean what they say. They will say, "Christ did not speak on marriage" or "well, actually, God did not forbid homosexuality." Why do you want to change the law? Go ahead and try. Even if you could change the law, you will still be wicked and fallen in the eyes of God. You will still fallen infinite short of his glory. 
+
+God did not give the law so you can feebly fail to obey the law. God the Father gave the law but he gave his only begotten Son to fulfill that law and he gave his Spirit to his sons so that we would trust and obey him.
+
+You and I are in the Christ. No matter what is going on in your life and when you do sin, you have been given the gift of repentence because you behold the risen Christ!
+
+You and I are sons of God. We shall suffer like the Son but we will be glorified like the Son.
+
+>Romans 8:18-21 (CSB) For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us. For the creation eagerly waits with anticipation for God’s sons to be revealed. For the creation was subjected to futility — not willingly, but because of him who subjected it — in the hope that the creation itself will also be set free from the bondage to decay into the glorious freedom of God’s children.
