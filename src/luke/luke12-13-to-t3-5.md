@@ -4,6 +4,8 @@
 
 <!-- toc -->
 
+## Christ Our All: Christ Is Your Provision
+
 >Luke 12:13-21 (CSB) Someone from the crowd said to him, “Teacher, tell my brother to divide the inheritance with me.”
 >
 >“Friend,” he said to him, “who appointed me a judge or arbitrator over you?” He then told them, “Watch out and be on guard against all greed, because one’s life is not in the abundance of his possessions.”
@@ -61,6 +63,8 @@
 
 3. If we are co-heirs with Christ who is heir of all, what did Paul say provided that we what?
 
+## Christ Our All: Christ Is Your Resource
+
 >Luke 12:22-34 (CSB) Then he said to his disciples, “Therefore I tell you, don’t worry about your life, what you will eat; or about the body, what you will wear. For life is more than food and the body more than clothing. Consider the ravens: They don’t sow or reap; they don’t have a storeroom or a barn; yet God feeds them. Aren’t you worth much more than the birds? Can any of you add one moment to his life span by worrying? If then you’re not able to do even a little thing, why worry about the rest?
 >
 >“Consider how the wildflowers grow: They don’t labor or spin thread. Yet I tell you, not even Solomon in all his splendor was adorned like one of these. If that’s how God clothes the grass, which is in the field today and is thrown into the furnace tomorrow, how much more will he do for you—you of little faith? Don’t strive for what you should eat and what you should drink, and don’t be anxious. For the Gentile world eagerly seeks all these things, and your Father knows that you need them.
@@ -103,6 +107,8 @@ James; cast our cares upon him
 
 6. Read Hosea 2. How does God respond to us?
 
+## Christ Our All: Christ Is Your Master
+
 >Luke 12:35-40 (CSB) “Be ready for service and have your lamps lit. You are to be like people waiting for their master to return from the wedding banquet so that when he comes and knocks, they can open the door for him at once. Blessed will be those servants the master finds alert when he comes. Truly I tell you, he will get ready, have them recline at the table, then come and serve them. If he comes in the middle of the night, or even near dawn, and finds them alert, blessed are those servants. But know this: If the homeowner had known at what hour the thief was coming, he would not have let his house be broken into. You also be ready, because the Son of Man is coming at an hour you do not expect.”
 
 >Acts 1:1-8 (CSB) I wrote the first narrative, Theophilus, about all that Jesus began to do and teach until the day he was taken up, after he had given instructions through the Holy Spirit to the apostles he had chosen. After he had suffered, he also presented himself alive to them by many convincing proofs, appearing to them over a period of forty days and speaking about the kingdom of God.
@@ -137,6 +143,8 @@ James; cast our cares upon him
 
 5. Read Luke 14:25-35. What does Christ talk about when he tells us to "count the cost" of following and obeying God?
 
+## Christ Our All: Christ Is Your Holiness
+
 >Luke 12:49-53 (CSB) I came to bring fire on the earth, and how I wish it were already set ablaze! But I have a baptism to undergo, and how it consumes me until it is finished! Do you think that I came here to bring peace on the earth? No, I tell you, but rather division. From now on, five in one household will be divided: three against two, and two against three.
 >
 >They will be divided, father against son,
@@ -154,11 +162,15 @@ James; cast our cares upon him
 
 3. What are some fights that you can get into within a house that not everybody obeys God? What about with prayer? Fasting? Reading the Bible? Sharing the gospel? Going to church?
 
+## Christ Our All: Christ Is Your Freedom
+
 >Luke 12:57-59 (CSB) Why don’t you judge for yourselves what is right? As you are going with your adversary to the ruler, make an effort to settle with him on the way. Then he won’t drag you before the judge, the judge hand you over to the bailiff, and the bailiff throw you into prison. I tell you, you will never get out of there until you have paid the last penny.”
 
 1. Why does God commands us to payback what we owe to others?
 
 2. What does it mean to be a good witness of God to others?
+
+## Christ Our All: Christ Grants You The Gift of Repentance
 
 >Luke 13:1-5 (CSB) At that time, some people came and reported to him about the Galileans whose blood Pilate had mixed with their sacrifices. And he responded to them, “Do you think that these Galileans were more sinful than all the other Galileans because they suffered these things? No, I tell you; but unless you repent, you will all perish as well. Or those eighteen that the tower in Siloam fell on and killed—do you think they were more sinful than all the other people who live in Jerusalem? No, I tell you; but unless you repent, you will all perish as well.”
 

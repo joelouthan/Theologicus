@@ -4,6 +4,8 @@
 
 <!-- toc -->
 
+## Blessed is He: He Came To Be With Us
+
 >Luke 19:1-10 (CSB) He entered Jericho and was passing through. There was a man named Zacchaeus who was a chief tax collector, and he was rich. He was trying to see who Jesus was, but he was not able because of the crowd, since he was a short man. So running ahead, he climbed up a sycamore tree to see Jesus, since he was about to pass that way. When Jesus came to the place, he looked up and said to him, “Zacchaeus, hurry and come down because today it is necessary for me to stay at your house.”
 >
 >So he quickly came down and welcomed him joyfully. All who saw it began to complain, “He’s gone to stay with a sinful man.”
@@ -19,6 +21,8 @@
 2. What does it mean for Christ to come in and "eat with him"?
 
 3. What is the meal that Christ has invited us to eat and drink from?
+
+## Blessed is He: He Came With Ultimate Authority
 
 >Luke 19:11-27 (CSB) As they were listening to this, he went on to tell a parable because he was near Jerusalem, and they thought the kingdom of God was going to appear right away.
 >
@@ -48,6 +52,8 @@
 
 3. What happens if we say we believe in God yet we do nothing?
 
+## Blessed is He: He Came As King of Kings
+
 >Luke 19:28-40 (CSB) When he had said these things, he went on ahead, going up to Jerusalem. As he approached Bethphage and Bethany, at the place called the Mount of Olives, he sent two of the disciples and said, “Go into the village ahead of you. As you enter it, you will find a colt tied there, on which no one has ever sat. Untie it and bring it. If anyone asks you, ‘Why are you untying it?’ say this: ‘The Lord needs it.’”
 >
 >So those who were sent left and found it just as he had told them. As they were untying the colt, its owners said to them, “Why are you untying the colt?”
@@ -71,11 +77,15 @@
 
 2. Many have seen God and did not worship him. What does Paul say about everybody knowing God and not believing in him?
 
+## Blessed is He: He Came As The Prophet
+
 >Luke 19:41-44 (CSB) As he approached and saw the city, he wept for it, saying, “If you knew this day what would bring peace—but now it is hidden from your eyes. For the days will come on you when your enemies will build a barricade around you, surround you, and hem you in on every side. They will crush you and your children among you to the ground, and they will not leave one stone on another in your midst, because you did not recognize the time when God visited you.”
 
 1. Why did many Jews in Jesus' time not believe and obey Jesus?
 
 2. Jesus is the fulfillment of all the Scriptures and yet, many Jewish people do not believe in Christ. What must happen in order for anybody to believe in God? In other words, is it something that we must do or is it something God must do first?
+
+## Blessed is He: He Came To Set The Captives Free
 
 >Luke 19:45-48 (CSB) He went into the temple and began to throw out those who were selling, and he said, “It is written, my house will be a house of prayer, but you have made it a den of thieves!”
 >

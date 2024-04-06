@@ -4,7 +4,9 @@
 
 <!-- toc -->
 
-><img class="intro-right" src="art-luke.jpg">Luke 24:1-8 (CSB) On the first day of the week, very early in the morning, they came to the tomb, bringing the spices they had prepared. They found the stone rolled away from the tomb. They went in but did not find the body of the Lord Jesus. While they were perplexed about this, suddenly two men stood by them in dazzling clothes. So the women were terrified and bowed down to the ground.
+## Christ Lives: He Is Risen Indeed
+
+>Luke 24:1-8 (CSB) On the first day of the week, very early in the morning, they came to the tomb, bringing the spices they had prepared. They found the stone rolled away from the tomb. They went in but did not find the body of the Lord Jesus. While they were perplexed about this, suddenly two men stood by them in dazzling clothes. So the women were terrified and bowed down to the ground.
 >
 >“Why are you looking for the living among the dead?” asked the men. “He is not here, but he has risen! Remember how he spoke to you when he was still in Galilee, saying, ‘It is necessary that the Son of Man be betrayed into the hands of sinful men, be crucified, and rise on the third day’?” And they remembered his words.
 
@@ -13,6 +15,8 @@
 1. Who raised Christ from the dead?
 
 2. Why?
+
+## Christ Lives: Look Upon Him and Believe
 
 >Luke 24:9-12 (CSB) Returning from the tomb, they reported all these things to the Eleven and to all the rest. Mary Magdalene, Joanna, Mary the mother of James, and the other women with them were telling the apostles these things. But these words seemed like nonsense to them, and they did not believe the women. Peter, however, got up and ran to the tomb. When he stooped to look in, he saw only the linen cloths. So he went away, amazed at what had happened.
 
@@ -40,8 +44,10 @@
 
 2. What must be do to be saved?
 
-
 >Romans 6:23 (CSB) For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
+
+## Christ Lives: The Scriptures Are About The Christ
+
 >Luke 24:13-35 (CSB) Now that same day two of them were on their way to a village called Emmaus, which was about seven miles from Jerusalem. Together they were discussing everything that had taken place. And while they were discussing and arguing, Jesus himself came near and began to walk along with them. But they were prevented from recognizing him. Then he asked them, “What is this dispute that you’re having with each other as you are walking?” And they stopped walking and looked discouraged.
 >
 >The one named Cleopas answered him, “Are you the only visitor in Jerusalem who doesn’t know the things that happened there in these days?”
@@ -72,10 +78,12 @@
 
 5. What happens if we go to God to ask for God? What are we going to get in return?
 
-
 >Luke 11:5-13 (CSB) He also said to them, “Suppose one of you has a friend and goes to him at midnight and says to him, ‘Friend, lend me three loaves of bread, because a friend of mine on a journey has come to me, and I don’t have anything to offer him.’ Then he will answer from inside and say, ‘Don’t bother me! The door is already locked, and my children and I have gone to bed. I can’t get up to give you anything.’ I tell you, even though he won’t get up and give him anything because he is his friend, yet because of his friend’s shameless boldness, he will get up and give him as much as he needs.
 >
 >“So I say to you, ask, and it will be given to you. Seek, and you will find. Knock, and the door will be opened to you. For everyone who asks receives, and the one who seeks finds, and to the one who knocks, the door will be opened. What father among you, if his son asks for a fish, will give him a snake instead of a fish? Or if he asks for an egg, will give him a scorpion? If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him?”
+
+## Christ Lives: Worship God Forevermore!
+
 >Luke 24:36-53 (CSB) As they were saying these things, he himself stood in their midst. He said to them, “Peace to you!” But they were startled and terrified and thought they were seeing a ghost. “Why are you troubled?” he asked them. “And why do doubts arise in your hearts? Look at my hands and my feet, that it is I myself! Touch me and see, because a ghost does not have flesh and bones as you can see I have.” Having said this, he showed them his hands and feet. But while they still were amazed and in disbelief because of their joy, he asked them, “Do you have anything here to eat?” So they gave him a piece of a broiled fish, and he took it and ate in their presence.
 >
 >He told them, “These are my words that I spoke to you while I was still with you—that everything written about me in the Law of Moses, the Prophets, and the Psalms must be fulfilled.” Then he opened their minds to understand the Scriptures. He also said to them, “This is what is written: The Messiah will suffer and rise from the dead the third day, and repentance for forgiveness of sins will be proclaimed in his name to all the nations, beginning at Jerusalem. You are witnesses of these things. And look, I am sending you what my Father promised. As for you, stay in the city until you are empowered from on high.”
@@ -91,3 +99,13 @@
 >Jesus told her, “I, the one speaking to you, am he.”
 
 If you have God, what do you now?
+
+>And with our hands lifted high  
+>we will worship and sing  
+>With our hands lifted high  
+>we come to you rejoicing  
+>With our hands lifted high to the sky  
+>when the world wonders why  
+>we just tell them we are loving our King.
+>
+TODO: credit
