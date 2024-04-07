@@ -63,7 +63,7 @@ Go and tell them, Mary. Proclaim this good news: that Christ have completely bri
 
 >Titus 3:3–5 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit.
 
-Christ is the Infinite God that bridges the infinite gap between finite sinners and the Infinite God. Christ alone is the mediator between the children of God and God our Father.
+Christ is the Infinite God that bridges the infinite gap between finite sinners and the Infinite Father sealed by the Infinite Spirit. Christ alone is the mediator between the children of God and God our Father.
 
 That is why whatever we do, whatever and however we glorify God, it is always in the strongest name of the Son of God. And his name is the Lord Jesus Christ.
 
