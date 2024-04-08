@@ -8,6 +8,34 @@
 
 ## The Text
 
+>Revelation 5:8-14 (CSB) When he took the scroll, the four living creatures and the twenty-four elders fell down before the Lamb. Each one had a harp and golden bowls filled with incense, which are the prayers of the saints. And they sang a new song:  
+>  
+>You are worthy to take the scroll  
+>and to open its seals,  
+>because you were slaughtered,  
+>and you purchased people  
+>for God by your blood  
+>from every tribe and language  
+>and people and nation.  
+>You made them a kingdom  
+>and priests to our God,  
+>and they will reign on the earth.  
+>  
+>Then I looked and heard the voice of many angels around the throne, and also of the living creatures and of the elders. Their number was countless thousands, plus thousands of thousands. They said with a loud voice,  
+>  
+>Worthy is the Lamb who was slaughtered  
+>to receive power and riches  
+>and wisdom and strength  
+>and honor and glory and blessing!  
+>  
+>I heard every creature in heaven, on earth, under the earth, on the sea, and everything in them say,  
+>  
+>Blessing and honor and glory and power  
+>be to the one seated on the throne,  
+>and to the Lamb, forever and ever!  
+>  
+>The four living creatures said, “Amen,” and the elders fell down and worshiped.  
+
 ## The Chapter
 
 **Religious worship is to be given to God the Father, Son, and Holy Spirit, and to him alone; not to angels, saints, or any other creatures; and since the fall, not without a mediator, nor in the mediation of any other but Christ alone.**

@@ -8,6 +8,33 @@
 
 ## The Text
 
+>1 Thessalonians 5:16–28 (CSB)  
+><sup>16</sup> Rejoice always, 
+>
+><sup>17</sup> pray constantly, 
+>
+><sup>18</sup> give thanks in everything; for this is God’s will for you in Christ Jesus. 
+>
+><sup>19</sup> Don’t stifle the Spirit. 
+>
+><sup>20</sup> Don’t despise prophecies, 
+>
+><sup>21</sup> but test all things. Hold on to what is good. 
+>
+><sup>22</sup> Stay away from every kind of evil. 
+>
+><sup>23</sup> Now may the God of peace himself sanctify you completely. And may your whole spirit, soul, and body be kept sound and blameless at the coming of our Lord Jesus Christ. 
+>
+><sup>24</sup> He who calls you is faithful; he will do it. 
+>
+><sup>25</sup> Brothers and sisters, pray for us also. 
+>
+><sup>26</sup> Greet all the brothers and sisters with a holy kiss. 
+>
+><sup>27</sup> I charge you by the Lord that this letter be read to all the brothers and sisters. 
+>
+><sup>28</sup> The grace of our Lord Jesus Christ be with you.
+
 ## The Chapter
 
 **Prayer, with thanksgiving, being one part of natural worship, is by God required of all men. But that it may be accepted, it is to be made in the name of the Son, by the help of the Spirit, according to his will; with understanding, reverence, humility, fervency, faith, love, and perseverance; and when with others, in a known tongue.**

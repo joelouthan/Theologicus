@@ -1,12 +1,27 @@
 <img class="intro-right" src="art-1689.png">
 
-# 22.7 Worship: Great Is The Lord
+# 22.7 Worship: Jesus Name Above All Names
 
 ## Table of Contents
 
 <!-- toc -->
 
 ## The Text
+
+>Revelation 1:1-8 (CSB) The revelation of Jesus Christ that God gave him to show his servants what must soon take place. He made it known by sending his angel to his servant John, who testified to the word of God and to the testimony of Jesus Christ, whatever he saw. Blessed is the one who reads aloud the words of this prophecy, and blessed are those who hear the words of this prophecy and keep what is written in it, because the time is near.  
+>  
+>John: To the seven churches in Asia. Grace and peace to you from the one who is, who was, and who is to come, and from the seven spirits before his throne, and from Jesus Christ, the faithful witness, the firstborn from the dead and the ruler of the kings of the earth.  
+>  
+>To him who loves us and has set us free from our sins by his blood, and made us a kingdom, priests to his God and Father — to him be glory and dominion forever and ever. Amen.  
+>  
+>Look, he is coming with the clouds,  
+>and every eye will see him,  
+>even those who pierced him.  
+>And all the tribes of the earth  
+>will mourn over him.  
+>So it is to be. Amen.  
+>  
+>“I am the Alpha and the Omega,” says the Lord God, “the one who is, who was, and who is to come, the Almighty.”
 
 ## The Chapter
 

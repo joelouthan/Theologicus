@@ -8,6 +8,12 @@
 
 ## The Text
 
+>John 4:21-26 (CSB) Jesus told her, “Believe me, woman, an hour is coming when you will worship the Father neither on this mountain nor in Jerusalem. You Samaritans worship what you do not know. We worship what we do know, because salvation is from the Jews. But an hour is coming, and is now here, when the true worshipers will worship the Father in Spirit and in truth. Yes, the Father wants such people to worship him. God is spirit, and those who worship him must worship in Spirit and in truth.”
+>
+>The woman said to him, “I know that the Messiah is coming” (who is called Christ). “When he comes, he will explain everything to us.”
+>
+>Jesus told her, “I, the one speaking to you, am he.”
+
 ## The Chapter
 
 **Neither prayer nor any other part of religious worship, is now under the gospel, tied unto, or made more acceptable by any place in which it is performed, or towards which it is directed; but God is to be worshipped everywhere in spirit and in truth; as in private families daily, and in secret each one by himself; so more solemnly in the public assemblies, which are not carelessly nor wilfully to be neglected or forsaken, when God by his word or providence calleth thereunto.**

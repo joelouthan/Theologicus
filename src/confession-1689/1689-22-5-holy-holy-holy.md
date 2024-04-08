@@ -1,14 +1,27 @@
 <img class="intro-right" src="art-1689.png">
 
-# 22
-
-### Worship: As The Deer Panteth For The Water
+# 22.5 Worship: Holy Holy Holy
 
 ## Table of Contents
 
 <!-- toc -->
 
 ## The Text
+
+>Isaiah 6:1–7 (CSB)  
+><sup>1</sup> In the year that King Uzziah died, I saw the Lord seated on a high and lofty throne, and the hem of his robe filled the temple. 
+>
+><sup>2</sup> Seraphim were standing above him; they each had six wings: with two they covered their faces, with two they covered their feet, and with two they flew. 
+>
+><sup>3</sup> And one called to another: Holy, holy, holy is the LORD of Armies; his glory fills the whole earth. 
+>
+><sup>4</sup> The foundations of the doorways shook at the sound of their voices, and the temple was filled with smoke. 
+>
+><sup>5</sup> Then I said: Woe is me for I am ruined because I am a man of unclean lips and live among a people of unclean lips, and because my eyes have seen the King, the LORD of Armies. 
+>
+><sup>6</sup> Then one of the seraphim flew to me, and in his hand was a glowing coal that he had taken from the altar with tongs. 
+>
+><sup>7</sup> He touched my mouth with it and said: Now that this has touched your lips, your iniquity is removed and your sin is atoned for.
 
 ## The Chapter
 
@@ -136,3 +149,27 @@
 ><sup>42</sup> The upright see it and rejoice, and all injustice shuts its mouth. 
 >
 ><sup>43</sup> Let whoever is wise pay attention to these things and consider the LORD’s acts of faithful love.
+
+## The Praise
+
+>Holy, holy, holy! Lord God Almighty!  
+>Early in the morning our song shall rise to Thee  
+>Holy, holy, holy, merciful and mighty!  
+>God in three Persons, blessed Trinity!
+>
+>Holy, holy, holy! All the saints adore Thee  
+>Casting down their golden crowns around the glassy see  
+>Cherubim and seraphim falling down before Thee  
+>Who wert and art, and evermore shalt be
+>
+>Holy, holy, holy! Though the darkness hide Thee  
+>Though the eye of sinful man Thy glory may not see  
+>Only Thou art holy; there is none beside Thee  
+>Perfect in power, love, and purity
+>
+>Holy, holy, holy! Lord God Almighty!  
+>All Thy works shall praise Thy name in earth and sky and sea  
+>Holy, holy, holy, merciful and mighty!  
+>God in three Persons, blessed Trinity!
+>
+>Reginald Heber. Holy Holy Holy. 1826.
