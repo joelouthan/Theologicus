@@ -164,7 +164,7 @@
     - [22.4 Worship God Alone: Pray](confession-1689/1689-22-4-pray.md)
     - [22.5 Worship God Alone: Holy Holy Holy](confession-1689/1689-22-5-holy-holy-holy.md)
     - [22.6 Worship God Alone: I Exalt Thee](confession-1689/1689-22-6-i-exalt-thee.md)
-    - [22.7 Worship God Alone: Great Is The Lord](confession-1689/1689-22-7-great-is-the-lord.md)
+    - [22.7 Worship God Alone: Jesus The Name Above All Names](confession-1689/1689-22-7-jesus-name-above-all-names.md)
     - [22.8 Worship God Alone: Still](confession-1689/1689-22-8-still.md)
   - [XXIII. Of Lawful Oaths and Vows](confession-1689/1689-23-0-index.md)
     - [23.1 Oath: The Witness of God](confession-1689/1689-23-1-oath-the-witness-of-god.md)
