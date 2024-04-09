@@ -42,3 +42,17 @@
 ### and is to be continued to the end of the world as the Christian Sabbath, the observation of the last day of the week being abolished.
 
 >Revelation 1:10 (CSB) I was in the Spirit on the Lord’s day, and I heard a loud voice behind me like a trumpet
+
+>Matthew 28:1 (CSB) After the Sabbath, as the first day of the week was dawning, Mary Magdalene and the other Mary went to view the tomb.
+
+>Mark 16:2 (CSB) Very early in the morning, on the first day of the week, they went to the tomb at sunrise.
+
+>John 20:1 (CSB) On the first day of the week Mary Magdalene came to the tomb early, while it was still dark. She saw that the stone had been removed from the tomb.
+
+The life, death, descent, and resurrection of the Christ was the greatest event in all of history. This cannot be overstated. When Christ fulfilled the law of God, he fulfilled the law of the Sabbath. It was on the Sabbath that we rest and trust in Christ. And now that the Sabbath is the first day of the week, Sunday, because of the resurrection of the Christ, we rest and trust in God because we know where our rest comes from: Jesus Christ.
+
+Sunday is the Lord's Day and it is the Sabbath day. Therefore, we worship Christ and we get to rest from six days of work.
+
+This is not a punishment, a burden, or "have to do" but rather, because the Father has given us the Christ, we get all of these wonderful gifts--his Word, his Spirit, everything. In that, we get to worship God. In that, we get to rest from our work. We trust in the Christ and now we are saved by Christ to God.
+
+Praise be to God!
