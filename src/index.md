@@ -26,15 +26,3 @@ In essence, Theologicus--all of my completed works, sermons, commentaries and st
 >Psalms 17:15 (CSB) But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
 
 Corem Deo. I will live before the face of my God. And I know that one day, I will behold my God.
-
-#### tech
-
-[![tools](https://skillicons.dev/icons?i=vscode,vim,rust)]()
-[![tools](https://skillicons.dev/icons?i=md,css,html)]()
-[![tools](https://skillicons.dev/icons?i=bash,git,github)]()
-
-<a href="https://www.netlify.com"><img src="https://www.netlify.com/v3/img/components/netlify-color-accent.svg" alt="Deploys by Netlify" /></a>
-
-![Crates.io](https://img.shields.io/crates/v/mdbook)
-
-![Crates.io](https://img.shields.io/crates/v/mdbook-toc)
