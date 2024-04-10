@@ -13,7 +13,7 @@ of my only, only Lord Jesus.
 
 ## releases
 
--v3.3.2 (2024 Apr 10) Port 1689 to [submodule](https://github.com/joelouthan/theologicus-1689)
+- v3.3.2 (2024 Apr 10) Port 1689 to [submodule](https://github.com/joelouthan/theologicus-1689)
 - v3.3.1 (2024 Jan 7) [Swift port](https://github.com/joelouthan/com.theologicus)
 - v3.3 (2023 Jul 16) [Apostles' Creed](https://theologic.us/creed-apostles/index.md)
 - v3.2 (2023 Jul 04) [Book Reviews](https://theologic.us/reviews/index.md)
