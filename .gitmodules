@@ -1,6 +1,3 @@
 [submodule "theme/Gutenberg"]
 	path = theme/Gutenberg
 	url = https://github.com/BafS/Gutenberg.git
-[submodule "src/confession-1689"]
-	path = src/confession-1689
-	url = https://github.com/joelouthan/volume-confession-1689.git
