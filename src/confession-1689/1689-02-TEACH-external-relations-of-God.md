@@ -1,6 +1,6 @@
 <img class="intro-right" src="art-1689.png">
 
-# 1689 Chapter 2.2 God's External Relations
+# Teaching: 1689 Chapter 2.2 God's External Relations
 
 >*Teaching notes for Reforming Truth Church's Conference "1689 On Holy Scriptures", March 23, 2024. These notes will be covering:*
 >
