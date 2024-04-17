@@ -25,11 +25,13 @@
 
 ## Prayer
 
-## The Intro
+## The Confession
 
 **God, having all life, glory, goodness, blessedness, in and of himself, is alone in and unto himself all-sufficient, not standing in need of any creature which he hath made, nor deriving any glory from them, but only manifesting his own glory in, by, unto, and upon them; he is the alone fountain of all being, of whom, through whom, and to whom are all things, and he hath most sovereign dominion over all creatures, to do by them, for them, or upon them, whatsoever himself pleaseth; in his sight all things are open and manifest, his knowledge is infinite, infallible, and independent upon the creature, so as nothing is to him contingent or uncertain; he is most holy in all his counsels, in all his works, and in all his commands; to him is due from angels and men, whatsoever worship, service, or obedience, as creatures they owe unto the Creator, and whatever he is further pleased to require of them.**
 
-### God, having all life, glory, goodness, blessedness, in and of himself, is alone in and unto himself
+## The Introduction
+
+TODO: Add introduction
 
 I am not sure if we, Christians, still believe this or not. But for the sake of covering my bases, let me state this.
 
@@ -41,11 +43,15 @@ God does not need us.
 
 I could try to paint a picture of a perfectly content Father and a perfectly content Son in perfect harmonious community joined by the Holy Spirit. To be honest, it would be a feeble attempt. Because we cannot imagine such a relationship on this side of heaven.
 
-I could walk into any room with any amount of people and ask for a show of hands who here has known anybody who has gotten divorced. The raised hands would be 100%. Yet, when God gave marriage to mankind, his intention and design was always forever. Never broken. Never fractured.
+TODO: Transition from Triune relationship to marriage/divorce OR come up with a better way to transition
+
+Take for one example: marriage. Or the covenant of marriage broken--divorce. I could walk into any room with any amount of people and ask for a show of hands who here has known anybody who has gotten divorced. The raised hands would be 100%. Yet, when God gave marriage to mankind, his intention and design was always forever. Never broken. Never fractured.
 
 We cannot not imagine unbroken marriage. Sinless relationships. Complete joy-filled unions. We can't but this is all God knew forever. There was no other reality for him.
 
 And why is that. To speak about God is that we cannot simply stop at "he is good" which he is. And he is blessedness or glory or life which he is all these things. But what sets him apart from his creation is that he is the fullness of these things. And if he is truly filled to the max, perfectly with these things, then he does not need anything.
+
+### God, having all life, glory, goodness, blessedness, in and of himself, is alone in and unto himself
 
 And if is filled with these things--all life, glory, goodness, blessedness--then what else does he need. He certainly did not need us. R.C. Sproul says it this way:
 
@@ -55,7 +61,20 @@ And if is filled with these things--all life, glory, goodness, blessedness--then
 
 ### all-sufficient, not standing in need of any creature which he hath made, nor deriving any glory from them
 
-Often times, I have shared the story of the loss of my brother who passed away in 2020 from Stage 4 Colon Cancer. And after so much loss, you would think I would be comfortable with grieving. And been on this earth for nearly 50 years, I don't automatically grieve loss and sin and betrayal. And the reason why is because instead of grieving and sitting in that sadness and feeling the sadness, I avoid it. I avoid it like that the plague. But I turn my heart instead of the one God who can comfort me and instead turn to a much darker plague: porn.
+>Acts 17:23–28 (CSB)  
+><sup>23</sup> For as I was passing through and observing the objects of your worship, I even found an altar on which was inscribed, ‘To an Unknown God.’ Therefore, what you worship in ignorance, this I proclaim to you. 
+>
+><sup>24</sup> <bgy>The God who made the world and everything in it—he is Lord of heaven and earth—does not live in shrines made by hands.</bgy>
+>
+><sup>25</sup> <bgy>Neither is he served by human hands, as though he needed anything, since he himself gives everyone life and breath and all things.</bgy>
+>
+><sup>26</sup> From one man he has made every nationality to live over the whole earth and has determined their appointed times and the boundaries of where they live. 
+>
+><sup>27</sup> He did this so that they might seek God, and perhaps they might reach out and find him, though he is not far from each one of us. 
+>
+><sup>28</sup> For in him we live and move and have our being, as even some of your own poets have said, ‘For we are also his offspring.’
+
+Often times, I have shared the story of the loss of my brother who passed away in 2020 from Stage 4 Colon Cancer. And after so much loss, you would think I would be comfortable with grieving. And been on this earth for nearly 50 years, I don't automatically grieve loss and sin and betrayal. And the reason why is because instead of grieving and sitting in that sadness and feeling the sadness, I avoid it. I avoid it like that the plague. But I turn my heart instead of the one God who can comfort me and instead turn to soemthing much darker: porn.
 
 Summer of 2022, the perfect storm for Satan to release his barrage of temptations would come my way. My wife was going on an international trip for work. And I was at home by myself. But during this, I started experiencing a physical pain and ailment that immediately took me back to my dying brother in his pain and agony. And helping the nurse lift and turn his lifeless cancer ridden body. This little bit of physical grief struck me with fear that I, too, had cancer like my brother.
 
@@ -79,7 +98,13 @@ Oh. Because my God is good and he alone is good and he overflows with goodness, 
 
 He allowed me to preach his gospel for the first time ever.
 
-I sinned. And God responded with ultimate goodness and mercy.
+God does not need me to be good in order for him to be good.
+
+I have sinned and fallen short of the glory.
+
+How does God respond? With life, repentance, goodness, mercy, grace and love.
+
+God is always these things. Adam and Eve knew of his love before the fall. But when they sinned against him, they instantly knew new feelings like hurt, doubt, shame, grief, pain, fear, and sin. But it was in their sin--and not their goodness because they had none to give--that they got to experience the fullness of his love--his mercy, faith, repentance, grace, hope, and steadfast love.
 
 This is my God.
 
