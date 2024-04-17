@@ -247,6 +247,8 @@ But here is the good news:
 >are the Most High over the whole earth;
 >you are exalted above all the gods.
 
+## So what?
+
 In all of the accounts of the kings of Israel and Judah, there is not a better, clearer, more explicit example of the saving power and full-out love of the Almighty God than in the account of King Manasseh.
 
 If you read just the 2 Kings account, you will read of wicked and depraved king and the author of 2 Kings describes his reign as:
@@ -296,8 +298,6 @@ He saved me.
 In his holiness and loveliness, he saved me.
 
 Therefore, I will forever praise his holy name. Amen.
-
-## So what?
 
 [^matt5-9]: The quintessential difference between peacekeeping and peacemaking. See Matthew 5:9. But I digress. 
 [^packer-deathofdeath]: J.I. Packer. Essay, Introduction to John Owen's The Death of Death in the Death of Christ.
