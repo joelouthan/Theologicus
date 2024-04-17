@@ -1,6 +1,6 @@
 <img class="intro-right" src="art-1689.png">
 
-# The Revelation & Inspiration of the Holy Scriptures
+# Teaching: 1689 Chapter 1 The Revelation & Inspiration of the Holy Scriptures
 
 >*Teaching notes for Reforming Truth Church's Conference "1689 On Holy Scriptures", March 23, 2024. These notes will be covering:*
 >
