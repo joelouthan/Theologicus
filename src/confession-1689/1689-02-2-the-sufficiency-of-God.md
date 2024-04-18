@@ -135,7 +135,7 @@ Instead of expounding the love, and the mercy, and the grace of the Almighty God
 
 What cannot be missed when you keep reading 2 Kings is simply how sinful and foolish King Hezekiah really was. In his pride, arrogance, folly, and stupidity, he gives the envoys of the King of Babylon all the treasures of the his palace.
 
-The Lord our God, throught the prophet Isaiah, responds in kind:
+The Lord our God, through the prophet Isaiah, responds in kind:
 
 >2 Kings 20:16-18 (CSB) Then Isaiah said to Hezekiah, “Hear the word of the LORD: ‘Look, the days are coming when everything in your palace and all that your predecessors have stored up until today will be carried off to Babylon; nothing will be left,’ says the LORD. ‘Some of your descendants — who come from you, whom you father — will be taken away, and they will become eunuchs in the palace of the king of Babylon.’ ”
 
