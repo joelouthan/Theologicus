@@ -173,7 +173,7 @@ I could entertain this notion except the word of God says otherwise:
 
 God never foresaw us. The word says God foreknew us. God foreknew our deceit and sinfulness and treasonous acts. God knew us and in his mercy, saved us. 
 
-The world and philosophies of this world and certain theologies like Open Theism, Molinism, and cult and sects like Mormonism and Jehoviah Witness and heresies like Arianism and Gnosticism have one thread in common: it is the feeble and wicked attempted to either lower God to be like created man or elevate created man to be like God.
+The world and philosophies of this world and certain theologies like Open Theism, Molinism, and cult and sects like Mormonism and Jehovah Witnessess and heresies like Arianism and Gnosticism have one thread in common: it is the feeble and wicked attempted to either lower God to be like created man or elevate created man to be like God.
 
 But true, historical, orthodox, right, and proper Christian theology is this:
 
