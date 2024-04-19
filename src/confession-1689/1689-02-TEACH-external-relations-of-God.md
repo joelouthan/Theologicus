@@ -6,7 +6,7 @@
 >
 >- [2.2 The Sufficiency of God](confession-1689/1689-02-2-the-sufficiency-of-God.md)
 >
-> Livestream & Recording: [Reforming Truth Church](https://www.youtube.com/@reformingtruthchurch/streams)
+> Recorded at [Reforming Truth Church](https://www.youtube.com/@reformingtruthchurch/streams)
 
 ## Table of Contents
 
@@ -43,29 +43,17 @@ I could try to paint a picture of a most perfectly content Father and a most per
 
 To be honest, I can't because it would be a feeble attempt. Because we, on this side of heaven, cannot imagine such a relationship would ever exist.
 
-Take for one example: marriage--this common grace of God to all of mankind that is a holy covenant between one man and one woman in the sight of God that should last forever. Yet, how many of us know someone who has been divorced? All of us do.
+God had everything he every needed because he is all-sufficient of himself.
 
-Divorced? Broken relationships? Lost love? This is not so, never be so, and will never be so with the Triune God.
+This is hard to imagine because God had this perfect relationship within himself but we see broken relationships all the time.
 
-Think about romantic relationships and with that, romantic songs. Think of your favorite romantic song. What is a oft-repeated line in these sort of songs? Something along the lines of "I want you--I need you." Why are we so drawn to these songs which displays love in the most unhealthiest ways? 
+Show of hands: how many know someone who has been divorced. 100% of us.
 
-Because deep down, we want to be loved with an unbroken and unchanging love. 
+If God had this such perfect relationship, why create? More so, why create us? Why create us when are going to just sin against him anyway? 
 
-When divorce went on the rise since the Sexual Revolution of the 1960s, we seemingly doubled down on that desire for unbroken love. But the more we sung about it and yearn for it, the more we saw more divorces and more broken relationships.
+In other words, why us?
 
-Speaking as a Generation Xer, it was not so uncommon for many of friends come to the "logical" conclusion, "Oh! I know how to never get to a divorce. We just never get married. We will just lived together and love each other. Problem solved."
-
-But the problem never got solved. It has only gotten exponentially worse.
-
-We cannot not imagine unbroken marriage. We cannot comprehend sinless relationships. Actual perfect joy-filled unions. We can't truly fathom this because we live in a sin-filled broken world with broken sinners like you and me. 
-
-But this content, joy, satisfied, holy, and perfect love is all that the Father, Son, and Spirit knew and experience since forever. There was no other reality for God.
-
-And why is that? Why was God in perfect relationship within himself? Because God is holy. He is love. He is just. He is righteous. He is gracious. He is merciful. Sovereign. Good. Wise and so many more things.
-
-We know God's nature and identity--that was masterfully taught by Troy. And right after me, Pangborn is going to teach on God's internal relations--his Triune-ess.
-
-But for right now, we know that we believe:
+We know that we believe:
 
 ```
 ... in one God,
@@ -76,7 +64,7 @@ of all things visible and invisible.
 Nicene Creed
 ```
 
-Since God is Creator, what is God's relationship to his creation? What is God's relation to us--mankind, human, the so-called image bearers of God?
+Since God is Creator, what is God's relationship to his creation? What is God's relation to us--mankind, human, the aptly named image bearers of God?
 
 We will explore and answer the following questions:
 
@@ -104,10 +92,6 @@ Once more, for God to be maxed out good, he does not have to compromise on his l
 
 Like on my best day, I might be happy as a clam but then I am not wise with my resources nor time. God is not that like that.
 
->“God is alone in and unto himself all-sufficient. God is all-sufficient not only in Himself, but also for Himself, in the absolute sense, needing nothing from any creature. Christians often use expressions that are well meaning but that, if analyzed carefully, approach blasphemy. For example, “I’m so glad that so-and-so allowed God to work through him,” or “Thank you for letting God work through you.” Does this mean that God cannot work through me unless I allow Him? God does not need our permission to do anything, any more than He needed Paul’s permission to appear to him on the Damascus road, or Judas’ to use him for His greater glory, or that of Balaam’s ass to speak prophetically. God is self-sufficient, both in Himself and for Himself.”
->
->R. C. Sproul. Truths We Confess. 55-57.
-
 #### The Aseity of God
 
 **is alone in and unto himself all-sufficient, not standing in need of any creature which he hath made, nor deriving any glory from them, but only manifesting his own glory in, by, unto, and upon them**
@@ -116,6 +100,20 @@ Like on my best day, I might be happy as a clam but then I am not wise with my r
 ><sup>24</sup> <bgy>The God who made the world and everything in it—he is Lord of heaven and earth—does not live in shrines made by hands.</bgy>
 >
 ><sup>25</sup> <bgy>Neither is he served by human hands, as though he needed anything, since he himself gives everyone life and breath and all things.</bgy>
+
+>“God is alone in and unto himself all-sufficient. God is all-sufficient not only in Himself, but also for Himself, in the absolute sense, needing nothing from any creature. Christians often use expressions that are well meaning but that, if analyzed carefully, approach blasphemy. For example, “I’m so glad that so-and-so allowed God to work through him,” or “Thank you for letting God work through you.” Does this mean that God cannot work through me unless I allow Him? God does not need our permission to do anything, any more than He needed Paul’s permission to appear to him on the Damascus road, or Judas’ to use him for His greater glory, or that of Balaam’s ass to speak prophetically. God is self-sufficient, both in Himself and for Himself.”
+>
+>R. C. Sproul. Truths We Confess. 55-57.
+
+Let me use one clearest example:
+
+>Romans 6:1–2 (CSB) What should we say then? Should we continue in sin so that grace may multiply? Absolutely not! How can we who died to sin still live in it?
+
+Go back to the garden: Adam and Eve in perfect right standing with God in perfect worship to God and perfect obedience to God could not experience the kindness and mercy and grace of God. They knew God loved them and he was good and life and blessedness.
+
+But when they sin--they had a whole new set of feelings and vocabulary. Things like: sin, wickedness, sadness, shame, nakedness, worthless, loneliness, confusion.
+
+But how did God respond to them? Not in quick judgement and wrath and punishment in which they and we are due--but the outpouring that gave us the better definition of what love really is: merciful, kindness, patience, gracious, forgiveness, redeeming, the gospel.
 
 #### The Source of Everything
 
@@ -130,17 +128,47 @@ Like on my best day, I might be happy as a clam but then I am not wise with my r
 >
 ><sup>36</sup> For from him and through him and to him are all things. To him be the glory forever. Amen.
 
+In short, for whatever we need, he is the source of that. Wanna be saved? You gotta go to God. Blessings? God. Provision? God. Protection? God. Joy? God. Happiness? God. Peace? God.
+
+Salvation? God.
+
+For there is no other name by which we are saved.
+
 #### Sees and Knows Everything
 
 **in his sight all things are open and manifest, his knowledge is infinite, infallible, and independent upon the creature, so as nothing is to him contingent or uncertain**
+
+>Hebrews 4:13 (CSB) No creature is hidden from him, but all things are naked and exposed to the eyes of him to whom we must give an account.
+
+When I was freshly saved in 2007, there were still many errors and heresies still kicking around. One such heresy was the notion of that God does not know the future but he reacts to the actions and pleas of his creation. This heresy is called Open Theism. That the future is not determined by God but by the actions of his creation.
+
+Author and pastor Greg Boyd, wrote a book defending this heresy and hinged his entire argument upon one passage about King Hezekiah:
+
+>2 Kings 20:1 (CSB) In those days Hezekiah became terminally ill. The prophet Isaiah son of Amoz came and said to him, “This is what the LORD says: ‘Set your house in order, for you are about to die; you will not recover.’ ”
+
+Hezekiah, in response, prayed and wept bitterly for the Lord to extend his life.
+
+What doe the Lord do? He extends his life.
+
+We should, in light of the rest of Scriptures and the indwelling of the Holy Spirit in us, should look upon this passage and know that our God is so good and merciful and kind that he would extend one man's life because he prayed for it.
+
+But Boyd saw it much differently--he saw that if you believed the right things, did the right things, prayed the right things, had a big enough faith, that you can get God to do whatever you need or want him to do.
+
+That is the very definition of Paganism. God is not a pagan god--that is to say he is a not a demon who has no power in the material world--who is served by humans hands and will respond if you do the right things.
+
+Guess what? None of us have done the right things--we have all sinned and fallen short of the glory of God.
+
+How did God respond? He sent his only begotten Son!
+
+>Romans 3:21-26 (CSB) But now, apart from the law, the righteousness of God has been revealed, attested by the Law and the Prophets. The righteousness of God is through faith in Jesus Christ to all who believe, since there is no distinction. For all have sinned and fall short of the glory of God. They are justified freely by his grace through the redemption that is in Christ Jesus. God presented him as an atoning sacrifice in his blood, received through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be righteous and declare righteous the one who has faith in Jesus.
+
+Shockingly enough, Mr. Boyd does not mention the Romans 3 passage in his book.
 
 #### Perfection in who is his. what he thinks and what he does
 
 **he is most holy in all his counsels, in all his works, and in all his commands**
 
 >Psalm 145:17 (CSB) The Lord is righteous in all his ways and faithful in all his acts.
-
-
 
 ## So what?
 
@@ -152,9 +180,7 @@ Like on my best day, I might be happy as a clam but then I am not wise with my r
 
 >Psalm 16:11 (CSB) You reveal the path of life to me; in your presence is abundant joy; at your right hand are eternal pleasures.
 
-We spoke earlier of his life, goodness, blessedness, and glory. Here is the thing: when God acts towards you--he does so out of maxed out goodness and life and blessedness and glory. He alone is maxed out good and maxed out wise when it comes to being with you and drawing you closer and closer to him and conforming you to the image of his Son.
-
-You can count on him to be fully good and tender to you and already thought of everything you need and your circumstances.
+When God deals with you, he deals out of maxed out goodness and wisdom--full good and full wisdom. Nothing less and nothing more is possible.
 
 You can trust God because you have his word. You have his word because you have his Son and Spirit dwelling in you forever.
 
@@ -173,10 +199,6 @@ Put this all together: the Father knows what you need before you can even ask--a
 Beyond food, provision, shelter, relationships, joy, happiness, and peace--any of that, we need one primary thing. We need God. We need God. And the Father knew that we needed him before we could even ask because he sent his only begotten Son to live perfectly, die in our place, resurrect so we would be born again, and ascended to the right of the Father completely sovereign over all things.
 
 #### He is most Sovereign
-
->Psalm 115:3 (CSB) Our God is in heaven and does whatever he pleases.
-
->Psalm 135:6 (CSB) The Lord does whatever pleases him in heaven and on earth, in the seas and all the depths.
 
 >Isaiah 46:10 (CSB) I declare the end from the beginning, and from long ago what is not yet done, saying: my plan will take place, and I will do all my will.
 
@@ -198,7 +220,7 @@ He created us because he loved us. He created us because he wanted us. He create
 
 No need. Just love. And the word 'love' is desperate trying to be redefined by a world who desperately wants to be loved.
 
-But in the right, most perfection definition of love, God created us because he loved us because God is love.
+But in the right, most perfect definition of love, God created us because he loved us because God is love.
 
 But from that love, he created us. What were we created to do?
 
@@ -206,7 +228,7 @@ But from that love, he created us. What were we created to do?
 
 **he hath most sovereign dominion over all creatures, to do by them, for them, or upon them, whatsoever himself pleaseth**
 
-In other words, we were made to worship. One way or another, we are going to God. And when Adam and Eve were created, they perfectly worship God. It was very good. Yet, when they sinned against God, it went beyond just breaking God's law or even the breaking of the cosmos. Adam and Eve, in one tragic, catastrophic moment, have exchanged their perfect, right worship of God to sin-filled, broken, worthless, wicked worshiping not-God.
+In other words, we were made to worship. One way or another, we are going to worship. And when Adam and Eve were created, they perfectly worship God. It was very good. Yet, when they sinned against God, it went beyond just breaking God's law or even the breaking of the cosmos. Adam and Eve, in one tragic, catastrophic moment, have exchanged their perfect, right worship of God to sin-filled, broken, worthless, wicked worshiping not-God.
 
 This is the damned exchange in Romans 1:
 
@@ -216,7 +238,7 @@ This is the damned exchange in Romans 1:
 
 **whatever he is further pleased to require of them**
 
-Not just "in order to be with God, you must be perfect". No, because we are his creation and he is a perfect Creator, he demands perfection from his creation image bearers. Creation already obeys him. He is the their Creator Lord. They cannot help but to obey him. Angels obey him. To those angels who do not obey him, they are instantly ejected. (There is no epic fight. Christ said, "fell like lightning")
+Not just "in order to be with God, you must be perfect". No, because we are his creation and he is a perfect Creator, he demands perfection from his created image bearers. Creation already obeys him. He is the their Creator Lord. They cannot help but to obey him. Angels obey him. To those angels who do not obey him, they are instantly ejected. (There is no epic fight. Christ said, "fell like lightning")
 
 #### Yet we have completely, totally, immensely, failed him in everything we have done
 
