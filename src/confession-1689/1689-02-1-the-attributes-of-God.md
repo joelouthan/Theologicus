@@ -204,7 +204,8 @@ Those who contend for the free will of man in their own salvation will, after mu
 
 But God is not a school subject. He is not an academic course. He is not a science project. He is not an undiscovered element. The modern mind wants to so desperately treat God as if he is just another major study at the local college. But the Scripture make it crystal clear:
 
->1 Corinthians 2:7–16 (CSB)  
+>1 Corinthians 2:7–16 (CSB)
+
 ><sup> 7  </sup>On the contrary, we speak God’s hidden wisdom in a mystery, a wisdom God predestined before the ages for our glory. 
 >
 ><sup> 8  </sup>None of the rulers of this age knew this wisdom, because if they had known it, they would not have crucified the Lord of glory. 
@@ -251,9 +252,12 @@ Can we fully know God? No. But can we *truly* know him? Absolutely. How do I kno
 
 >Genesis 17:1 (CSB) When Abram was ninety-nine years old, the LORD appeared to him, saying, “I am God Almighty. Live in my presence and be blameless.
 
->Revelation 4:8 (CSB) Each of the four living creatures had six wings; they were covered with eyes around and inside. Day and night they never stop, saying,  
->Holy, holy, holy,  
->Lord God, the Almighty,  
+>Revelation 4:8 (CSB) Each of the four living creatures had six wings; they were covered with eyes around and inside. Day and night they never stop, saying,
+
+>Holy, holy, holy,
+
+>Lord God, the Almighty,
+
 >who was, who is, and who is to come.
 
 In the most simplistic way, almighty is a contraction of two words, "all" and "mighty". That is too say, all-might. If we have a hard time grasping the ever-existence of God, I think we really do no fathom what it means for God to be omnipotent. And the reason why is throughout all of history, man, in his frailty and weakness, has strived and fought for power.
@@ -290,8 +294,10 @@ Take these attributes of God--*immensity, eternal, incomprehensible, almighty*--
 
 ### most holy
 
->Isaiah 6:2-3 (CSB) Seraphim were standing above him; they each had six wings: with two they covered their faces, with two they covered their feet, and with two they flew. And one called to another:  
->Holy, holy, holy is the LORD of Armies;  
+>Isaiah 6:2-3 (CSB) Seraphim were standing above him; they each had six wings: with two they covered their faces, with two they covered their feet, and with two they flew. And one called to another:
+
+>Holy, holy, holy is the LORD of Armies;
+
 >his glory fills the whole earth.
 
 R.C. Sproul is famous for correctly stating:
@@ -314,7 +320,8 @@ It is this same holiness that is now given to the people of God. All because God
 
 ### most wise
 
->Proverbs 8:22–31 (CSB)  
+>Proverbs 8:22–31 (CSB)
+
 ><sup> 22  </sup>“The LORD acquired me at the beginning of his creation, before his works of long ago. 
 >
 ><sup> 23  </sup>I was formed before ancient times, from the beginning, before the earth began. 
@@ -396,34 +403,44 @@ With that almightiness power comes that God is not outside of his law nor is sub
 
 >John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
-For here is love, God proclaims the good news that He will make all things right:  
+For here is love, God proclaims the good news that He will make all things right:
+
 >Genesis 3:15 (CSB) I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
 
-And here is love, God is faithful:  
+And here is love, God is faithful:
+
 >Psalm 103:15–18 (CSB) As for man, his days are like grass— he blooms like a flower of the field; when the wind passes over it, it vanishes, and its place is no longer known. **But from eternity to eternity the LORD’s faithful love is toward those who fear him, and his righteousness toward the grandchildren of those who keep his covenant, who remember to observe his precepts.**
 
-And here is love, God's faithful love and mercies will never come to an end:  
+And here is love, God's faithful love and mercies will never come to an end:
+
 >Lamentations 3:22–23 (CSB) Because of the LORD’s faithful love we do not perish, **for his mercies never end**. They are new every morning; great is your faithfulness!
 
-And here is love, God does everything for you to be with Him:  
+And here is love, God does everything for you to be with Him:
+
 >Ezekiel 36:25–28 (CSB) I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances. You will live in the land that I gave your ancestors; you will be my people, and I will be your God.
 
-And here is love, God saves us from our sins:  
+And here is love, God saves us from our sins:
+
 >Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
-And here is love:  
+And here is love:
+
 >John 1:16–18 (CSB) Indeed, we have all received grace upon grace from his fullness, for the law was given through Moses; grace and truth came through Jesus Christ. No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
 
-And here is love, God sent his only begotten Son, Jesus Christ:  
+And here is love, God sent his only begotten Son, Jesus Christ:
+
 >John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
-And here is love, God adopts us into his family:  
+And here is love, God adopts us into his family:
+
 >Romans 9:25–26 (CSB) As it also says in Hosea, I will call Not my People, My People, and she who is Unloved, Beloved. And it will be in the place where they were told, you are not my people, there **they will be called sons of the living God.**
 
-And here is love, Christ loved me and lived and died for me:  
+And here is love, Christ loved me and lived and died for me:
+
 >Galatians 2:20 (CSB) I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
 
-And here is love, we have no condemnation and no separate from God:  
+And here is love, we have no condemnation and no separate from God:
+
 >Romans 8:1; 38-39 (CSB) Therefore, there is now no condemnation for those in Christ Jesus... and nothing will every separate us from the love of God that is in Jesus Christ our Lord.
 
 Simply put:
@@ -525,7 +542,8 @@ This is the rest that Christ has given to his people. We never have to earn his 
 
 ### forgiving iniquity, transgression and sin
 
->Psalm 103 (CSB)  
+>Psalm 103 (CSB)
+
 >
 ><sup>1</sup> My soul, bless the LORD, and all that is within me, bless his holy name. 
 >
