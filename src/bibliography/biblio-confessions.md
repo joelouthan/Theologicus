@@ -26,10 +26,11 @@ Wakeman Trust. January 1, 1981.
 
 <hr style="clear:both;">
 
-<img src="confession-1689-modern-exposition-waldron.jpg">Modern Exposition of the 1689 Baptist Confession of Faith.  
+<img src="confession-1689-modern-exposition-waldron-5th-ed.jpg">Modern Exposition of the 1689 Baptist Confession of Faith.  
+5th Edition.
 Samuel E. Waldron.  
-Evangelical Press. 2013.  
-[Goodreads](https://www.goodreads.com/book/show/17867976-modern-exposition-of-the-1689-baptist-confession-of-faith)
+Evangelical Press. 2016.  
+[Goodreads](https://www.goodreads.com/book/show/33114506-a-modern-exposition-of-the-1689-baptist-confession-of-faith)
 
 <hr style="clear:both;">
 
