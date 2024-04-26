@@ -8,6 +8,8 @@
 
 ## The Text
 
+TODO: verse
+
 ## The Chapter
 
 Marriage ought not to be within the degrees of consanguinity or affinity, forbidden in the Word; nor can such incestuous marriages ever be made lawful, by any law of man or consent of parties, so as those persons may live together as man and wife.**

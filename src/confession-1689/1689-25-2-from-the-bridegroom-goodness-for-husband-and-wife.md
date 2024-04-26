@@ -8,6 +8,8 @@
 
 ## The Text
 
+TODO: verse
+
 ## The Chapter
 
 **Marriage was ordained for the mutual help of husband and wife, for the increase of mankind with a legitimate issue, and the preventing of uncleanness.**

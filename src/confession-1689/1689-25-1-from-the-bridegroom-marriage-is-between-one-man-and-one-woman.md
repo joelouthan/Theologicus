@@ -8,6 +8,8 @@
 
 ## The Text
 
+TODO: verse
+
 ## The Chapter
 
 **Marriage is to be between one man and one woman; neither is it lawful for any man to have more than one wife, nor for any woman to have more than one husband at the same time.**

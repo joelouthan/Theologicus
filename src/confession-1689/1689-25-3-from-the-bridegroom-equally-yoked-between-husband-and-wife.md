@@ -8,6 +8,8 @@
 
 ## The Text
 
+TODO: verse
+
 ## The Chapter
 
 **It is lawful for all sorts of people to marry, who are able with judgment to give their consent; yet it is the duty of Christians to marry in the Lord; and therefore such as profess the true religion, should not marry with infidels, or idolaters; neither should such as are godly, be unequally yoked, by marrying with such as are wicked in their life, or maintain damnable heresy.**
