@@ -8,7 +8,7 @@
 
 ## The Text
 
-TODO: verse
+>Deuteronomy 7:1–4 (CSB) “When the LORD your God brings you into the land you are entering to possess, and he drives out many nations before you—the Hethites, Girgashites, Amorites, Canaanites, Perizzites, Hivites and Jebusites, seven nations more numerous and powerful than you—and when the LORD your God delivers them over to you and you defeat them, you must completely destroy them. Make no treaty with them and show them no mercy. You must not intermarry with them, and you must not give your daughters to their sons or take their daughters for your sons, because they will turn your sons away from me to worship other gods. Then the LORD’s anger will burn against you, and he will swiftly destroy you.
 
 ## The Chapter
 

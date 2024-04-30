@@ -8,7 +8,7 @@
 
 ## The Text
 
-TODO: verse
+>1 Corinthians 5:1 (CSB) It is actually reported that there is sexual immorality among you, and the kind of sexual immorality that is not even tolerated among the Gentiles—a man is sleeping with his father’s wife.
 
 ## The Chapter
 
@@ -23,5 +23,3 @@ Marriage ought not to be within the degrees of consanguinity or affinity, forbid
 ### nor can such incestuous marriages ever be made lawful, by any law of man or consent of parties, so as those persons may live together as man and wife
 
 >Mark 6:18 (CSB) John had been telling Herod, “It is not lawful for you to have your brother’s wife.”
-
->1 Corinthians 5:1 (CSB) It is actually reported that there is sexual immorality among you, and the kind of sexual immorality that is not even tolerated among the Gentiles—a man is sleeping with his father’s wife.

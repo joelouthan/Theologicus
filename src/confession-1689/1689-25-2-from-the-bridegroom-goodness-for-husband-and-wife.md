@@ -8,7 +8,7 @@
 
 ## The Text
 
-TODO: verse
+>Genesis 2:18 (CSB) Then the LORD God said, “It is not good for the man to be alone. I will make a helper corresponding to him.”
 
 ## The Chapter
 

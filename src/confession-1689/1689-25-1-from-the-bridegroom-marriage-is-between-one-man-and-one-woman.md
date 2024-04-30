@@ -8,7 +8,7 @@
 
 ## The Text
 
-TODO: verse
+>Matthew 19:5–6 (CSB) and he also said, ‘For this reason a man will leave his father and mother and be joined to his wife, and the two will become one flesh’? So they are no longer two, but one flesh. Therefore, what God has joined together, let no one separate.”
 
 ## The Chapter
 
@@ -20,4 +20,3 @@ TODO: verse
 
 >Malachi 2:15 (CSB) Didn’t God make them one and give them a portion of spirit? What is the one seeking? Godly offspring. So watch yourselves carefully, so that no one acts treacherously against the wife of his youth.
 
->Matthew 19:5–6 (CSB) and he also said, ‘For this reason a man will leave his father and mother and be joined to his wife, and the two will become one flesh’? So they are no longer two, but one flesh. Therefore, what God has joined together, let no one separate.”
