@@ -15,6 +15,8 @@
 
 ## The Text
 
+>Isaiah 46:10 (CSB) I declare the end from the beginning, and from long ago what is not yet done, saying: my plan will take place, and I will do all my will.
+
 ## Prayer
 
 ## The Intro
