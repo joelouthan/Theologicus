@@ -21,5 +21,29 @@
 
 ## The Intro
 
+## The Decree of God
+
+### Freely
+
+### Unchangeable
+
+### Without Conditions
+
+## The Will of Man
+
+### Broken
+
+### Marred
+
+### Unable
+
+## The Will of God
+
+### Perfect
+
+### Fully Wise and Love
+
+### Wholly Merciful
+
 
 ## So what?

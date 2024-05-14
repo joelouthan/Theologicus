@@ -70,15 +70,9 @@ From his most holy and most wise counsel, God is not just powerful enough to do 
 
 For all of mankind's accomplishments, what makes us so unremarkable in this way--even if we wanted to save ourselves, we cannot. The argument for the freedom of will in mankind is invalid and lost because mankind is tinctured, fractured, broken and marred with sin. Even in trying to understand our sinful selves is broken--we can never see just how sinful we really are because we are sinful. Sin has broken not only minds, hearts, souls, and bodies but also our wills.
 
-We might want to save ourselves but for what reason? In of ourselves, if we could save ourselves, we would not want to save ourselves to God but rather to our own selves. And because we are fractured by sin, we would un-save ourselves just as quickly.
-
-But God, in everything he has and will do, he has the will to do it because he is sinless and perfect and holy.
-
 ### freely and unchangeably
 
 >Hebrews 6:17 (CSB) Because God wanted to show his unchangeable purpose even more clearly to the heirs of the promise, he guaranteed it with an oath,
-
-For all of mankind's accomplishments, what makes us so unremarkable in this way--even if we wanted to save ourselves, we cannot. The argument for the freedom of will in mankind is invalid and lost because mankind is tinctured, fractured, broken and marred with sin. Even in trying to understand our sinful selves is broken--we can never see just how sinful we really are because we are sinful. Sin has broken not only minds, hearts, souls, and bodies but also our wills.
 
 We might want to save ourselves but for what reason? In of ourselves, if we could save ourselves, we would not want to save ourselves to God but rather to our own selves. And because we are fractured by sin, we would un-save ourselves just as quickly.
 
