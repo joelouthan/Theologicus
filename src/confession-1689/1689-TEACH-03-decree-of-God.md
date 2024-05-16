@@ -1,5 +1,7 @@
 <img class="intro-right" src="art-1689.png">
 
+`20240515.2005`
+
 # Teaching: 1689 Chapter 1 The Revelation & Inspiration of the Holy Scriptures
 
 >*Teaching notes for Reforming Truth Church's Conference "1689 Chapter 3 On God's Decree", May 18, 2024. These notes will be covering:*
