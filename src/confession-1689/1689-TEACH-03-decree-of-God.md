@@ -1,8 +1,8 @@
 <img class="intro-right" src="art-1689.png">
 
-`20240515.2005`
+`20240517.0937`
 
-# Teaching: 1689 Chapter 1 The Revelation & Inspiration of the Holy Scriptures
+# Teaching: 1689 Chapter 3 On the Decree of God
 
 >*Teaching notes for Reforming Truth Church's Conference "1689 Chapter 3 On God's Decree", May 18, 2024. These notes will be covering:*
 >
@@ -23,43 +23,86 @@
 
 ## Prayer
 
+## The Confession
+
+**God hath decreed in himself, from all eternity, by the most wise and holy counsel of his own will, freely and unchangeably, all things, whatsoever comes to pass; yet so as thereby is God neither the author of sin nor hath fellowship with any therein; nor is violence offered to the will of the creature, nor yet is the liberty or contingency of second causes taken away, but rather established; in which appears his wisdom in disposing all things, and power and faithfulness in accomplishing his decree.**
+
+**Although God knows whatsoever may or can come to pass, upon all supposed conditions, yet had he not decreed anything, because he foresaw it as future, or as that which would come to pass upon such conditions.**
+
 ## The Intro
 
-When God decides something anything at all--especially when it is pertains to us:
+When God decides to do something anything at all--especially when it is pertains to us:
 
 - maxed out wisdom
 - maxed out love
 
-How God decides, how God ordains, how God decrees is unlike us
+Write this down. When I say something that makes you take pause, go back to this point and remember. Whatever God says or do or does not, it is always out of most perfect wisdom and love.
 
-- First cause
-- Creates creatures, men and angels
-- God is not a creature, he is Creator and he creates creatures
-- God is the first cause
-- God is the first cause of all things
-- God's creation--men and angels--are secondary causes
-- God's creation--men and angels--sinned against God
-- Just because God's creatures sin against God and others, does not mean God is the author of sin
-- Satan and Mankind are the originators and the authors of their own sin against God and mankind
-- **YET BECAUSE GOD IS SOVEREIGN** God has decreed and ordain all things
-- If someone has sinned against us, God has allowed that to happened
-- And why would God do that? if he was so powerful and could stop the evil against me, why didn't he stop it? Why didn't he allow it to happen?
+In other words, how God decides, how God ordains, how God decrees, how God acts, how God causes is unlike us. We always think our way is better--yet, the way it is now is what God has decreed and has ordained and it is the best way.
+
+That sounds all fine and good if you never suffered or you have decided never to think about your suffering. That you have never grieved loss or hurt or pain.
+
+But let us get right to the heart:
+
+- God is first cause
+  - Genesis 1:1 (CSB) In the beginning God created the heavens and the earth.
+  - God is the first cause of all things--not only the material (earth) but the immaterial (heavens).
+  - God is the first cause of all things--not only mankind but the angels as well.
+  - God is not a creature, he is Creator and he creates creatures
+  - Therefore, God is the first cause of all things
+  - What mankind and angels do are secondary causes
+  - God's creation--men and angels--sinned against God
+  - Just because God's creatures sin against God and others, does not mean God is the author of sin
+  - And just because God allowed the sin of man and angels to happen against himself and others, does not mean God is the author of sin
+  - He cannot be--God did not commit the sin
+  - Satan and Mankind are the originators and the authors of their own sin against God and mankind
+  - **YET BECAUSE GOD IS SOVEREIGN** God has decreed and ordain all things
+  - Is God all powerful and could have stopped the sin? Yes.
+  - But that is not the question that any of us are asking...
+  - The real question is: "Why would God allow that evil to happen to me?"
+  - And why would God do that? if he was so powerful and could stop the evil against me, why didn't he stop it? Why didn't he allow it to happen?
 
 ## The Decree of God
 
+>Romans 3:21–24 (CSB) But now, apart from the law, the righteousness of God has been revealed, attested by the Law and the Prophets. The righteousness of God is through faith in Jesus Christ to all who believe, since there is no distinction. For all have sinned and fall short of the glory of God; they are justified freely by his grace through the redemption that is in Christ Jesus.
+
+When we want to navel-gaze, sit in our own pity, and wonder why God allowed this wickedness happen to us, we cannot forget that we too have sinned greatly against the Holy God. Within this creation--this earth and this mankind, you and me, we are completely broken by sin. We were born with sin and we continuously sin against God and others.
+
+So in of all that, it would only stand to reason that we have sinned against others and others would have sinned against us. And all of us have sinned against God.
+
+Could have God stopped this evil happened against me? Yes.
+
+But also ask yourself this question: could God have stopped me from sinning against others and himself? Yes.
+
+Could God have stopped you from sinning against Him? Yes.
+
+But he did not. Did he? He did not stop you. He did not stop me. He did not stop my dad from hurting me. He did not stop my mom from abandoning me when I was 5 years.
+
 >Romans 3:25–26 (CSB) God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.
 
-All the evils and the sins that his elect has done since Adam and will continued to until the Last Adam comes again--that is, all the sins we have committed **and the sins that have been committed against us**--have been placed upon the crucified Son of Man who bleed for us and died for us because he loved us and gave himself up for us.
+God passed over sins previously committed. Why? Why would he do that?
 
-God passed over sins previously committed. Why? Because he was going to put all of those sins on his Son--the Messiah and the Savior of the world.
+God did not stop evil from happening. That is what you and I would have done. And if we were God, we would have stopped people from hurting us and hurting our loved ones. But God ways are not our ways.
 
-We know this from the Job of the Bible, and every other person in the Bible and in our lives that sin and evil has been done against us and God allowed it to happened.
+What God chose to do--out of most perfect love and most perfect wisdom--was not stop sin from happening but rather completely, fully, truly, perfectly, lovingly, wisely, and completely resolve the problem of sin.
 
-God did not stop evil from happening. God is fully perfect wisdom and fully perfect love. From this fully perfect stance, he did not stop evil from happening to any of us. That is what we would have done. What God, the Almighty Triune God did was perfectly, lovingly, precisely, fully, truly resolves the problem of evil--
+God has taken all of the sin of his people and placed it on his only begotten Son. We know that to be true.
 
-He sent his only begotten Son.
+But even so, God has taken all of the sins that were committed to his people and placed them on his only begotten Son.
 
-## What God Decrees: the Son of God Is Sent For Us
+>Luke 23:33-34 (CSB) When they arrived at the place called The Skull, they crucified him there, along with the criminals, one on the right and one on the left. Then Jesus said, **“Father, forgive them, because they do not know what they are doing.”** And they divided his clothes and cast lots.
+
+God is going to resolved the problem of evil. And to say it correctly, because God is God, God is perfect, and God is the first cause of all things, God has already resolved the problem of evil:
+
+God sent his only begotten Son--Jesus Christ our Lord.
+
+This is the decree of God: Jesus Christ His Son!
+]
+Here are 
+
+## What God Decrees: God Already Knew He was Going to Send His Son For Us
+
+>Ephesians 1:3–10 (CSB) Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One. In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace that he richly poured out on us with all wisdom and understanding. He made known to us the mystery of his will, according to his good pleasure that he purposed in Christ as a plan for the right time—to bring everything together in Christ, both things in heaven and things on earth in him.
 
 >Isaiah 46:10 (CSB) I declare the end from the beginning, and from long ago what is not yet done, saying: my plan will take place, and I will do all my will.
 
@@ -67,21 +110,27 @@ He sent his only begotten Son.
 
 >1 John 4:10 (CSB) Love consists in this: not that we loved God, but that he loved us and sent his Son to be the atoning sacrifice for our sins.
 
->Galatians 2:20 (CSB) I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
+Before we could have sinned. Before we could have strayed from him. Before we could deny God. Before we could worship not him. Put it this way... before we could died and perished in our sins, God had already chose us in his Son to be his people forever.
 
->Genesis 3:15 (CSB) I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
+He predestined us to be adopted as sons through Jesus Christ for himself. He did this according to the good pleasure of his will. He did this to the praise of his glorious grace that he lavished on us in the Beloved One.
 
->1 John 3:8 (CSB) The one who commits sin is of the devil, for the devil has sinned from the beginning. The Son of God was revealed for this purpose: to destroy the devil’s works.
+When we were born in sin and continued to sin, we were destined to die in our sins and be in the under the eternal wrath of Christ for our sins.
+
+But in his great love for us, while we were all sinners, God predestined his Son to die for us who were the ungodly and the wicked!
 
 ## What God Decrees: the Son of God Conquers Evil
 
 ### The Death of Christ: Evil has been conquered
+
+>Galatians 2:20 (CSB) I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
 
 >Romans 8:31-37 (CSB) What, then, are we to say about these things? If God is for us, who is against us? He did not even spare his own Son but gave him up for us all. How will he not also with him grant us everything? Who can bring an accusation against God’s elect? God is the one who justifies. Who is the one who condemns? Christ Jesus is the one who died, but even more, has been raised; he also is at the right hand of God and intercedes for us. Who can separate us from the love of Christ? Can affliction or distress or persecution or famine or nakedness or danger or sword? As it is written:  
 >Because of you  
 >we are being put to death all day long;  
 >we are counted as sheep to be slaughtered.  
 >No, in all these things we are more than conquerors through him who loved us.
+
+>1 John 3:8 (CSB) The one who commits sin is of the devil, for the devil has sinned from the beginning. The Son of God was revealed for this purpose: to destroy the devil’s works.
 
 >Revelation 20:11 - 21:11 (CSB) Then I saw a great white throne and one seated on it. Earth and heaven fled from his presence, and no place was found for them. I also saw the dead, the great and the small, standing before the throne, and books were opened. Another book was opened, which is the book of life, and the dead were judged according to their works by what was written in the books. Then the sea gave up the dead that were in it, and death and Hades gave up the dead that were in them; each one was judged according to their works. Death and Hades were thrown into the lake of fire. This is the second death, the lake of fire. And anyone whose name was not found written in the book of life was thrown into the lake of fire.
 
