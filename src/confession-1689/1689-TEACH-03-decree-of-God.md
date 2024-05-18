@@ -1,8 +1,8 @@
 <img class="intro-right" src="art-1689.png">
 
-`20240517.2034`
-
 # Teaching: 1689 Chapter 3 On the Decree of God
+
+`20240518.0729`
 
 >*Teaching notes for Reforming Truth Church's Conference "1689 Chapter 3 On God's Decree", May 18, 2024. These notes will be covering:*
 >
@@ -23,12 +23,6 @@
 
 ## Prayer
 
-## The Confession
-
-**God hath decreed in himself, from all eternity, by the most wise and holy counsel of his own will, freely and unchangeably, all things, whatsoever comes to pass; yet so as thereby is God neither the author of sin nor hath fellowship with any therein; nor is violence offered to the will of the creature, nor yet is the liberty or contingency of second causes taken away, but rather established; in which appears his wisdom in disposing all things, and power and faithfulness in accomplishing his decree.**
-
-**Although God knows whatsoever may or can come to pass, upon all supposed conditions, yet had he not decreed anything, because he foresaw it as future, or as that which would come to pass upon such conditions.**
-
 ## The Intro
 
 When God decides to do something anything at all--especially when it is pertains to us:
@@ -36,7 +30,7 @@ When God decides to do something anything at all--especially when it is pertains
 - maxed out wisdom
 - maxed out love
 
-Write this down. When I say something that makes you take pause, go back to this point and remember. Whatever God says or do or does not, it is always out of most perfect wisdom and love.
+Write this down. When I say something that makes you take pause, go back to this point and remember. Whatever God says or do or does not, it is always out of most perfect wisdom and most perfect love.
 
 In other words, how God decides, how God ordains, how God decrees, how God acts, how God causes is unlike us. We always think our way is better--yet, the way it is now is what God has decreed and has ordained and it is the best way.
 
@@ -69,6 +63,10 @@ But us dig a little deeper--if we want to be honest with ourselves: Does God all
 Or one step further: did God allow evil and sin to happen to me?
 
 Let us talk about that.
+
+Going back to Confession, Paragraph 1:
+
+**God hath decreed in himself, from all eternity, by the most wise and holy counsel of his own will, freely and unchangeably, all things, whatsoever comes to pass; yet so as thereby is God neither the author of sin nor hath fellowship with any therein; nor is violence offered to the will of the creature, nor yet is the liberty or contingency of second causes taken away, but rather established; in which appears his wisdom in disposing all things, and power and faithfulness in accomplishing his decree.**
 
 From:
 
@@ -179,6 +177,20 @@ But in his great love for us, while we were all sinners, God predestined his Son
 
 >1 John 4:10 (CSB) Love consists in this: not that we loved God, but that he loved us and sent his Son to be the atoning sacrifice for our sins.
 
+Back to the Confession:
+
+**Although God knows whatsoever may or can come to pass, upon all supposed conditions, yet had he not decreed anything, because he foresaw it as future, or as that which would come to pass upon such conditions.**
+
+>Romans 5:8 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us.
+
+It used to be taught, "God saw that you chose him so he chose you." And that is not true.
+
+I used to teach, "God saw me in my wickedness and he chose me." As though he needed my sinfulness and wickedness to elect me and predestined me to himself.
+
+Perhaps we will never understand this about God: that God is not a reactionary god, like an ambulance. But, as we have said time and time again, whatever God does for us and towards us is always out of most perfect wisdom and most perfect love.
+
+You and I will always think we can come up with a better way. But will never be the best way. Our way is a temporary relief from pain. God perfect plan is to bring you all the way home to be with him so you will feel the pain of sin no more.
+
 ## What God Decrees For Us: Not Condemnation But Grace Upon Grace
 
 >Romans 2:4 (CSB) Or do you despise the riches of his kindness, restraint, and patience, not recognizing that God’s kindness is intended to lead you to repentance?
@@ -189,7 +201,7 @@ But in his great love for us, while we were all sinners, God predestined his Son
 
 ## What God Decrees For Us: Not Endless Just Wrath But Never Ending Mercies
 
-Re-reading Romans 9
+The challlenge: Reading Romans 9
 
 - Is it about Predestination. A little bit.
 - But read it once more and tell me what you think Romans 9 is about
