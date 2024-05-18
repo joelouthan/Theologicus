@@ -1,6 +1,6 @@
 <img class="intro-right" src="art-1689.png">
 
-`20240517.0937`
+`20240517.2034`
 
 # Teaching: 1689 Chapter 3 On the Decree of God
 
@@ -42,17 +42,46 @@ In other words, how God decides, how God ordains, how God decrees, how God acts,
 
 That sounds all fine and good if you never suffered or you have decided never to think about your suffering. That you have never grieved loss or hurt or pain.
 
-But let us get right to the heart:
+But let us get right to the heart--by walking us through what it means to be the First Cause.
+
+God is the first cause simply means just that: he is the first cause of everything.
+
+>Genesis 1:1 (CSB) In the beginning God created the heavens and the earth.
+
+>Hebrews 11:3 (CSB) By faith we understand that the universe was created by the word of God, so that what is seen was made from things that are not visible.
+
+>Revelation 1:8 (CSB) “I am the Alpha and the Omega,” says the Lord God, “the one who is, who was, and who is to come, the Almighty.”
+
+>Revelation 21:6 (CSB) Then he said to me, “It is done! I am the Alpha and the Omega, the beginning and the end. I will freely give to the thirsty from the spring of the water of life.
+
+>Revelation 22:13 (CSB) I am the Alpha and the Omega, the first and the last, the beginning and the end.
+
+God needs no inspiration--past or future--to create. God needs no substances since he can create whatever he wants out of nothing. God needs nothing outside of himself.
+
+We understand from him as first cause is that he is creator and sovereign. Whatever he creates belongs to him absolutely and he has absolute sovereignty and control and power over his creation.
+
+Now, we know this. There is no debating that when it comes to things not mankind and not angels. It is easy to talk about the sovereignty of God when the movement of the mountains, the rotation of the planets, the formation of black holes, the feeding of the animals on the earth. That is easy to wrap our heads around that.
+
+But I suspect none of us here in this room want to hear about that and talk about that. What we want to discuss and debate until the return of Christ is one thing: is God sovereign over me and my life? Am I the boss of me or is God the boss of me? What if I don't believe in him? What if I need a little control and he gets the rest of my life that I don't really care about.
+
+But us dig a little deeper--if we want to be honest with ourselves: Does God allow evil and sin to happen?
+
+Or one step further: did God allow evil and sin to happen to me?
+
+Let us talk about that.
+
+From:
 
 - God is first cause
-  - Genesis 1:1 (CSB) In the beginning God created the heavens and the earth.
-  - God is the first cause of all things--not only the material (earth) but the immaterial (heavens).
-  - God is the first cause of all things--not only mankind but the angels as well.
-  - God is not a creature, he is Creator and he creates creatures
-  - Therefore, God is the first cause of all things
-  - What mankind and angels do are secondary causes
-  - God's creation--men and angels--sinned against God
-  - Just because God's creatures sin against God and others, does not mean God is the author of sin
+- God creates both angels and mankind
+- What angels do and what humans do are not primary causes of God but secondary causes of God--God creates creature and creature does something
+- The twist: God creates angels and angels sin against God
+- The twist again: God creates mankind and mankind sin against God
+- Just because God's creatures sin against God and others, does not mean God is the author of sin
+  - If your kid does something bad, does that mean you, the parent has done something bad? Of course not
+- But now we must talk about control
+  - We know God is sovereign
+  - But does God have absolute control?
   - And just because God allowed the sin of man and angels to happen against himself and others, does not mean God is the author of sin
   - He cannot be--God did not commit the sin
   - Satan and Mankind are the originators and the authors of their own sin against God and mankind
@@ -146,12 +175,54 @@ But in his great love for us, while we were all sinners, God predestined his Son
 
 ## What God Decrees For Us: Not Vengeance But Love
 
-TODO: Verse
+>John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+
+>1 John 4:10 (CSB) Love consists in this: not that we loved God, but that he loved us and sent his Son to be the atoning sacrifice for our sins.
 
 ## What God Decrees For Us: Not Condemnation But Grace Upon Grace
 
-TODO: Verse
+>Romans 2:4 (CSB) Or do you despise the riches of his kindness, restraint, and patience, not recognizing that God’s kindness is intended to lead you to repentance?
+
+>John 1:16-18 (CSB) Indeed, we have all received grace upon grace from his fullness, for the law was given through Moses; grace and truth came through Jesus Christ. No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side —he has revealed him.
+
+>Romans 5:20–6:5 (CSB) The law came along to multiply the trespass. But where sin multiplied, grace multiplied even more so that, just as sin reigned in death, so also grace will reign through righteousness, resulting in eternal life through Jesus Christ our Lord. What should we say then? Should we continue in sin so that grace may multiply? Absolutely not! How can we who died to sin still live in it? Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life. For if we have been united with him in the likeness of his death, we will certainly also be in the likeness of his resurrection.
 
 ## What God Decrees For Us: Not Endless Just Wrath But Never Ending Mercies
 
-TODO: Verse
+Re-reading Romans 9
+
+- Is it about Predestination. A little bit.
+- But read it once more and tell me what you think Romans 9 is about
+- Use *sola Scriptura*: keep in mind the writings of Paul to the church, all of the Epistles, the New Testament and the Old Testament:
+
+### What God Decrees For Us: Nothing In What We Have Done But God Has Done
+
+>Romans 9:11-16 (CSB) For though her sons had not been born yet or done anything good or bad, so that God’s purpose according to election might stand — not from works but from the one who calls — she was told, The older will serve the younger. As it is written: I have loved Jacob, but I have hated Esau.
+>
+>What should we say then? Is there injustice with God? Absolutely not! For he tells Moses, I will show mercy to whom I will show mercy, and I will have compassion on whom I will have compassion. So then, it does not depend on human will or effort but on God who shows mercy.
+
+### What God Decrees For Us: God Gives
+
+>Romans 9:17-18 (CSB) For the Scripture tells Pharaoh, I raised you up for this reason so that I may display my power in you and that my name may be proclaimed in the whole earth. So then, he has mercy on whom he wants to have mercy and he hardens whom he wants to harden.
+
+- to some of us, like the wicked, like Pharaoh, what we want--heaven here on earth
+- to his people, his elect, his beloved, God gives us what we need--his Son Jesus Christ
+
+"For the wicked, this life on earth is as good as it is going to get. For the Christian, this is the absolute worst that we will ever experience."
+
+### What God Decrees For Us: To Be His Objects of Mercy
+
+>Romans 9:22-26 (CSB) And what if God, wanting to display his wrath and to make his >power known, endured with much patience objects of wrath prepared for destruction? >And what if he did this to make known the riches of his glory on objects of mercy >that he prepared beforehand for glory — on us, the ones he also called, not only >from the Jews but also from the Gentiles? As it also says in Hosea,  
+>I will call Not My People, My People,  
+>and she who is Unloved, Beloved.  
+>And it will be in the place where they were told,  
+>you are not my people,  
+>there they will be called sons of the living God.
+
+God is absolutely sovereign. Like Romans 9 mentions, he is the potter who not only makes the clay, owns the clay, but God gets to do to the clay what he pleases. God is sovereign Creator--all that he created belongs to him. Since he created everything, everything belongs to him.
+
+We are no different the other lumps of clay. Our best efforts in this life is no more remarkable than lumps of clay. Because of original parents sinned, we have fallen in wickedness and ungodliness just like them. Like lumps of clay, we cannot do anything or go anywhere or be with anyone like God unless God, the Sovereign Creator, does something with us.
+
+What does God do with us? Gives us steadfast love, grace upon grace, and never ending mercies--and he does so only and in and through his Son, Jesus Christ.
+
+Let us pray.
