@@ -12,6 +12,8 @@
 
 **The work of pastors being constantly to attend the service of Christ, in his churches, in the ministry of the word and prayer, with watching for their souls, as they that must give an account to Him; it is incumbent on the churches to whom they minister, not only to give them all due respect, but also to communicate to them of all their good things according to their ability, so as they may have a comfortable supply, without being themselves entangled in secular affairs; and may also be capable of exercising hospitality towards others; and this is required by the law of nature, and by the express order of our Lord Jesus, who hath ordained that they that preach the Gospel should live of the Gospel.**
 
+TODO: pastors must give an account for the caring of our souls--this is the calling of the pastor
+
 ## The Confession
 
 ### The work of pastors being constantly to attend the service of Christ, in his churches, in the ministry of the word and prayer, with watching for their souls, as they that must give an account to Him

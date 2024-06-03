@@ -12,6 +12,8 @@
 
 **To each of these churches thus gathered, according to his mind declared in his word, he hath given all that power and authority, which is in any way needful for their carrying on that order in worship and discipline, which he hath instituted for them to observe; with commands and rules for the due and right exerting, and executing of that power.**
 
+TODO: under shepherds have no authority other than the authority of God through them
+
 ## The Confession
 
 >Matthew 18:17–18 (CSB) If he doesn’t pay attention to them, tell the church. If he doesn’t pay attention even to the church, let him be like a Gentile and a tax collector to you. Truly I tell you, whatever you bind on earth will have been bound in heaven, and whatever you loose on earth will have been loosed in heaven.

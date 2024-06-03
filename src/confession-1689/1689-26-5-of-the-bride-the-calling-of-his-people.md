@@ -12,6 +12,8 @@
 
 **In the execution of this power wherewith he is so intrusted, the Lord Jesus calleth out of the world unto himself, through the ministry of his word, by his Spirit, those that are given unto him by his Father, that they may walk before him in all the ways of obedience, which he prescribeth to them in his word. Those thus called, he commandeth to walk together in particular societies, or churches, for their mutual edification, and the due performance of that public worship, which he requireth of them in the world.**
 
+TODO: how is Christ going to shepherd and gather his flock from the mercies of the Father by the power of the Spirit? Ordinary means of grace SON WHAT
+
 ## The Confession
 
 ### In the execution of this power wherewith he is so intrusted, the Lord Jesus calls out of the world unto himself, through the ministry of his word, by his Spirit, those that are given unto him by his Father

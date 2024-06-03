@@ -12,6 +12,8 @@
 
 **Although it be incumbent on the bishops or pastors of the churches, to be instant in preaching the word, by way of office, yet the work of preaching the word is not so peculiarly confined to them but that others also gifted and fitted by the Holy Spirit for it, and approved and called by the church, may and ought to perform it.**
 
+TODO: 2 Timothy 3:16-4:5 ALL DAY SON WHAT
+
 ## The Confession
 
 >Acts 11:19–21 (CSB) Now those who had been scattered as a result of the persecution that started because of Stephen made their way as far as Phoenicia, Cyprus, and Antioch, speaking the word to no one except Jews. But there were some of them, men from Cyprus and Cyrene, who came to Antioch and began speaking to the Greeks also, proclaiming the good news about the Lord Jesus. The Lord’s hand was with them, and a large number who believed turned to the Lord.

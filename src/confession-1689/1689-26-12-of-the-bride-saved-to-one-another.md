@@ -12,6 +12,19 @@
 
 **As all believers are bound to join themselves to particular churches, when and where they have opportunity so to do; so all that are admitted unto the privileges of a church, are also under the censures and government thereof, according to the rule of Christ.**
 
+TODO: the adopted children of God being pulled together to the local church and thus receiving 100% of all his benefits 
+
+>Psalms 103:1-5 (CSB) My soul, bless the LORD,  
+>and all that is within me, bless his holy name.  
+>My soul, bless the LORD,  
+>and do not forget all his benefits.  
+>He forgives all your iniquity;  
+>he heals all your diseases.  
+>He redeems your life from the Pit;  
+>he crowns you with faithful love and compassion.  
+>He satisfies you with good things;  
+>your youth is renewed like the eagle.
+
 ## The Confession
 
 >1 Thessalonians 5:14 (CSB) And we exhort you, brothers and sisters: warn those who are idle, comfort the discouraged, help the weak, be patient with everyone.

@@ -12,6 +12,8 @@
 
 **The way appointed by Christ for the calling of any person, fitted and gifted by the Holy Spirit, unto the office of bishop or elder in a church, is, that he be chosen thereunto by the common suffrage of the church itself; and solemnly set apart by fasting and prayer, with imposition of hands of the eldership of the church, if there be any before constituted therein; and of a deacon that he be chosen by the like suffrage, and set apart by prayer, and the like imposition of hands.**
 
+TODO: the appointing of called
+
 ## The Confession
 
 ### The way appointed by Christ for the calling of any person, fitted and gifted by the Holy Spirit, unto the office of bishop or elder in a church, is, that he be chosen thereunto by the common suffrage of the church itself

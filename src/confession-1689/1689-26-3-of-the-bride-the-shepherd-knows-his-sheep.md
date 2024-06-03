@@ -12,6 +12,8 @@
 
 **The purest churches under heaven are subject to mixture and error; and some have so degenerated as to become no churches of Christ, but synagogues of Satan; nevertheless Christ always hath had, and ever shall have a kingdom in this world, to the end thereof, of such as believe in him, and make profession of his name.**
 
+TODO: none of us have it right--the fullest extend of Romans 3:23 + Romans 7
+
 ## The Confession
 
 ### The purest churches under heaven are subject to mixture and error
@@ -27,6 +29,8 @@
 >Revelation 18:2 (CSB) He called out in a mighty voice: It has fallen, Babylon the Great has fallen! She has become a home for demons, a haunt for every unclean spirit, a haunt for every unclean bird, and a haunt for every unclean and despicable beast.
 
 >2 Thessalonians 2:11–12 (CSB) For this reason God sends them a strong delusion so that they will believe the lie, so that all will be condemned—those who did not believe the truth but delighted in unrighteousness.
+
+TODO: yelling into the void as "influencers" but who is your audience! With all of our yelling into the internet, are we changing the mind of the sheep who attend these synagogues of Satan? Yet, Christ is the good shepherd John 10 & Jeremiah 23 -- we must trust in him that he will say what he will do and nothing less because he alone is God
 
 ### nevertheless Christ always has had, and ever shall have a kingdom in this world, to the end thereof, of such as believe in him, and make profession of his name
 

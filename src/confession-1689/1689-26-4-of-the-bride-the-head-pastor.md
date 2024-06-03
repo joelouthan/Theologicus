@@ -12,6 +12,8 @@
 
 **The Lord Jesus Christ is the Head of the church, in whom, by the appointment of the Father, all power for the calling, institution, order or government of the church, is invested in a supreme and sovereign manner; neither can the Pope of Rome in any sense be head thereof, but is that antichrist, that man of sin, and son of perdition, that exalteth himself in the church against Christ, and all that is called God; whom the Lord shall destroy with the brightness of his coming.**
 
+TODO: Christ is the head pastor THERE IS NO OTHER MEDIATOR BETWEEN US AND THE FATHER BECAUSE THERE IS NO OTHER NAME BY WHICH WE ARE SAVED
+
 ## The Confession
 
 ### The Lord Jesus Christ is the Head of the church, in whom, by the appointment of the Father, all power for the calling, institution, order or government of the church, is invested in a supreme and sovereign manner

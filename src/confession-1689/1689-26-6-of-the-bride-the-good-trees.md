@@ -12,6 +12,10 @@
 
 **The members of these churches are saints by calling, visibly manifesting and evidencing (in and by their profession and walking) their obedience unto that call of Christ; and do willingly consent to walk together, according to the appointment of Christ; giving up themselves to the Lord, and one to another, by the will of God, in professed subjection to the ordinances of the Gospel.**
 
+TODO: we do not know if one is saved by one's morality--but do you know who is not saved, not elect, not part of the visible church? those who sin unrepentantly; to the defensive, the blameshifter, the liar those whom stay as sons and daughters of Adam
+
+TODO: the appreciation of Evangelicalism -- where people are now is not where they will be
+
 ## The Confession
 
 ### The members of these churches are saints by calling, visibly manifesting and evidencing (in and by their profession and walking) their obedience unto that call of Christ

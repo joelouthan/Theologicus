@@ -12,6 +12,8 @@
 
 **The catholic or universal church, which (with respect to the internal work of the Spirit and truth of grace) may be called invisible, consists of the whole number of the elect, that have been, are, or shall be gathered into one, under Christ, the head thereof; and is the spouse, the body, the fulness of him that filleth all in all.**
 
+TODO: different people in different churches saved by the blood of the lamb and byu the word of their testimony (Rev 12:10-11); elected and saved not by anything we have done but what the Christ has done for us; this paragraph doubles down on the gospel of Christ (John 3:14-15)
+
 ## The Confession
 
 >Hebrews 12:23 (CSB) to the assembly of the firstborn whose names have been written in heaven, to a Judge, who is God of all, to the spirits of righteous people made perfect,
