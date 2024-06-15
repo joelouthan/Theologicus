@@ -216,6 +216,7 @@
     - [March 2024 - Revelation & Inspiration of the Holy Scriptures](confession-1689/1689-TEACH-01-revelation-inspiration-of-holy-scriptures.md)
     - [April 2024 - The External Relations of God](confession-1689/1689-TEACH-02-external-relations-of-God.md)
     - [May 2024 - The Decree of God](confession-1689/1689-TEACH-03-decree-of-God.md)
+    - [June 2024 - The Creation of the World](confession-1689/1689-TEACH-04-on-the-imago-Dei.md)
 - [Belgic Confession]()
 - [Thirty-Nine Articles]()
 - [First London Baptist Confession of Faith]()

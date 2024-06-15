@@ -6,23 +6,23 @@
 
 ## The Text
 
->Romans 1:20 (CSB) For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse.
-
-## The Prayer
+> Romans 1:20 (CSB) For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse.
 
 ## The Chapter
 
 **After God had made all other creatures, he created man, male and female, with reasonable and immortal souls, rendering them fit unto that life to God for which they were created; being made after the image of God, in knowledge, righteousness, and true holiness; having the law of God written in their hearts, and power to fulfil it, and yet under a possibility of transgressing, being left to the liberty of their own will, which was subject to change.**
 
-## The Confession
+## The Prayer
 
-The *imago Dei*. The imagebearers of God. In other words, Mankind. The significance of the creation of Mankind cannot be overstated.
+## The Confession
 
 ### After God had made all other creatures, he created man, male and female
 
 >Genesis 1:27 (CSB) So God created man in his own image; he created him in the image of God; he created them male and female.
 
-First and foremost, we were made after God was done created everything else. Why is that significant? Because we were never intended to be the same as the other creatures. We were set apart on the sixth day after he made everything else.
+Mankind. The significance of the creation of Mankind cannot be overstated.
+
+First and foremost, we were made after God was done created everything else. Why is that significant? Because we were never intented to be the same as the other creatures. We were set apart on the sixth day after he made everything else.
 
 Put it another way: he created everything in this world so that when he created mankind, we would have his place to live in. We would have a dwelling and be immediately cared for by him via creation.
 
