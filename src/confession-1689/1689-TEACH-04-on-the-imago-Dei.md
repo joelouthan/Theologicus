@@ -2,7 +2,17 @@
 
 # Teaching: 1689 Chapter 4 On the Creation of God: The *imago Dei*
 
-`20240615.0810`
+`20240615.0818`
+
+>*Teaching notes for Reforming Truth Church's Conference "1689 Chapter 3 On God's Decree", May 18, 2024. These notes will be covering:*
+>
+>- [3.1 The Imagebearers of God](confession-1689/1689-04-2-the-imagebearers-of-God.md)
+>
+> Livestream & Recording: [Reforming Truth Church](https://www.youtube.com/@reformingtruthchurch/streams)
+
+## Table of Contents
+
+<!-- toc -->
 
 ## The Text
 
