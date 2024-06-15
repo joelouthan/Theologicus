@@ -20,11 +20,11 @@
 
 >Genesis 1:27 (CSB) So God created man in his own image; he created him in the image of God; he created them male and female.
 
-Mankind. Human. These are the only creation of God that carries the title, "imagebearers of God". In other words, we are made to look like him.
+Mankind. These are the only creation of God that carries the title, "imagebearers of God". In other words, we are made to look like him.
 
 And it pleased the Father, Son, and Spirit for the manifestation of the glory of his eternal power, wisdom, and goodness to create mankind in his image and from the start, created us two genders, male and female.
 
-In the year of this writing, 2023, the term gender has been a bit of a controversial topic in the Western world. In our sinful brokenness, we have been so desperate in our strive for autonomy, we have taken upon ourselves to choose what are gender should be. Let me not mince words: to choose your own gender is sin against God. For:
+In the year of this writing, 2024, the term gender has been a bit of a controversial topic in the Western world. In our sinful brokenness, we have been so desperate in our strive for autonomy, we have taken upon ourselves to choose what are gender should be. Let me not mince words: to choose your own gender is sin against God. For:
 
 >Psalms 139:13-14 (CSB)  
 >For it was you who created my inward parts;  
@@ -53,8 +53,6 @@ You and me--we strive to worship created things rather than the Creator. For:
 >Romans 1:25 (CSB) They exchanged the truth of God for a lie, and worshiped and served what has been created instead of the Creator, who is praised forever. Amen.
 
 If you are reading this and think this is a bit personal, because it is. I have more than a few loved ones who have declared themselves transgender. But my friends, this is not the identity you are seeking because it only changes you on the outside. It still doesn't satisfy your heart. It still doesn't fill the void in your soul. It still doesn't give you the peace that you are seeking.
-
-TODO: the imago Dei and Christ is the God that put on flesh and dwelt among us. He is the image of the invisible God.
 
 The identity, the fulfillment, and the rest you are seeking is Christ alone.
 
