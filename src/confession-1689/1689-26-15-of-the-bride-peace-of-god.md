@@ -12,6 +12,8 @@
 
 **In cases of difficulties or differences, either in point of doctrine or administration, wherein either the churches in general are concerned, or any one church, in their peace, union, and edification; or any member or members of any church are injured, in or by any proceedings in censures not agreeable to truth and order: it is according to the mind of Christ, that many churches holding communion together, do, by their messengers, meet to consider, and give their advice in or about that matter in difference, to be reported to all the churches concerned; howbeit these messengers assembled, are not intrusted with any church-power properly so called; or with any jurisdiction over the churches themselves, to exercise any censures either over any churches or persons; or to impose their determination on the churches or officers.**
 
+TODO: Exposition of Ephesians 4:11-16 or what does unity in Christ actually means
+
 ## The Confession
 
 ### In cases of difficulties or differences, either in point of doctrine or administration, wherein either the churches in general are concerned, or any one church, in their peace, union, and edification; or any member or members of any church are injured, in or by any proceedings in censures not agreeable to truth and order: it is according to the mind of Christ, that many churches holding communion together, do, by their messengers, meet to consider, and give their advice in or about that matter in difference, to be reported to all the churches concerned
