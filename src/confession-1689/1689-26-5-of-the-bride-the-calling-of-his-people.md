@@ -8,6 +8,8 @@
 
 ## The Text
 
+>John 10:14-16 (CSB) “I am the good shepherd. I know my own, and my own know me, just as the Father knows me, and I know the Father. I lay down my life for the sheep. But I have other sheep that are not from this sheep pen; I must bring them also, and they will listen to my voice. Then there will be one flock, one shepherd.
+
 ## The Chapter
 
 **In the execution of this power wherewith he is so intrusted, the Lord Jesus calleth out of the world unto himself, through the ministry of his word, by his Spirit, those that are given unto him by his Father, that they may walk before him in all the ways of obedience, which he prescribeth to them in his word. Those thus called, he commandeth to walk together in particular societies, or churches, for their mutual edification, and the due performance of that public worship, which he requireth of them in the world.**

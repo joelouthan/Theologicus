@@ -8,11 +8,11 @@
 
 ## The Text
 
+>Acts 4:12 (CSB) There is salvation in no one else, for there is no other name under heaven given to people by which we must be saved.
+
 ## The Chapter
 
 **The Lord Jesus Christ is the Head of the church, in whom, by the appointment of the Father, all power for the calling, institution, order or government of the church, is invested in a supreme and sovereign manner; neither can the Pope of Rome in any sense be head thereof, but is that antichrist, that man of sin, and son of perdition, that exalteth himself in the church against Christ, and all that is called God; whom the Lord shall destroy with the brightness of his coming.**
-
-TODO: Christ is the head pastor THERE IS NO OTHER MEDIATOR BETWEEN US AND THE FATHER BECAUSE THERE IS NO OTHER NAME BY WHICH WE ARE SAVED
 
 ## The Confession
 
@@ -23,6 +23,8 @@ TODO: Christ is the head pastor THERE IS NO OTHER MEDIATOR BETWEEN US AND THE FA
 >Matthew 28:18–20 (CSB) Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”
 
 >Ephesians 4:11–12 (CSB) And he himself gave some to be apostles, some prophets, some evangelists, some pastors and teachers, to equip the saints for the work of ministry, to build up the body of Christ,
+
+
 
 ### neither can the Pope of Rome in any sense be head thereof, but is that antichrist, that man of sin, and son of perdition, that exalts himself in the church against Christ, and all that is called God; whom the Lord shall destroy with the brightness of his coming
 

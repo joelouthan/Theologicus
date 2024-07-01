@@ -8,6 +8,8 @@
 
 ## The Text
 
+>1 John 1:1-4 (CSB) What was from the beginning, what we have heard, what we have seen with our eyes, what we have observed and have touched with our hands, concerning the word of life — that life was revealed, and we have seen it and we testify and declare to you the eternal life that was with the Father and was revealed to us — what we have seen and heard we also declare to you, so that you may also have fellowship with us; and indeed our fellowship is with the Father and with his Son, Jesus Christ. We are writing these things so that our joy may be complete.
+
 ## The Chapter
 
 **The purest churches under heaven are subject to mixture and error; and some have so degenerated as to become no churches of Christ, but synagogues of Satan; nevertheless Christ always hath had, and ever shall have a kingdom in this world, to the end thereof, of such as believe in him, and make profession of his name.**

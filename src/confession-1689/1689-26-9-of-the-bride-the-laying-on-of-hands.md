@@ -8,6 +8,10 @@
 
 ## The Text
 
+>1 Peter 5:1-5 (CSB) I exhort the elders among you as a fellow elder and witness to the sufferings of Christ, as well as one who shares in the glory about to be revealed: Shepherd God’s flock among you, not overseeing out of compulsion but willingly, as God would have you; not out of greed for money but eagerly; not lording it over those entrusted to you, but being examples to the flock. And when the chief Shepherd appears, you will receive the unfading crown of glory. In the same way, you who are younger, be subject to the elders. All of you clothe yourselves with humility toward one another, because  
+>God resists the proud  
+>but gives grace to the humble.
+
 ## The Chapter
 
 **The way appointed by Christ for the calling of any person, fitted and gifted by the Holy Spirit, unto the office of bishop or elder in a church, is, that he be chosen thereunto by the common suffrage of the church itself; and solemnly set apart by fasting and prayer, with imposition of hands of the eldership of the church, if there be any before constituted therein; and of a deacon that he be chosen by the like suffrage, and set apart by prayer, and the like imposition of hands.**

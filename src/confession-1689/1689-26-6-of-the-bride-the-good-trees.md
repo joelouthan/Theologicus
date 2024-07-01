@@ -8,6 +8,8 @@
 
 ## The Text
 
+>Luke 6:43-45 (CSB) “A good tree doesn’t produce bad fruit; on the other hand, a bad tree doesn’t produce good fruit. For each tree is known by its own fruit. Figs aren’t gathered from thornbushes, or grapes picked from a bramble bush. A good person produces good out of the good stored up in his heart. An evil person produces evil out of the evil stored up in his heart, for his mouth speaks from the overflow of the heart.
+
 ## The Chapter
 
 **The members of these churches are saints by calling, visibly manifesting and evidencing (in and by their profession and walking) their obedience unto that call of Christ; and do willingly consent to walk together, according to the appointment of Christ; giving up themselves to the Lord, and one to another, by the will of God, in professed subjection to the ordinances of the Gospel.**

@@ -8,6 +8,8 @@
 
 ## The Text
 
+>1 Timothy 2:5-6 (CSB) For there is one God and one mediator between God and mankind, the man Christ Jesus, who gave himself as a ransom for all, a testimony at the proper time.
+
 ## The Chapter
 
 **All persons throughout the world, professing the faith of the gospel, and obedience unto God by Christ according unto it, not destroying their own profession by any errors everting the foundation, or unholiness of conversation, are and may be called visible saints; and of such ought all particular congregations to be constituted.**

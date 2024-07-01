@@ -8,6 +8,8 @@
 
 ## The Text
 
+>Matthew 28:16-20 (CSB) The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age."
+
 ## The Chapter
 
 **To each of these churches thus gathered, according to his mind declared in his word, he hath given all that power and authority, which is in any way needful for their carrying on that order in worship and discipline, which he hath instituted for them to observe; with commands and rules for the due and right exerting, and executing of that power.**

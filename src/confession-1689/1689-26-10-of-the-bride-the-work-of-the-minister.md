@@ -8,6 +8,8 @@
 
 ## The Text
 
+>1 Corinthians 9:7-12 (CSB) Who serves as a soldier at his own expense? Who plants a vineyard and does not eat its fruit? Or who shepherds a flock and does not drink the milk from the flock? Am I saying this from a human perspective? Doesn’t the law also say the same thing? For it is written in the law of Moses, Do not muzzle an ox while it treads out grain. Is God really concerned about oxen? Isn’t he really saying it for our sake? Yes, this is written for our sake, because he who plows ought to plow in hope, and he who threshes should thresh in hope of sharing the crop. If we have sown spiritual things for you, is it too much if we reap material benefits from you? If others have this right to receive benefits from you, don’t we even more? Nevertheless, we have not made use of this right; instead, we endure everything so that we will not hinder the gospel of Christ.
+
 ## The Chapter
 
 **The work of pastors being constantly to attend the service of Christ, in his churches, in the ministry of the word and prayer, with watching for their souls, as they that must give an account to Him; it is incumbent on the churches to whom they minister, not only to give them all due respect, but also to communicate to them of all their good things according to their ability, so as they may have a comfortable supply, without being themselves entangled in secular affairs; and may also be capable of exercising hospitality towards others; and this is required by the law of nature, and by the express order of our Lord Jesus, who hath ordained that they that preach the Gospel should live of the Gospel.**

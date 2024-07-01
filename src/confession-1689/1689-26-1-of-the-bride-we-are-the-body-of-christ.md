@@ -8,6 +8,14 @@
 
 ## The Text
 
+>Ephesians 1:3-14 (CSB) Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
+>
+>In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace that he richly poured out on us with all wisdom and understanding. He made known to us the mystery of his will, according to his good pleasure that he purposed in Christ as a plan for the right time — to bring everything together in Christ, both things in heaven and things on earth in him.
+>
+>In him we have also received an inheritance, because we were predestined according to the plan of the one who works out everything in agreement with the purpose of his will, so that we who had already put our hope in Christ might bring praise to his glory.
+>
+>In him you also were sealed with the promised Holy Spirit when you heard the word of truth, the gospel of your salvation, and when you believed. The Holy Spirit is the down payment of our inheritance, until the redemption of the possession, to the praise of his glory.
+
 ## The Chapter
 
 **The catholic or universal church, which (with respect to the internal work of the Spirit and truth of grace) may be called invisible, consists of the whole number of the elect, that have been, are, or shall be gathered into one, under Christ, the head thereof; and is the spouse, the body, the fulness of him that filleth all in all.**

@@ -8,6 +8,8 @@
 
 ## The Text
 
+>1 Corinthians 12:12-14 (CSB) For just as the body is one and has many parts, and all the parts of that body, though many, are one body — so also is Christ. For we were all baptized by one Spirit into one body — whether Jews or Greeks, whether slaves or free — and we were all given one Spirit to drink. Indeed, the body is not one part but many.
+
 ## The Chapter
 
 **No church members, upon any offence taken by them, having performed their duty required of them towards the person they are offended at, ought to disturb any church-order, or absent themselves from the assemblies of the church, or administration of any ordinances, upon the account of such offence at any of their fellow members, but to wait upon Christ, in the further proceeding of the church.**

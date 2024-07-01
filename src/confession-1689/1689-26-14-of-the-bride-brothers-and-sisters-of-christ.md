@@ -8,6 +8,8 @@
 
 ## The Text
 
+>1 Thessalonians 2:8 (NIV 1984) We loved you so much that we were delighted to share with you not only the gospel of God but our lives as well, because you had become so dear to us.
+
 ## The Chapter
 
 **As each church, and all the members of it, are bound to pray continually for the good and prosperity of all the churches of Christ, in all places, and upon all occasions to further every one within the bounds of their places and callings, in the exercise of their gifts and graces, so the churches, when planted by the providence of God, so as they may enjoy opportunity and advantage for it, ought to hold communion among themselves, for their peace, increase of love, and mutual edification.**
