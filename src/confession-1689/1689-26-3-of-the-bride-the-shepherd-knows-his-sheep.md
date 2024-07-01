@@ -12,8 +12,6 @@
 
 **The purest churches under heaven are subject to mixture and error; and some have so degenerated as to become no churches of Christ, but synagogues of Satan; nevertheless Christ always hath had, and ever shall have a kingdom in this world, to the end thereof, of such as believe in him, and make profession of his name.**
 
-TODO: none of us have it right--the fullest extend of Romans 3:23 + Romans 7
-
 ## The Confession
 
 ### The purest churches under heaven are subject to mixture and error
@@ -24,13 +22,61 @@ TODO: none of us have it right--the fullest extend of Romans 3:23 + Romans 7
 
 >Revelation 3 (CSB) “Write to the angel of the church in Sardis: Thus says the one who has the seven spirits of God and the seven stars: I know your works; you have a reputation for being alive, but you are dead. Be alert and strengthen what remains, which is about to die, for I have not found your works complete before my God. Remember, then, what you have received and heard; keep it, and repent. If you are not alert, I will come like a thief, and you have no idea at what hour I will come upon you. But you have a few people in Sardis who have not defiled their clothes, and they will walk with me in white, because they are worthy. “In the same way, the one who conquers will be dressed in white clothes, and I will never erase his name from the book of life but will acknowledge his name before my Father and before his angels. “Let anyone who has ears to hear listen to what the Spirit says to the churches. “Write to the angel of the church in Philadelphia: Thus says the Holy One, the true one, the one who has the key of David, who opens and no one will close, and who closes and no one opens: I know your works. Look, I have placed before you an open door that no one can close because you have but little power; yet you have kept my word and have not denied my name. Note this: I will make those from the synagogue of Satan, who claim to be Jews and are not, but are lying—I will make them come and bow down at your feet, and they will know that I have loved you. Because you have kept my command to endure, I will also keep you from the hour of testing that is going to come on the whole world to test those who live on the earth. I am coming soon. Hold on to what you have, so that no one takes your crown. “The one who conquers I will make a pillar in the temple of my God, and he will never go out again. I will write on him the name of my God and the name of the city of my God—the new Jerusalem, which comes down out of heaven from my God—and my new name. “Let anyone who has ears to hear listen to what the Spirit says to the churches. “Write to the angel of the church in Laodicea: Thus says the Amen, the faithful and true witness, the originator of God’s creation: I know your works, that you are neither cold nor hot. I wish that you were cold or hot. So, because you are lukewarm, and neither hot nor cold, I am going to vomit you out of my mouth. For you say, ‘I’m rich; I have become wealthy and need nothing,’ and you don’t realize that you are wretched, pitiful, poor, blind, and naked. I advise you to buy from me gold refined in the fire so that you may be rich, white clothes so that you may be dressed and your shameful nakedness not be exposed, and ointment to spread on your eyes so that you may see. As many as I love, I rebuke and discipline. So be zealous and repent. See! I stand at the door and knock. If anyone hears my voice and opens the door, I will come in to him and eat with him, and he with me. “To the one who conquers I will give the right to sit with me on my throne, just as I also conquered and sat down with my Father on his throne. “Let anyone who has ears to hear listen to what the Spirit says to the churches.”
 
+Insist on finding the perfect church? Spurgeon said it best, "There is no perfect church. If were to find one and join it, then my presence alone would make that church cease to be perfect." For:
+
+TODO: Spurgeon quote
+
+>Romans 3:23 (CSB) For all have sinned and fall short of the glory of God;
+
+We are born not righteous in Christ but in sin as sons of Adam. We are marred and infected with sin. Even born again, we still struggle with sin. The Apostle Paul writes perfectly the struggle of the saint:
+
+>Romans 7:14-20 (CSB) For we know that the law is spiritual, but I am of the flesh, sold as a slave under sin. For I do not understand what I am doing, because I do not practice what I want to do, but I do what I hate. Now if I do what I do not want to do, I agree with the law that it is good. So now I am no longer the one doing it, but it is sin living in me. For I know that nothing good lives in me, that is, in my flesh. For the desire to do what is good is with me, but there is no ability to do it. For I do not do the good that I want to do, but I practice the evil that I do not want to do. Now if I do what I do not want, I am no longer the one that does it, but it is the sin that lives in me.
+
+Even when the saint, born again by God, knows the word of God because the Scriptures point to the risen Christ:
+
+>Romans 7:21-22 (CSB) So I discover this law: When I want to do what is good, evil is present with me. For in my inner self I delight in God’s law,
+
+And if you have been a Christian for longer than a moment, you know this war wages on:
+
+>Romans 7:23 (CSB) but I see a different law in the parts of my body, waging war against the law of my mind and taking me prisoner to the law of sin in the parts of my body.
+
+What can a Christian do but cry out for help:
+
+>Romans 7:24 (CSB) What a wretched man I am! Who will rescue me from this body of death?
+
+Who can only rescue us? Christ Jesus is his name!
+
+>Romans 7:25 (CSB) Thanks be to God through Jesus Christ our Lord! So then, with my mind I myself am serving the law of God, but with my flesh, the law of sin. 
+
+And because we are in him, Christ Jesus our Lord and Savior, there is only one remaining absolute fact:
+
+>Romans 8:1 (CSB) Therefore, there is now no condemnation for those in Christ Jesus,
+
 ### and some have so degenerated as to become no churches of Christ, but synagogues of Satan
 
 >Revelation 18:2 (CSB) He called out in a mighty voice: It has fallen, Babylon the Great has fallen! She has become a home for demons, a haunt for every unclean spirit, a haunt for every unclean bird, and a haunt for every unclean and despicable beast.
 
 >2 Thessalonians 2:11–12 (CSB) For this reason God sends them a strong delusion so that they will believe the lie, so that all will be condemned—those who did not believe the truth but delighted in unrighteousness.
 
-TODO: yelling into the void as "influencers" but who is your audience! With all of our yelling into the internet, are we changing the mind of the sheep who attend these synagogues of Satan? Yet, Christ is the good shepherd John 10 & Jeremiah 23 -- we must trust in him that he will say what he will do and nothing less because he alone is God
+But the fact remains, since we are sons of Adam, the visible church will always be filled with the "wheat and the weeds" (Matthew 13:24-30, 36-43). To that end, there have been and always will be ministers, persons, groups of people, and even whole churches and even denominations and movements that will fall apostate:
+
+>1 John 2:18-19 (CSB) Children, it is the last hour. And as you have heard that antichrist is coming, even now many antichrists have come. By this we know that it is the last hour. They went out from us, but they did not belong to us; for if they had belonged to us, they would have remained with us. However, they went out so that it might be made clear that none of them belongs to us.
+
+What separates the wheat and the weeds? Not our work, our watchdog blogs and our discernment but the Good Shepherd, that is, Christ alone, who has all truth:
+
+>1 John 2:20 (CSB) But you have an anointing from the Holy One, and all of you know the truth.
+
+How do we know the truth?
+
+>1 John 2:21-23 (CSB) I have not written to you because you don’t know the truth, but because you do know it, and because no lie comes from the truth. Who is the liar, if not the one who denies that Jesus is the Christ? This one is the antichrist: the one who denies the Father and the Son. No one who denies the Son has the Father; he who confesses the Son has the Father as well.
+
+Confess the Son and you will get the Triune God! No exceptions!
+
+Let me soapbox here for a moment and speak to the online influencers. You proclaim a message to those who attend these obvious synagogues of Satan. But are these people actually hearing your message. You, whom they probably do not know and do not have a relationship, is going to incline their ear to you consider what you have to say? Why? Because you are passionate about what you are saying?
+
+What would it look like if you did preach a message that was not dependent on your passion or charisma or communication skills but something outside of yourself--what if you proclaimed the gospel of Christ?
+
+Because to understand and believe the gospel is not a natural act on the part of the speaker nor the hearer but upon the supernatural act of the Holy Spirit.
 
 ### nevertheless Christ always has had, and ever shall have a kingdom in this world, to the end thereof, of such as believe in him, and make profession of his name
 
@@ -41,3 +87,9 @@ TODO: yelling into the void as "influencers" but who is your audience! With all 
 >Psalm 102:28 (CSB) Your servants’ children will dwell securely, and their offspring will be established before you.”
 
 >Revelation 12:17 (CSB) So the dragon was furious with the woman and went off to wage war against the rest of her offspring—those who keep the commands of God and hold firmly to the testimony about Jesus.
+
+So to that end, we might try our best to reach out to those people who are attending unhealthy or worse still, apostate churches. But the message of the gospel is to trust in in Christ Jesus who is very much the Head of his Church.
+
+Little churches, come and go. Ministers, fall and go. Denominations and movements of God, come and go. But our Lord Jesus Christ is the same yesterday, today and forever.
+
+Amen.
