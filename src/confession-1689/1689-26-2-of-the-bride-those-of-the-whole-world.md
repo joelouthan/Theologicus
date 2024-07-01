@@ -12,8 +12,6 @@
 
 **All persons throughout the world, professing the faith of the gospel, and obedience unto God by Christ according unto it, not destroying their own profession by any errors everting the foundation, or unholiness of conversation, are and may be called visible saints; and of such ought all particular congregations to be constituted.**
 
-TODO: what is the real meaning of John 3:16 and 1 John 2:2 and 1 Tim 2:3-4 i.e. the whole world, the whole world, and desires all people to come the knowledge of the truth
-
 ## The Confession
 
 ### All persons throughout the world, professing the faith of the gospel, and obedience unto God by Christ according unto it, not destroying their own profession by any errors everting the foundation, or unholiness of conversation, are and may be called visible saints
