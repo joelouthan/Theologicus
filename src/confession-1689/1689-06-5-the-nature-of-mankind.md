@@ -8,7 +8,7 @@
 
 ## The Text
 
->2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+>Romans 7:18-20 (CSB) For I know that nothing good lives in me, that is, in my flesh. For the desire to do what is good is with me, but there is no ability to do it. For I do not do the good that I want to do, but I practice the evil that I do not want to do. Now if I do what I do not want, I am no longer the one that does it, but it is the sin that lives in me.
 
 ## The Chapter
 

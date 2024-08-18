@@ -8,9 +8,7 @@
 
 ## The Text
 
->Romans 11:36 (CSB) For from him and through him  
->and to him are all things.  
->To him be the glory forever. Amen.
+>John 1:1-3 (CSB) In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created.
 
 ## The Chapter
 

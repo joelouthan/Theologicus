@@ -8,7 +8,9 @@
 
 ## The Text
 
->Revelation 1:8 (CSB) “I am the Alpha and the Omega,” says the Lord God, “the one who is, who was, and who is to come, the Almighty.”
+>John 1:29-36 (CSB) The next day John saw Jesus coming toward him and said, “Look, the Lamb of God, who takes away the sin of the world! This is the one I told you about: ‘After me comes a man who ranks ahead of me, because he existed before me.’ I didn’t know him, but I came baptizing with water so that he might be revealed to Israel.” And John testified, “I saw the Spirit descending from heaven like a dove, and he rested on him. I didn’t know him, but he who sent me to baptize with water told me, ‘The one you see the Spirit descending and resting on — he is the one who baptizes with the Holy Spirit.’ I have seen and testified that this is the Son of God.”
+>
+>The next day, John was standing with two of his disciples. When he saw Jesus passing by, he said, “Look, the Lamb of God! ”
 
 ## The Chapter
 

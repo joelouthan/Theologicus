@@ -8,7 +8,7 @@
 
 ## The Text
 
->Romans 6:23 (CSB) For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
+>Revelation 12:10-12 (ESV) And I heard a loud voice in heaven, saying, “Now the salvation and the power and the kingdom of our God and the authority of his Christ have come, for the accuser of our brothers has been thrown down, who accuses them day and night before our God. And they have conquered him by the blood of the Lamb and by the word of their testimony, for they loved not their lives even unto death. Therefore, rejoice, O heavens and you who dwell in them! But woe to you, O earth and sea, for the devil has come down to you in great wrath, because he knows that his time is short!”
 
 ## The Chapter
 

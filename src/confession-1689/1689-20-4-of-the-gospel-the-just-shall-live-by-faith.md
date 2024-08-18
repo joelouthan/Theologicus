@@ -8,7 +8,17 @@
 
 ## The Text
 
->Romans 1:16–17 (CSB) For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek. For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
+>Habakkuk 2:2-4 (CSB) The LORD answered me:
+>Write down this vision;
+>clearly inscribe it on tablets
+>so one may easily read it.
+>For the vision is yet for the appointed time;
+>it testifies about the end and will not lie.
+>Though it delays, wait for it,
+>since it will certainly come and not be late.
+>Look, his ego is inflated;
+>he is without integrity.
+>But the righteous one will live by his faith.
 
 ## The Chapter
 

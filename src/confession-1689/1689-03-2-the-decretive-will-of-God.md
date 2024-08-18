@@ -8,7 +8,19 @@
 
 ## The Text
 
->Romans 3:25–26 (CSB) God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.
+>Isaiah 55:9-11 (CSB) “For as heaven is higher than earth,
+>so my ways are higher than your ways,
+>and my thoughts than your thoughts.
+>For just as rain and snow fall from heaven
+>and do not return there
+>without saturating the earth
+>and making it germinate and sprout,
+>and providing seed to sow
+>and food to eat,
+>so my word that comes from my mouth
+>will not return to me empty,
+>but it will accomplish what I please
+>and will prosper in what I send it to do.”
 
 ## The Chapter
 

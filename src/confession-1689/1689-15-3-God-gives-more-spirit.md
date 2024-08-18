@@ -8,7 +8,7 @@
 
 ## The Text
 
->John 3:14–15 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
+>Romans 8:9-11 (CSB) You, however, are not in the flesh, but in the Spirit, if indeed the Spirit of God lives in you. If anyone does not have the Spirit of Christ, he does not belong to him. Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness. And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
 
 ## The Chapter
 

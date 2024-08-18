@@ -8,7 +8,7 @@
 
 ## The Text
 
->1 John 4:10 (ESV) In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.
+>1 John 4:9–16 (CSB) God’s love was revealed among us in this way: God sent his one and only Son into the world so that we might live through him. Love consists in this: not that we loved God, but that he loved us and sent his Son to be the atoning sacrifice for our sins. Dear friends, if God loved us in this way, we also must love one another. No one has ever seen God. If we love one another, God remains in us and his love is made complete in us. This is how we know that we remain in him and he in us: He has given us of his Spirit. And we have seen and we testify that the Father has sent his Son as the world’s Savior. Whoever confesses that Jesus is the Son of God—God remains in him and he in God. And we have come to know and to believe the love that God has for us. God is love, and the one who remains in love remains in God, and God remains in him.
 
 ## The Chapter
 

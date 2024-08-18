@@ -8,7 +8,7 @@
 
 ## The Text
 
->Matthew 4:4 (CSB) He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
+>Romans 10:14-17 (CSB) How, then, can they call on him they have not believed in? And how can they believe without hearing about him? And how can they hear without a preacher? And how can they preach unless they are sent? As it is written: How beautiful are the feet of those who bring good news. But not all obeyed the gospel. For Isaiah says, Lord, who has believed our message? So faith comes from what is heard, and what is heard comes through the message about Christ.
 
 ## The Chapter
 
