@@ -34,7 +34,7 @@ All men are not only permitted, but commanded and exhorted to read, hear, and un
 
 The Holy Scriptures chiefly contain what man ought to believe concerning God, and what duty God requires of man. (2 Tim. 1:13; 3:15,16)
 
-## Lord'S Day 3
+## Lord's Day 3
 
 ### Question 7 What Is God?
 
@@ -66,7 +66,7 @@ The work of creation is God's making all things of nothing, by the word of his p
 
 God created man, male and female, after his own image, in knowledge, righteousness, and holiness, with dominion over the creatures. (Gen. 1:26, 27, 28; Col. 3:10, Eph. 4:24)
 
-### Question 14 What Are God'S Works Of Providence?
+### Question 14 What Are God's Works Of Providence?
 
 God's works of providence are his most holy, wise, and powerful preserving and governing all his creatures, and all their actions.
 
@@ -112,7 +112,7 @@ All mankind by their fall lost communion with God, are under his wrath and curse
 
 God having out of his mere good pleasure, from all eternity, elected some to everlasting life, did enter into a Covenant of Grace, to deliver them out of the estate of sin and misery, and to bring them into an estate of salvation by a redeemer. (Eph. 1:4, 5; Rom. 3:20-22; Gal. 3:21, 22)
 
-### Question 24 Who Is The Redeemer Of God'S Elect?
+### Question 24 Who Is The Redeemer Of God's Elect?
 
 The only :edeemer of God's elect is the Lord Jesus Christ; who, being the eternal Son of God, became man, and so was and continues to be God and man in two distinct natures, and one person for ever. (1 Tim. 2:5, 6; John 1:14; Gal. 4:4; Rom. 9:5; Lk. 1:35; Col. 2:9; Heb. 7:24, 25)
 
@@ -138,13 +138,13 @@ Christ executes the office of priest in his once offering up himself a sacrifice
 
 Christ executes the office of a king, in subduing us to himself, in ruling, and defending us, and in restraining and conquering all his and our enemies (Acts 15:14, 15, 16; Is. 33:22; Is. 32:1, 2; 1 Cor. 15:25; Ps. 110 throughout)
 
-## Lord'S Day 9
+## Lord's Day 9
 
-### Question 30 In What Did Christ'S Humiliation Consist?
+### Question 30 In What Did Christ's Humiliation Consist?
 
 Christ's humiliation consisted in his being born, and that in a low condition, made under the law, undergoing the miseries of this life, the wrath of God, and the cursed death of the cross; in being buried, and continuing under the power of death for a time. (Luke 2:7; Gal. 4:4; Heb. 12:2, 3; Is. 53:2, 3; Luke 22:44; Mt. 27:46; Phil. 2:8; 1 Cor. 15:3,4; Acts 2:24, 25, 26, 27, 31; Mt. 12:40)
 
-### Question 31 In What Consists Christ'S Exaltation?
+### Question 31 In What Consists Christ's Exaltation?
 
 Christ's exaltation consists in his rising again from the dead on the third day, in ascending up into heaven, in sitting at the right hand of God the Father, and in coming to judge the world at the last day. (1 Cor. 15:4, Mark 16:19, Eph. 1:20, Acts 1: 11; 17:31)
 
@@ -255,7 +255,7 @@ The first commandment forbids the denying, or not worshipping and glorifying the
 
 These words "before me", in the first commandment teach us, that God, who sees all things, takes notice of and is much displeased with the sin of having any other god. (Ex. 8:5, to the end)
 
-## Lord'S Day 17
+## Lord's Day 17
 
 ### Question 54 Which Is The Second Commandment?
 
@@ -291,7 +291,7 @@ The third commandment forbids all profaning and abusing of any thing whereby God
 
 The reason annexed to the third commandment is, that however the breakers of this commandment may escape punishment from men, yet the Lord our God will not suffer them to escape his righteous judgment.
 
-## Lord'S Day 19
+## Lord's Day 19
 
 ### Question 62 What Is The Fourth Commandment?
 
@@ -390,7 +390,7 @@ The ninth commandment requires the maintaining and promoting of truth between ma
 
 The ninth commandment forbids whatsoever is prejudicial to the truth, or injurious to our own or our neighbour's good name.
 
-## Lord'S Day 25
+## Lord's Day 25
 
 ### Question 84 Which Is The Tenth Commandment?
 
@@ -438,7 +438,7 @@ Repentance unto life is a saving grace, by which a sinner, out of a true sense o
 
 The outward and ordinary means by which Christ communicates to us the benefits of redemption are his ordinances, especially the word, baptism, the Lord's supper, and prayer; all which means are made effectual to the elect for salvation.
 
-## Lord'S Day 28
+## Lord's Day 28
 
 ### Question 94 How Is The Word Made Effectual To Salvation?
 
@@ -474,9 +474,9 @@ Baptism is rightly administered by immersion, or dipping the whole body of the p
 
 It is the duty of such who are rightly baptized to give up themselves to some particular and orderly church of Jesus Christ, that they may walk in all the commandments and ordinances of the Lord blameless. (Acts 2:41, 42; 5:13, 14; 9:26; 1 Pet. 2:5; Lk. 1:6)
 
-## Lord'S Day 30
+## Lord's Day 30
 
-### Question 102 What Is The Lord'S Supper?
+### Question 102 What Is The Lord's Supper?
 
 The Lord's supper is an ordinance of the New Testament, instituted by Jesus Christ; in which by giving and receiving bread and wine, according to his appointment, his death is shown forth, and the worthy receivers are, not after a corporal and carnal manner, but by faith, made partakers of his body and blood, with all his benefits, to their spiritual nourishment and growth in grace. (Mt. 26:26, 27, 28; 1 Cor. 11:23-26; 10:16)
 
@@ -484,11 +484,11 @@ The Lord's supper is an ordinance of the New Testament, instituted by Jesus Chri
 
 They who have been baptized upon a personal profession of their faith in Jesus Christ, and repentance from dead works. (Acts 2:41, 42)
 
-### Question 104 What Is Required To The Worthy Receiving Of The Lord'S Supper?
+### Question 104 What Is Required To The Worthy Receiving Of The Lord's Supper?
 
 It is required of them that would worthily partake of the Lord's supper, that they examine themselves of their knowledge to discern the Lord's body, of their faith to feed upon him , of their repentance, love, and new obedience, lest coming unworthily they eat and drink judgment to themselves. (1 Cor. 11:28, 29; 2 Cor. 13:5; 1 Cor. 11:31; 1 Cor. 10:16, 17; 1 Cor. 5:7, 8; 1 Cor. 11:28, 29)
 
-## Lord'S Day 31
+## Lord's Day 31
 
 ### Question 105 What Is Prayer?
 
@@ -498,9 +498,9 @@ Prayer is an offering up our desires to God, by the assistance of the Holy Spiri
 
 The whole word of God is of use to direct us in prayer; but the special rule of direction is that prayer which Christ taught his disciples, commonly called the Lord's prayer. (1 Jn. 5:14; Mt. 6:9-13; with Lk. 11:2-4)
 
-## Lord'S Day 32
+## Lord's Day 32
 
-### Question 107 What Does The Preface Of The Lord'S Prayer Teach Us?
+### Question 107 What Does The Preface Of The Lord's Prayer Teach Us?
 
 The preface of the Lord's prayer, which is Our Father who is in heaven, teaches us to draw near to God with all holy reverence and confidence, as children to a father, able and ready to help us; and that we should pray with and for others. (Mt. 6:9; Rom. 8:15; Lk. 11:13; Is. 24:8; Acts 12:5; 1 Tim. 2:1, 2)
 
@@ -516,7 +516,7 @@ In the second petition, which is, Your kingdom come, we pray that Satan's kingdo
 
 In the third petition, which is, Your will be done on earth as it is in heaven, we pray that God by his grace would make us able and willing to know, obey, and submit to his will in all things, as the angels do in heaven. (Mt. 6:10; Ps. 67: throughout; Ps. 119:36; 2 Sam. 15:25; Job 1:21; Ps. 103:20, 21)
 
-## Lord'S Day 33
+## Lord's Day 33
 
 ### Question 111 What Do We Pray For In The Fourth Petition?
 
@@ -530,6 +530,6 @@ In the fifth petition, which is, And forgive us our debts as we forgive our debt
 
 In the sixth petition, which is, And lead us not into temptation but deliver us from evil, we pray that God would either keep us from being tempted to sin, or support and deliver us when we are tempted. (Mt. 6:13; Mt. 26:31; 2 Cor. 12:8)
 
-### Question 114 What Does The Conclusion Of The Lord'S Prayer Teach?
+### Question 114 What Does The Conclusion Of The Lord's Prayer Teach?
 
 The conclusion of the Lord's prayer, which is, For yours is the kingdom, and the power, and the glory, forever. Amen, teaches us to take our encouragement in prayer from God only, and in our prayers to praise Him, ascribing kingdom, power, and glory, to Him. And in testimony of our desire and assurance to be heard, we say, Amen. (Mt. 6:13; Dan. 9:4, 7-9, 16-19; 1 Chron. 29:10-13; 1 Cor. 4:16; Rev. 11:20; 22:20, 21)
