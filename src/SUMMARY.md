@@ -227,7 +227,8 @@
 
 -----------
 
-- [1680 An Orthodox Catechism](catechism-1680/index.md)
+- [The Baptist Catechism 1693](catechism-1693/index.md)
+- [An Orthodox Catechism 1680](catechism-1680/index.md)
 - [Milk for Little Ones]()
 - [The Heidelberg Catechism]()
 - [The Westminster Shorter Catechism]()
