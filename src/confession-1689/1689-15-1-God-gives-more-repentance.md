@@ -186,7 +186,7 @@ If God gives us everything we need for salvation, including his Son, his Spirit,
 
 We are born of Adam--born into sin and of sin. Sin has infected and affected us down to our core. To turn away from sin and unto God cannot be done in our power--not even the littlest bit. God has called us to repent but he "remembers that we are made from dust" and has the deepest compassionate.
 
-You and I are called to repent. But unless something outside of us happens, we are powerless to repent of our sin?
+You and I are called to repent. But unless something outside of us happens, then we are utterly powerless to repent of our sin.
 
 Again, who can save us from this body of death? We are called to repent but we cannot repent. God must do something for us and to us in order that we can turn away from our sin and turn to God!
 
@@ -196,9 +196,9 @@ Again, who can save us from this body of death? We are called to repent but we c
 
 >Hebrews 12:17 (CSB) For you know that later, when he wanted to inherit the blessing, he was rejected because he didn’t find any opportunity for repentance, though he sought it with tears.
 
-God gives everything to us in order to save us. God gives us himself, his Son, his Spirit, his heart, righteousness, holiness, love, grace, mercy, faith, adoption, growth, and repentance.
+God gives everything to us in order to save us. God gives us himself, his Son, his Spirit, his heart, righteousness, holiness, love, grace, mercy, faith, adoption, growth, and himself. *And* repentance!
 
-To even us, those saved in our "riper years", those of us who have sinned enough and filled with enough debauchery to last multiple lifetimes, to fill our hearts with lusts and wicked desires, to be given over to our depravity, to us who have fallen a billion times to our seemingly endless sin, God has and always give us grace to stand once more.
+To even us, those saved in our "riper years", those of us who have sinned enough and filled with enough debauchery to last multiple lifetimes, those of us who have filled our hearts with lusts and wicked desires, those of us who are to be given over to our depravity, to us who have fallen a billion times to our seemingly endless sin, the Triune God of heaven, earth, and hell had, is, and will always give us his endless grace to stand up just one more time.
 
 >Proverbs 24:16 (CSB) Though a righteous person falls seven times, he will get up, but the wicked will stumble into ruin.
 
@@ -214,11 +214,11 @@ And again:
 
 >1 Timothy 1:12–17 (CSB) I give thanks to Christ Jesus our Lord who has strengthened me, because he considered me faithful, appointing me to the ministry—even though I was formerly a blasphemer, a persecutor, and an arrogant man. But I received mercy because I acted out of ignorance in unbelief, and the grace of our Lord overflowed, along with the faith and love that are in Christ Jesus. This saying is trustworthy and deserving of full acceptance: “Christ Jesus came into the world to save sinners”—and I am the worst of them. But I received mercy for this reason, so that in me, the worst of them, Christ Jesus might demonstrate his extraordinary patience as an example to those who would believe in him for eternal life. Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
 
-Answer the unrhetorical question:
+Answer the rhetorical question:
 
 >Romans 7:24 (CSB) What a wretched man I am! Who will rescue me from this body of death?
 
-Who will do it? Christ Jesus is name! And tho I struggle mighted under the weight of my depravity and sin, God has grant me grace and mercy to look up to his blessed Son and be saved by him.
+Who will do it? Christ Jesus is name! And although I struggle mightily under the back-breaking, heart-smashing, soul crushing weight of my depravity and sin--like sitting on my chest with the weight all the elephants in Africa, the more infinite Almighty God has grant me grace and mercy to look up to his blessed Son and be saved by him.
 
 >Romans 8:1 (CSB) Therefore, there is now no condemnation for those in Christ Jesus,
 
@@ -226,17 +226,17 @@ This is the blessed assurance that Jesus Christ is mine and mine for always! I w
 
 >Romans 11:29 (CSB) since God’s gracious gifts and calling are irrevocable.
 
-I am in Christ. No condemnation and no seperation.
+I am in Christ. No condemnation and no separation.
 
 >Romans 8:38–39 (CSB) For I am persuaded that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
 
 I am the tax collector. I cried out to God, "Have mercy on me, A SINNER!"
 
-How does the Almighty King of kings, Lord of Lords, ruler of heaven, earth, and hell, who holds the universe with his thought, the Champion who has put the forces of sin, Satan, demons, hell, and death to open shame, who is the Alpha and the Omega, the Beginning and the End, the Worthy Lamb who was Slained, who alone is Holy, Holy, Holy, Good, Faithful and True, the Way, Truth, and Life, and Love, this Son of God who is God. What does he say to my desperate plea?
+How does the Almighty King of kings, Lord of Lords, ruler of heaven, earth, and hell, who holds the universe with his thought, the Champion who has put the forces of sin, Satan, demons, hell, and death to open shame, who is the Alpha and the Omega, the Beginning and the End, the Worthy Lamb who was slain, who alone is Holy, Holy, Holy, Good, Faithful and True, the Way, Truth, and Life, and Love, this Son of God who is God. What does he say to my desperate plea?
 
 >Luke 18:14 (CSB) I tell you, this one went down to his house justified rather than the other, because everyone who exalts himself will be humbled, but the one who humbles himself will be exalted.”
 
-God has given me repentance. God has granted me humility. God has given me his only begotten Son.
+God has given me repentance. God has granted me humility. I know this absolutely and explicitly because God has given me his only begotten Son, Jesus Christ, once and forevermore.
 
 God, be glorify in my life today.
 
