@@ -118,6 +118,8 @@
     - [14.3 What God Gives: God](confession-1689/1689-14-3-God-gives-God.md)
   - [XV. Of Repentance Unto Life and Salvation](confession-1689/1689-15-0-index.md)
     - [15.1 God Gives More: Repentance](confession-1689/1689-15-1-God-gives-more-repentance.md)
+      - [15.1 ST14 Final Paper](confession-1689/1689-15-1-ST14-Term-Paper.md)
+      - [15.1 ST14 Final Paper Sources](confession-1689/1689-15-1-ST14-Term-Paper-Resources.md)
     - [15.2 God Gives More: Renewal](confession-1689/1689-15-2-God-gives-more-renewal.md)
     - [15.3 God Gives More: Spirit](confession-1689/1689-15-3-God-gives-more-spirit.md)
     - [15.4 God Gives More: Ongoing](confession-1689/1689-15-4-God-gives-more-ongoing.md)
