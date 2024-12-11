@@ -1,14 +1,14 @@
 <img src="confession-1689-judacious-reader-renihan.png">To the Judicious and Impartial Reader: Baptist Symbolics Volume 2.  
 James Renihan.  
 Founders Press. 2022.  
-[Goodreads](https://www.goodreads.com/book/show/17867976-modern-exposition-of-the-1689-baptist-confession-of-faith)
+[Goodreads](https://www.goodreads.com/book/show/63271424-to-the-judicious-and-impartial-reader?from_search=true&from_srp=true&qid=d2GQVaOQdo&rank=2)
 
 <hr style="clear:both;">
 
 <img src="confession-1689-new-exposition-ventura.jpg">A New Exposition of the London Baptist Confession of Faith of 1689    
 Rob Ventura.  
 Mentor. January 17, 2023.  
-[Amazon](https://www.amazon.com/Exposition-London-Baptist-Confession-Faith/dp/1527108902/ref=asc_df_1527108902/?tag=hyprod-20&linkCode=df0&hvadid=598295323603&hvpos=&hvnetw=g&hvrand=3877532160906942020&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9014286&hvtargid=pla-1722666080628&psc=1)
+[Goodreads](https://www.goodreads.com/book/show/67745144-a-new-exposition-of-the-london-baptist-confession-of-faith-of-1689)
 
 <hr style="clear:both;">
 
