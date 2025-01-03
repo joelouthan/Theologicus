@@ -16,6 +16,9 @@
 
 TODO: all churches down the street have our siblings--pray for them
 
+// The essence of this passage is that every church and its members have a duty to consistently pray for the well-being and success of all Christian churches globally. They should actively support one another within their capabilities and roles, using their unique talents and spiritual gifts. When churches are established by God's guidance, they should seek to maintain fellowship with each other to promote peace, love, and mutual growth.
+
+
 ## The Confession
 
 ### As each church, and all the members of it, are bound to pray continually for the good and prosperity of all the churches of Christ
