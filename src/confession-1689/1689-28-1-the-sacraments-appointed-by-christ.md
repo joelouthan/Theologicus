@@ -12,6 +12,8 @@
 
 **Baptism and the Lord's Supper are ordinances of positive and sovereign institution, appointed by the Lord Jesus, the only lawgiver, to be continued in his church to the end of the world.**
 
+<!-- This page discusses the sacraments of Baptism and the Lord's Supper as ordinances established by Jesus Christ. It emphasizes their role as enduring practices within the church, highlighting their significance as acts of obedience and remembrance of Christ's teachings and sacrifice. -->
+
 ## The Confession
 
 >Matthew 28:19–20 (CSB) Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”

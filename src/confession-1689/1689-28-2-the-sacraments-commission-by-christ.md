@@ -12,6 +12,11 @@
 
 **These holy appointments are to be administered by those only who are qualified and thereunto called, according to the commission of Christ.**
 
+<!-- This page discusses the administration of the sacraments, specifically Baptism and the Lord's Supper, 
+as being reserved for those who are qualified and called according to Christ's commission. 
+It emphasizes the importance of proper administration by appointed individuals, 
+highlighting the role of these sacraments as sacred appointments within the church. -->
+
 ## The Confession
 
 >Matthew 28:19 (CSB) Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit,
