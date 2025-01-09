@@ -12,6 +12,10 @@
 
 **Immersion, or dipping of the person in water, is necessary to the due administration of this ordinance.**
 
+<!-- 
+This page discusses the mode of Baptism according to the New Testament. It explains that immersion, or dipping of the person in water, is necessary for the proper administration of this ordinance. The page includes references to Matthew 3:16 and John 3:23 from the Christian Standard Bible (CSB) to support these points.
+-->
+
 ## The Confession
 
 >Matthew 3:16 (CSB) When Jesus was baptized, he went up immediately from the water. The heavens suddenly opened for him, and he saw the Spirit of God descending like a dove and coming down on him.

@@ -12,6 +12,11 @@
 
 **Those who do actually profess repentance towards God, faith in, and obedience to, our Lord Jesus Christ, are the only proper subjects of this ordinance.**
 
+<!-- 
+This page discusses the criteria for proper subjects of Baptism according to the New Testament. It explains that only those who profess repentance towards God, faith in Jesus Christ, and obedience to Him are suitable candidates for Baptism. The page includes references to Mark 16:16, Acts 8:36, Acts 2:41, and Acts 8:12 from the Christian Standard Bible (CSB) to support these points.
+-->
+
+
 ## The Confession
 
 >Mark 16:16 (CSB) Whoever believes and is baptized will be saved, but whoever does not believe will be condemned.
