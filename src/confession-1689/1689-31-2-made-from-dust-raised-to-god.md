@@ -27,3 +27,11 @@
 ### although with different qualities, which shall be united again to their souls forever
 
 >1 Corinthians 15:42–43 (CSB) So it is with the resurrection of the dead: Sown in corruption, raised in incorruption; sown in dishonor, raised in glory; sown in weakness, raised in power;
+
+Look:
+
+>Romans 8:11 (CSB) And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
+
+Our souls will meet with God. Then God will resurrect our bodies, recreate them and join them back to our souls. We will not just be some ghosts floating around. God created us whole beings--soul, mind, will, heart, and body.
+
+We are to love God with everything we got. Now that we have died and joined with him, we get to love him with everything we got--now perfectly and without sin. Forever.
