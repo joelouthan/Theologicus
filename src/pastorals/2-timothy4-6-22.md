@@ -129,9 +129,7 @@ indeed, I have a beautiful inheritance.
 He leads out the prisoners to prosperity,
 but the rebellious live in a scorched land.
 
->1 Kings 17:1-7 (CSB) Now Elijah the Tishbite, from the Gilead settlers, said to Ahab, “As the LORD God of Israel lives, in whose presence I stand, there will be no dew or rain during these years except by my command!”
-Then the word of the LORD came to him: “Leave here, turn eastward, and hide at the Wadi Cherith where it enters the Jordan. You are to drink from the wadi. I have commanded the ravens to provide for you there.”
-So he proceeded to do what the LORD commanded. Elijah left and lived at the Wadi Cherith where it enters the Jordan. The ravens kept bringing him bread and meat in the morning and in the evening, and he would drink from the wadi. After a while, the wadi dried up because there had been no rain in the land.
+>1 Kings 17:1-7 (CSB) Now Elijah the Tishbite, from the Gilead settlers, said to Ahab, “As the LORD God of Israel lives, in whose presence I stand, there will be no dew or rain during these years except by my command!” Then the word of the LORD came to him: “Leave here, turn eastward, and hide at the Wadi Cherith where it enters the Jordan. You are to drink from the wadi. I have commanded the ravens to provide for you there.” So he proceeded to do what the LORD commanded. Elijah left and lived at the Wadi Cherith where it enters the Jordan. The ravens kept bringing him bread and meat in the morning and in the evening, and he would drink from the wadi. After a while, the wadi dried up because there had been no rain in the land.
 
 >Matthew 6:7-8 (CSB) When you pray, don’t babble like the Gentiles, since they imagine they’ll be heard for their many words. Don’t be like them, because your Father knows the things you need before you ask him.
 
@@ -153,11 +151,11 @@ For your life and your soul and your spirit to live eternally, you will need God
 
 Nor can they ever separate you from his love:
 
->Romans 8:36-39 (CSB) s it is written:
-Because of you
-we are being put to death all day long;
-we are counted as sheep to be slaughtered.
-No, in all these things we are more than conquerors through him who loved us. For I am persuaded that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
+>Romans 8:36-39 (CSB) s it is written:  
+>Because of you  
+>we are being put to death all day long;  
+>we are counted as sheep to be slaughtered.  
+>No, in all these things we are more than conquerors through him who loved us. For I am persuaded that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
 
 ><sup> 17 </sup> But the Lord stood with me and strengthened me, so that I might fully preach the word and all the Gentiles might hear it. So I was rescued from the lion’s mouth. 
 
