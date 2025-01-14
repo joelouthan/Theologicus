@@ -14,10 +14,6 @@
 
 **That doctrine which maintains a change of the substance of bread and wine, into the substance of Christ's body and blood, commonly called transubstantiation, by consecration of a priest, or by any other way, is repugnant not to Scripture alone, but even to common sense and reason, overthroweth the nature of the ordinance, and hath been, and is, the cause of manifold superstitions, yea, of gross idolatries.**
 
-<!-- 
-This page discusses the doctrine of transubstantiation in relation to the Lord's Supper. It explains that the doctrine, which maintains a change of the substance of bread and wine into the substance of Christ's body and blood, is contrary to Scripture, common sense, and reason. It argues that this doctrine overthrows the nature of the ordinance and has led to various superstitions and idolatries. The page includes references to Acts 3:21 from the Christian Standard Bible (CSB) to support these points.
--->
-
 ## The Confession
 
 ### That doctrine which maintains a change of the substance of bread and wine, into the substance of Christ's body and blood, commonly called transubstantiation, by consecration of a priest, or by any other way, is repugnant not to Scripture alone
@@ -27,3 +23,13 @@ This page discusses the doctrine of transubstantiation in relation to the Lord's
 ### but even to common sense and reason, overthrows the nature of the ordinance, and has been, and is, the cause of manifold superstitions, yea, of gross idolatries
 
 >1 Corinthians 11:24–25 (CSB) and when he had given thanks, broke it, and said, “This is my body, which is for you. Do this in remembrance of me.” In the same way also he took the cup, after supper, and said, “This cup is the new covenant in my blood. Do this, as often as you drink it, in remembrance of me.”
+
+And the beauty of the Lord's supper is that, it does not have to be elevated and risen to a platform that needs to be venerated or worshiped. It is a gift of the Christ for all those who would come to trust and believe he is the Holy One of God.
+
+It is a simple gift.
+
+That is why every single believer who comes to the table always comes to table empty handed as a beggar. And the church and her ministers give his people the Christ because that is what God has always done. He has always given his people the Christ.
+
+Blessed be his name!
+
+Amen!
