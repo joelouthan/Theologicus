@@ -8,6 +8,10 @@
 
 ## The Text
 
+>Psalm 16:11 (CSB) You reveal the path of life to me; in your presence is abundant joy; at your right hand are eternal pleasures.
+
+>Psalm 17:15 (CSB) But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
+
 ## The Chapter
 
 **The bodies of the unjust shall, by the power of Christ, be raised to dishonour; the bodies of the just, by his Spirit, unto honour, and be made conformable to his own glorious body.**

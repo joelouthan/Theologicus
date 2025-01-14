@@ -8,6 +8,8 @@
 
 ## The Text
 
+>Genesis 3:19 (CSB) You will eat bread by the sweat of your brow until you return to the ground, since you were taken from it. For you are dust, and you will return to dust.”
+
 ## The Chapter
 
 **The bodies of men after death return to dust, and see corruption; but their souls, which neither die nor sleep, having an immortal subsistence, immediately return to God who gave them. The souls of the righteous being then made perfect in holiness, are received into paradise, where they are with Christ, and behold the face of God in light and glory, waiting for the full redemption of their bodies; and the souls of the wicked are cast into hell; where they remain in torment and utter darkness, reserved to the judgment of the great day; besides these two places, for souls separated from their bodies, the Scripture acknowledgeth none.**
@@ -15,8 +17,6 @@
 ## The Confession
 
 ### The bodies of men after death return to dust, and see corruption
-
->Genesis 3:19 (CSB) You will eat bread by the sweat of your brow until you return to the ground, since you were taken from it. For you are dust, and you will return to dust.”
 
 >Acts 13:36 (CSB) For David, after serving God’s purpose in his own generation, fell asleep, was buried with his fathers, and decayed,
 
