@@ -8,6 +8,8 @@
 
 ## The Text
 
+>Matthew 26:26–28 (CSB) As they were eating, Jesus took bread, blessed and broke it, gave it to the disciples, and said, “Take and eat it; this is my body.” Then he took a cup, and after giving thanks, he gave it to them and said, “Drink from it, all of you. For this is my blood of the covenant, which is poured out for many for the forgiveness of sins.
+
 ## The Chapter
 
 **The denial of the cup to the people, worshipping the elements, the lifting them up, or carrying them about for adoration, and reserving them for any pretended religious use, are all contrary to the nature of this ordinance, and to the institution of Christ.**
@@ -17,8 +19,6 @@ This page discusses the ordinance of the Lord's Supper and the practices that ar
 -->
 
 ## The Confession
-
->Matthew 26:26–28 (CSB) As they were eating, Jesus took bread, blessed and broke it, gave it to the disciples, and said, “Take and eat it; this is my body.” Then he took a cup, and after giving thanks, he gave it to them and said, “Drink from it, all of you. For this is my blood of the covenant, which is poured out for many for the forgiveness of sins.
 
 >Matthew 15:9 (CSB) They worship me in vain, teaching as doctrines human commands.”
 
