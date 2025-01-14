@@ -8,6 +8,14 @@
 
 ## The Text
 
+>He will come again in glory  
+>to judge the living and the dead  
+>and his kingdom will have no end.
+>
+>—Nicene Creed
+
+>John 3:36 (CSB) The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
+
 ## The Chapter
 
 **The end of God's appointing this day, is for the manifestation of the glory of his mercy, in the eternal salvation of the elect; and of his justice, in the eternal damnation of the reprobate, who are wicked and disobedient; for then shall the righteous go into everlasting life, and receive that fulness of joy and glory with everlasting rewards, in the presence of the Lord; but the wicked, who know not God, and obey not the gospel of Jesus Christ, shall be cast aside into everlasting torments, and punished with everlasting destruction, from the presence of the Lord, and from the glory of his power.**
@@ -31,3 +39,5 @@
 >Mark 9:48 (CSB) where their worm does not die, and the fire is not quenched.
 
 >2 Thessalonians 1:7–10 (CSB) and to give relief to you who are afflicted, along with us. This will take place at the revelation of the Lord Jesus from heaven with his powerful angels, when he takes vengeance with flaming fire on those who don’t know God and on those who don’t obey the gospel of our Lord Jesus. They will pay the penalty of eternal destruction from the Lord’s presence and from his glorious strength on that day when he comes to be glorified by his saints and to be marveled at by all those who have believed, because our testimony among you was believed.
+
+For those who do not believe the Christ, did not heed the gospel, never believed, did what was right in their own eyes, never turned to the Christ, did not want him, wanted to be their own god, they will sit under the eternal wrath of the Christ. Forever.
