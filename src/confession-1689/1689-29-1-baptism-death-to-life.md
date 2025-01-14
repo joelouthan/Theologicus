@@ -8,6 +8,8 @@
 
 ## The Text
 
+>Galatians 3:27 (CSB) For those of you who were baptized into Christ have been clothed with Christ.
+
 ## The Chapter
 
 **Baptism is an ordinance of the New Testament, ordained by Jesus Christ, to be unto the party baptized, a sign of his fellowship with him, in his death and resurrection; of his being engrafted into him; of remission of sins; and of giving up into God, through Jesus Christ, to live and walk in newness of life.**
@@ -15,8 +17,6 @@
 ## The Confession
 
 ### Baptism is an ordinance of the New Testament, ordained by Jesus Christ, to be unto the party baptized, a sign of his fellowship with him, in his death and resurrection; of his being engrafted into him
-
->Galatians 3:27 (CSB) For those of you who were baptized into Christ have been clothed with Christ.
 
 Reformed Christians--we are in lockstep until this chapter. Sure, we can have different convictions on church government (I can easily contend for presbyters and for local church autonomy). But by and large, the 1689 is synced up with the Savoy Declaration and the Westminster Confessions (aptly and right called the 'mother' and the 'grandmother' of the 1689, respectfully).
 
