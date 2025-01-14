@@ -12,6 +12,10 @@
 
 **The outward elements in this ordinance, duly set apart to the use ordained by Christ, have such relation to him crucified, as that truly, although in terms used figuratively, they are sometimes called by the names of the things they represent, to wit, the body and blood of Christ, albeit, in substance and nature, they still remain truly and only bread and wine, as they were before.**
 
+<!-- 
+This page discusses the outward elements of the Lord's Supper as ordained by Christ. It explains that the elements, though figuratively called the body and blood of Christ, remain in substance and nature truly bread and wine. The page includes references to 1 Corinthians 11:27 from the Christian Standard Bible (CSB) to support these points.
+-->
+
 ## The Confession
 
 ### The outward elements in this ordinance, duly set apart to the use ordained by Christ, have such relation to him crucified, as that truly, although in terms used figuratively, they are sometimes called by the names of the things they represent, in other words, the body and blood of Christ

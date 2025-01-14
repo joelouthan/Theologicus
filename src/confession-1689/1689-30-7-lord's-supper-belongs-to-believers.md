@@ -12,6 +12,10 @@
 
 **Worthy receivers, outwardly partaking of the visible elements in this ordinance, do then also inwardly by faith, really and indeed, yet not carnally and corporally, but spiritually receive, and feed upon Christ crucified, and all the benefits of his death; the body and blood of Christ being then not corporally or carnally, but spiritually present to the faith of believers in that ordinance, as the elements themselves are to their outward senses.**
 
+<!-- 
+This page discusses the participation of believers in the Lord's Supper. It explains that worthy receivers, while outwardly partaking of the visible elements, also inwardly by faith spiritually receive and feed upon Christ crucified and the benefits of His death. The body and blood of Christ are spiritually present to the faith of believers in the ordinance. The page includes references to 1 Corinthians 10:16 and 1 Corinthians 11:23-26 from the Christian Standard Bible (CSB) to support these points.
+-->
+
 ## The Confession
 
 >1 Corinthians 10:16 (CSB) The cup of blessing that we bless, is it not a sharing in the blood of Christ? The bread that we break, is it not a sharing in the body of Christ?

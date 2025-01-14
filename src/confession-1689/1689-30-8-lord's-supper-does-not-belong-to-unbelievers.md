@@ -12,6 +12,10 @@
 
 **All ignorant and ungodly persons, as they are unfit to enjoy communion with Christ, so are they unworthy of the Lord's table, and cannot, without great sin against him, while they remain such, partake of these holy mysteries, or be admitted thereunto; yea, whosoever shall receive unworthily, are guilty of the body and blood of the Lord, eating and drinking judgment to themselves.**
 
+<!-- 
+This page discusses the exclusion of ignorant and ungodly persons from the Lord's Supper according to the New Testament. It explains that such individuals are unfit to enjoy communion with Christ and are unworthy of the Lord's table. Partaking in the Lord's Supper while remaining in such a state is considered a great sin and brings judgment upon themselves. The page includes references to 2 Corinthians 6:14-15 from the Christian Standard Bible (CSB) to support these points.
+-->
+
 ## The Confession
 
 ### All ignorant and ungodly persons, as they are unfit to enjoy communion with Christ, so are they unworthy of the Lord's table, and cannot, without great sin against him, while they remain such, partake of these holy mysteries, or be admitted thereunto

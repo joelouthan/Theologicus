@@ -12,6 +12,10 @@
 
 **That doctrine which maintains a change of the substance of bread and wine, into the substance of Christ's body and blood, commonly called transubstantiation, by consecration of a priest, or by any other way, is repugnant not to Scripture alone, but even to common sense and reason, overthroweth the nature of the ordinance, and hath been, and is, the cause of manifold superstitions, yea, of gross idolatries.**
 
+<!-- 
+This page discusses the doctrine of transubstantiation in relation to the Lord's Supper. It explains that the doctrine, which maintains a change of the substance of bread and wine into the substance of Christ's body and blood, is contrary to Scripture, common sense, and reason. It argues that this doctrine overthrows the nature of the ordinance and has led to various superstitions and idolatries. The page includes references to Acts 3:21 from the Christian Standard Bible (CSB) to support these points.
+-->
+
 ## The Confession
 
 ### That doctrine which maintains a change of the substance of bread and wine, into the substance of Christ's body and blood, commonly called transubstantiation, by consecration of a priest, or by any other way, is repugnant not to Scripture alone

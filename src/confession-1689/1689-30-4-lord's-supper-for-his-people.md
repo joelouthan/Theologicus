@@ -12,6 +12,10 @@
 
 **The denial of the cup to the people, worshipping the elements, the lifting them up, or carrying them about for adoration, and reserving them for any pretended religious use, are all contrary to the nature of this ordinance, and to the institution of Christ.**
 
+<!-- 
+This page discusses the ordinance of the Lord's Supper and the practices that are contrary to its nature and Christ's institution. It explains that denying the cup to the people, worshipping the elements, lifting them up, carrying them for adoration, or reserving them for any pretended religious use are all contrary to the ordinance. The page includes references to Matthew 26:26-28, Matthew 15:9, and Exodus 20:4-5 from the Christian Standard Bible (CSB) to support these points.
+-->
+
 ## The Confession
 
 >Matthew 26:26–28 (CSB) As they were eating, Jesus took bread, blessed and broke it, gave it to the disciples, and said, “Take and eat it; this is my body.” Then he took a cup, and after giving thanks, he gave it to them and said, “Drink from it, all of you. For this is my blood of the covenant, which is poured out for many for the forgiveness of sins.

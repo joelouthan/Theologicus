@@ -12,6 +12,10 @@
 
 **In this ordinance Christ is not offered up to his Father, nor any real sacrifice made at all for remission of sin of the quick or dead, but only a memorial of that one offering up of himself by himself upon the cross, once for all; and a spiritual oblation of all possible praise unto God for the same. So that the popish sacrifice of the mass, as they call it, is most abominable, injurious to Christ's own sacrifice the alone propitiation for all the sins of the elect.**
 
+<!-- 
+This page discusses the ordinance of the Lord's Supper as a memorial of Christ's sacrifice. It explains that in this ordinance, Christ is not offered up again to the Father, nor is any real sacrifice made for the remission of sins. Instead, it is a memorial of Christ's one-time offering of Himself on the cross and a spiritual offering of praise to God. The page includes references to Hebrews 9:25-28 from the Christian Standard Bible (CSB) to support these points.
+-->
+
 ## The Confession
 
 ### In this ordinance Christ is not offered up to his Father, nor any real sacrifice made at all for remission of sin of the quick or dead, but only a memorial of that one offering up of himself by himself upon the cross, once for all

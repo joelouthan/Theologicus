@@ -12,6 +12,10 @@
 
 **The supper of the Lord Jesus was instituted by him the same night wherein he was betrayed, to be observed in his churches, unto the end of the world, for the perpetual remembrance, and shewing forth the sacrifice of himself in his death, confirmation of the faith of believers in all the benefits thereof, their spiritual nourishment, and growth in him, their further engagement in, and to all duties which they owe to him; and to be a bond and pledge of their communion with him, and with each other.**
 
+<!-- 
+This page discusses the ordinance of the Lord's Supper as instituted by Jesus Christ. It explains that the Lord's Supper is to be observed in churches until the end of the world as a perpetual remembrance of Christ's sacrifice, a confirmation of the faith of believers, their spiritual nourishment and growth, and a bond of communion with Christ and each other. The page includes references to 1 Corinthians 11:23-26 from the Christian Standard Bible (CSB) to support these points.
+-->
+
 ## The Confession
 
 ### The supper of the Lord Jesus was instituted by him the same night wherein he was betrayed, to be observed in his churches, unto the end of the world, for the perpetual remembrance, and showing to all the world the sacrifice of himself in his death
