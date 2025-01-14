@@ -16,6 +16,8 @@
 
 ## The Confession
 
-In the past, I have definitely administered communion when I was not ordained by a pastor. Now that I see the Scriptures and this doctrine has been crystallized for me, I would not do that again. Similarly to what I wrote about administration and baptism [^1]
+In the past, I have definitely administered communion when I was not ordained by a pastor. Now that I see the Scriptures and this doctrine has been crystallized for me, I would not do that again. Similarly to what I wrote about administration and baptism, [^1] this now becomes a conviction for myself. I would not administer communion unless I was ordained by a pastor.
 
-[^1]: []
+Reminder that these are my convictions and not necessarily the convictions of other Christians.
+
+[^1]: [28.2 The Sacraments: Commission by Christ](1689-28-2-the-sacraments-commission-by-christ.md)
