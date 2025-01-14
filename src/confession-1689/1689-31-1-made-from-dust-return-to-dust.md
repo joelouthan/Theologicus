@@ -34,6 +34,8 @@
 
 >Hebrews 12:23 (CSB) to the assembly of the firstborn whose names have been written in heaven, to a Judge, who is God of all, to the spirits of righteous people made perfect,
 
+>Romans 8:23 (CSB) Not only that, but we ourselves who have the Spirit as the firstfruits—we also groan within ourselves, eagerly waiting for adoption, the redemption of our bodies.
+
 ### and the souls of the wicked are cast into hell; where they remain in torment and utter darkness, reserved to the judgment of the great day; besides these two places, for souls separated from their bodies, the Scripture acknowledgeth none
 
 >Jude 6–7 (CSB) and the angels who did not keep their own position but abandoned their proper dwelling, he has kept in eternal chains in deep darkness for the judgment on the great day. Likewise, Sodom and Gomorrah and the surrounding towns committed sexual immorality and perversions, and serve as an example by undergoing the punishment of eternal fire.
@@ -41,3 +43,17 @@
 >1 Peter 3:19 (CSB) in which he also went and made proclamation to the spirits in prison
 
 >Luke 16:23–24 (CSB) And being in torment in Hades, he looked up and saw Abraham a long way off, with Lazarus at his side. ‘Father Abraham!’ he called out, ‘Have mercy on me and send Lazarus to dip the tip of his finger in water and cool my tongue, because I am in agony in this flame!’
+
+There are a few things that we know what happens for certain after we die. Now, the Bible does not tell us everything, especially concerning the afterlife, as far as how or when. So I don't want to take the time to speculate or theorize. But there are a few things that we know for certain.
+
+First and foremost, since we are made from dust, we return back to dust. That is a theological and scientific fact. Any religion that speculates outside of that statement falls outside of orthodox Christianity.
+
+Second, we know that our souls are immortal--what God created was intended to be eternal. Our souls do not die nor sleep--they go to our Creator.
+
+For believers--that is the predestined that is called that is justified that is glorified believers of Christ, they will behold the face of their loving Savior, Jesus Christ.
+
+Unbelievers, the wrath of Christ will remain upon them for eternity.
+
+>John 3:36 (CSB) The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
+
+Amen.
