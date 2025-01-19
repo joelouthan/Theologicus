@@ -1919,7 +1919,7 @@ The sabbath is then kept holy unto the Lord, when men, after a due preparing of 
 
 ## [Chapter XXIII. Of Lawful Oaths and Vows](1689-23-0-index.md)
 
-### [23.1 Oath: The Witness of God](1689-23-1-oath-the-witness-of-god.md)
+### 23.1 Oath: The Witness of God
 
 A lawful oath is a part of religious worship, wherein the person swearing in truth, righteousness, and judgement, solemnly calleth God to witness what he sweareth, and to judge him according to the truth or falseness thereof.
 
@@ -1931,7 +1931,7 @@ A lawful oath is a part of religious worship, wherein the person swearing in tru
 
 >2 Chronicles 6:22–23 (CSB) If a man sins against his neighbor and is forced to take an oath and he comes to take an oath before your altar in this temple, may you hear in heaven and act. May you judge your servants, condemning the wicked man by bringing what he has done on his own head and providing justice for the righteous by rewarding him according to his righteousness.
 
-### [23.2 Oath: The Name Of God](1689-23-2-oath-the-name-of-god.md)
+### 23.2 Oath: The Name Of God
 
 The name of God only is that by which men ought to swear; and therein it is to be used, with all holy fear and reverence; therefore to swear vainly or rashly by that glorious and dreadful name, or to swear at all by any other thing, is sinful, and to be abhorred; yet as in matter of weight and moment, for confirmation of truth, and ending all strife, an oath is warranted by the word of God; so a lawful oath being imposed by lawful authority in such matters, ought to be taken.
 
@@ -1945,7 +1945,7 @@ The name of God only is that by which men ought to swear; and therein it is to b
 
 >Nehemiah 13:25 (CSB) I rebuked them, cursed them, beat some of their men, and pulled out their hair. I forced them to take an oath before God and said, “You must not give your daughters in marriage to their sons or take their daughters as wives for your sons or yourselves!
 
-### [23.3 Oath: The Weight of Glory](1689-23-3-oath-the-weight-of-glory.md)
+### 23.3 Oath: The Weight of Glory
 
 Whosoever taketh an oath warranted by the Word of God, ought duly to consider the weightiness of so solemn an act, and therein to avouch nothing but what he knoweth to be truth; for that by rash, false, and vain oaths, the Lord is provoked, and for them this land mourns.
 
@@ -1953,13 +1953,13 @@ Whosoever taketh an oath warranted by the Word of God, ought duly to consider th
 
 >Jeremiah 23:10 (CSB) For the land is full of adulterers; the land mourns because of the curse, and the grazing lands in the wilderness have dried up. Their way of life has become evil, and their power is not rightly used
 
-### [23.4 Oath: The Clarity of God](1689-23-4-oath-the-clarity-of-god.md)
+### 23.4 Oath: The Clarity of God
 
 An oath is to be taken in the plain and common sense of the words, without equivocation or mental reservation.
 
 >Psalm 24:4 (CSB) The one who has clean hands and a pure heart, who has not appealed to what is false, and who has not sworn deceitfully.
 
-### [23.5 Vow: To God Alone](1689-23-5-vow-to-god-alone.md)
+### 23.5 Vow: To God Alone
 
 A vow, which is not to be made to any creature, but to God alone, is to be made and performed with all religious care and faithfulness; but popish monastical vows of perpetual single life, professed poverty, and regular obedience, are so far from being degrees of higher perfection, that they are superstitious and sinful snares, in which no Christian may entangle himself.
 
@@ -1975,13 +1975,13 @@ A vow, which is not to be made to any creature, but to God alone, is to be made 
 
 ## [Chapter XXIV. Of the Civil Magistrate](1689-24-0-index.md)
 
-### [24.1 Of the Civil Magistrate: King of Kings](1689-24-1-of-the-civil-magistrate-king-of-kings.md)
+### 24.1 Of the Civil Magistrate: King of Kings
 
 God, the supreme Lord and King of all the world, hath ordained civil magistrates to be under him, over the people, for his own glory and the public good; and to this end hath armed them with the power of the sword, for defence and encouragement of them that do good, and for the punishment of evil doers.
 
 >Romans 13:1–4 (CSB) Let everyone submit to the governing authorities, since there is no authority except from God, and the authorities that exist are instituted by God. So then, the one who resists the authority is opposing God’s command, and those who oppose it will bring judgment on themselves. For rulers are not a terror to good conduct, but to bad. Do you want to be unafraid of the one in authority? Do what is good, and you will have its approval. For it is God’s servant for your good. But if you do wrong, be afraid, because it does not carry the sword for no reason. For it is God’s servant, an avenger that brings wrath on the one who does wrong.
 
-### [24.2 Of the Civil Magistrate: Lord of Lords](1689-24-2-of-the-civil-magistrate-lord-of-lords.md)
+### 24.2 Of the Civil Magistrate: Lord of Lords
 
 It is lawful for Christians to accept and execute the office of a magistrate when called there unto; in the management whereof, as they ought especially to maintain justice and peace, according to the wholesome laws of each kingdom and commonwealth, so for that end they may lawfully now, under the New Testament wage war upon just and necessary occasions.
 
@@ -1991,7 +1991,7 @@ It is lawful for Christians to accept and execute the office of a magistrate whe
 
 >Luke 3:14 (CSB) Some soldiers also questioned him, “What should we do?” He said to them, “Don’t take money from anyone by force or false accusation, and be satisfied with your wages.”
 
-### [24.3 Of the Civil Magistrate: The Almighty God](1689-24-3-of-the-civil-magistrate-the-almighty-god.md)
+### 24.3 Of the Civil Magistrate: The Almighty God
 
 Civil magistrates being set up by God for the ends aforesaid; subjection, in all lawful things commanded by them, ought to be yielded by us in the Lord, not only for wrath, but for conscience sake; and we ought to make supplications and prayers for kings and all that are in authority, that under them we may live a quiet and peaceable life, in all godliness and honesty.
 
@@ -2003,7 +2003,7 @@ Civil magistrates being set up by God for the ends aforesaid; subjection, in all
 
 ## [Chapter XXV. Of Marriage](1689-25-0-index.md)
 
-### [25.1 From the Bridegroom: Marriage is Between One Man & One Woman](1689-25-1-from-the-bridegroom-marriage-is-between-one-man-&-one-woman.md)
+### 25.1 From the Bridegroom: Marriage is Between One Man & One Woman
 
 Marriage is to be between one man and one woman; neither is it lawful for any man to have more than one wife, nor for any woman to have more than one husband at the same time.
 
@@ -2013,7 +2013,7 @@ Marriage is to be between one man and one woman; neither is it lawful for any ma
 
 >Matthew 19:5–6 (CSB) and he also said, ‘For this reason a man will leave his father and mother and be joined to his wife, and the two will become one flesh’? So they are no longer two, but one flesh. Therefore, what God has joined together, let no one separate.”
 
-### [25.2 From the Bridegroom: Goodness for Husband & Wife](1689-25-2-from-the-bridegroom-goodness-for-husband-&-wife.md)
+### 25.2 From the Bridegroom: Goodness for Husband & Wife
 
 Marriage was ordained for the mutual help of husband and wife, for the increase of mankind with a legitimate issue, and the preventing of uncleanness.
 
@@ -2023,7 +2023,7 @@ Marriage was ordained for the mutual help of husband and wife, for the increase 
 
 >1 Corinthians 7:2–9 (CSB) But because sexual immorality is so common, each man should have sexual relations with his own wife, and each woman should have sexual relations with her own husband. A husband should fulfill his marital duty to his wife, and likewise a wife to her husband. A wife does not have the right over her own body, but her husband does. In the same way, a husband does not have the right over his own body, but his wife does. Do not deprive one another—except when you agree for a time, to devote yourselves to prayer. Then come together again; otherwise, Satan may tempt you because of your lack of self-control. I say this as a concession, not as a command. I wish that all people were as I am. But each has his own gift from God, one person has this gift, another has that. I say to the unmarried and to widows: It is good for them if they remain as I am. But if they do not have self-control, they should marry, since it is better to marry than to burn with desire.
 
-### [25.3 From the Bridegroom: Equally Yoked Between Husband & Wife](1689-25-3-from-the-bridegroom-equally-yoked-between-husband-&-wife.md)
+### 25.3 From the Bridegroom: Equally Yoked Between Husband & Wife
 
 It is lawful for all sorts of people to marry, who are able with judgment to give their consent; yet it is the duty of Christians to marry in the Lord; and therefore such as profess the true religion, should not marry with infidels, or idolaters; neither should such as are godly, be unequally yoked, by marrying with such as are wicked in their life, or maintain damnable heresy.
 
@@ -2035,7 +2035,7 @@ It is lawful for all sorts of people to marry, who are able with judgment to giv
 
 >Nehemiah 13:25–27 (CSB) I rebuked them, cursed them, beat some of their men, and pulled out their hair. I forced them to take an oath before God and said, “You must not give your daughters in marriage to their sons or take their daughters as wives for your sons or yourselves! Didn’t King Solomon of Israel sin in matters like this? There was not a king like him among many nations. He was loved by his God, and God made him king over all Israel, yet foreign women drew him into sin. Why then should we hear about you doing all this terrible evil and acting unfaithfully against our God by marrying foreign women?”
 
-### [25.4 From the Bridegroom: Marriage is of Man & Wife](1689-25-4-from-the-bridegroom-marriage-is-of-man-&-wife.md)
+### 25.4 From the Bridegroom: Marriage is of Man & Wife
 
 Marriage ought not to be within the degrees of consanguinity or affinity, forbidden in the Word; nor can such incestuous marriages ever be made lawful, by any law of man or consent of parties, so as those persons may live together as man and wife.
 
