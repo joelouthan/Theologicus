@@ -9,10 +9,10 @@ of my only, only Lord Jesus.
 - [1 Samuel](https://theologic.us/samuel-1/index.html)
 - [Matthew](https://theologic.us/matthew/index.md)
 - [Christ Came to Save Sinners](https://theologic.us/doctrine-christ-saves/index.html)
-- [1689 Second London Baptist Confession](https://theologic.us/confession-1689/index.md)
 
 ## releases
 
+- v3.4 (2025 Jan 19) [1689 Second London Baptist Confession](https://theologic.us/confession-1689/index.md)
 - v3.3.2 (2024 Apr 10) Port 1689 to [submodule](https://github.com/joelouthan/theologicus-1689)
 - v3.3.1 (2024 Jan 7) [Swift port](https://github.com/joelouthan/com.theologicus)
 - v3.3 (2023 Jul 16) [Apostles' Creed](https://theologic.us/creed-apostles/index.md)
