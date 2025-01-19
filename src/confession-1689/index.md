@@ -2499,7 +2499,7 @@ The end of God's appointing this day, is for the manifestation of the glory of h
 
 >2 Thessalonians 1:7–10 (CSB) and to give relief to you who are afflicted, along with us. This will take place at the revelation of the Lord Jesus from heaven with his powerful angels, when he takes vengeance with flaming fire on those who don’t know God and on those who don’t obey the gospel of our Lord Jesus. They will pay the penalty of eternal destruction from the Lord’s presence and from his glorious strength on that day when he comes to be glorified by his saints and to be marveled at by all those who have believed, because our testimony among you was believed.
 
-### [32.3 The Quick & The Dead: Come Lord Jesus--Amen](1689-32-3-the-quick-&-the-dead-come-lord-jesus-amen.md)
+### [32.3 The Quick & The Dead: Come Lord Jesus--Amen](1689-32-3-the-quick-and-the-dead-come-lord-jesus-amen.md)
 
 As Christ would have us to be certainly persuaded that there shall be a day of judgment, both to deter all men from sin, and for the greater consolation of the godly in their adversity, so will he have the day unknown to men, that they may shake off all carnal security, and be always watchful, because they know not at what hour the Lord will come, and may ever be prepared to say, Come Lord Jesus; come quickly. Amen.
 
