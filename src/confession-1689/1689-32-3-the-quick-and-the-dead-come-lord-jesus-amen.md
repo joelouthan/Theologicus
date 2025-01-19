@@ -272,7 +272,7 @@ my Song
 my Love  
   
 my Jesus Christ, King, Lord, Savior and Messiah  
-my Father, my Dad, my Abba, my heart  
+my Father, my Father, my Abba, my heart  
 my Holy Spirit, my comfort, my peace, my gift, my breath.  
   
  So I will be so very careful to  
