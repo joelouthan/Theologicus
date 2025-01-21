@@ -1,6 +1,8 @@
 <img class="intro-right" src="logo-theologicus.png">
 
-# Theologicus: Some Expository Thoughts
+<p style="font-size: 2em; margin-bottom: 0px "><strong><a class="header" href="#theologicus-some-expository-thoughts">Theologicus: Some Expository Thoughts</a></strong></p>
+
+<p style="font-size: 1.6rem; margin-top: 0px "><i>A Devotional Commentary Collection</i><p>
 
 ## The Thought
 
