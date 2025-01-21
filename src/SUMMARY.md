@@ -660,8 +660,6 @@
     - [Psalm 119:32](psalms/psalm119-32.md)
     - [Psalm 119:33-34](psalms/psalm119-33-40.md)
     - [Psalm 119:41-48](psalms/psalm119-41-48.md)
-    - [Psalm 119:33-34](psalms/psalm119-33-40.md)
-    - [Psalm 119:41-48](psalms/psalm119-41-48.md)
     - [Psalm 119:49-56](psalms/psalm119-49-56.md)
     - [Psalm 119:57-64](psalms/psalm119-57-64.md)
     - [Psalm 119:65-72](psalms/psalm119-65-72.md)
