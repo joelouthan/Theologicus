@@ -1,8 +1,8 @@
 <img class="intro-right" src="book-ccss-3.jpg">
 
-# Christ Came to Save Sinners, An Introduction & Resources
+<p style="font-size: 2em; margin-bottom: 0px "><strong><a class="header" href="#christ-came-to-save-sinners-an-introduction--resources">Christ Came to Save Sinners, An Introduction & Resources</a></strong></p>
 
-*An Exposition of 1 Timothy 1:15 concerning the Order of Salvation*
+<p style="font-size: 1.6rem; margin-top: 0px "><i>An Exposition of 1 Timothy 1:15 concerning the Order of Salvation</i><p>
 
 ## The Text
 
@@ -14,11 +14,15 @@
 
 ## The Introduction
 
-<!--
-TODO: Write an introduction on what is *Ordo Salutis*? Where it come from? what was the earliest text? why is it important? 
--->
+What is Ordo Salatis? It is a Latin term used by the Lutherans in mid 1720s which simply means, "The Order of Salvation". [^1][^2]
 
-Early early days of my Christian life--early days of pre-Theologicus blogging and way way too much social media presence, I came up an idea to give thanks to God every day in the month of November. I would take what God has done and list every bit of Scripture I could find that would show who God is and what he has done for us. It started with his attributes--his holiness, goodness, love, mercies, etc--and give Scriptural prooftext for those things. Further still, in what God did for us, give the same thanks for all of he has done in us. God thought of us--all the Scriptures. God saved us--all the Scriptures. And so forth. This was used to essentially to expound essentially *Ordo Salutis* or *the Order of Salvation*, which is this:
+Why is that so important? Yes, we do know that God is sovereign and exists and operates outside of time. He is not constrained by it because he is the creator of time. But his creation is bound by time and we, his imagebearers, are not the exception. (We feel this every day of our lives.)
+
+But when God saves, he does save in a logical, particular order. And again, it is not that God constrained by logic. But make it make sense. If we were predestined by God, does that mean we get to live a life of unrestrained sin with zero repentance? No! There is an order in what God does in order to save his people from their sins.[^3]
+
+So what does *Ordo Salutis* have anything to do with 1 Timothy 1:15?
+
+In the early days of my Christian life--early days of pre-Theologicus blogging and way too much social media presence, I came up an idea to give thanks to God every day in the month of November. I would take what God has done and list every bit of Scripture I could find that would show who God is and what he has done for us. It started with his attributes--his holiness, goodness, love, mercies, etc--and give Scriptural prooftext for those things. Further still, in what God did for us, give the same thanks for all of he has done in us. God thought of us--all the Scriptures. God saved us--all the Scriptures. And so forth. This was used to essentially to expound essentially *Ordo Salutis* or *the Order of Salvation*, which is this:
 
 >Romans 8:30 (CSB) And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
 
@@ -45,3 +49,9 @@ This is that new series. Lots of work and a little bit of writing and re-writing
 ### Theology
 
 {{#include ../bibliography/biblio-theology.md}}
+
+[^1]: Ferguson, Sinclair B., David F. Wright, and James Innell Packer, eds. New Dictionary of Theology. Nachdr. The Master 
+
+[^2]: “Ordo Salutis.” In Wikipedia, December 8, 2024. <https://en.wikipedia.org/w/index.php?title=Ordo_salutis&oldid=1261932539#cite_note-5>.
+
+[^3]: Ligonier Ministries. “The Order of Salvation | Reformed Bible Studies & Devotionals at Ligonier.Org.” Accessed January 22, 2025. <https://learn.ligonier.org/devotionals/order-salvation>.
