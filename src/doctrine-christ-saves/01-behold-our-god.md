@@ -1,12 +1,12 @@
 <img class="intro-right" src="book-ccss-3.jpg">
 
-# Behold Our God
+<p style="font-size: 2em; margin-bottom: 0px "><strong><a class="header" href="#behold-our-god">Behold Our God</a></strong></p>
+
+<p style="font-size: 1.6rem; margin-top: 0px "><i>This is Our God</i><p>
 
 ## The Text
 
->Romans 8:27-30 And he who searches hearts knows what is the mind of the Spirit, because the Spirit intercedes for the saints according to the will of God. And we know that for those who love God all things work together for good, for those who are called according to his purpose. For those whom he foreknew he also predestined to be conformed to the image of his Son, in order that he might be the firstborn among many brothers.
->
-><span class="bgyc">And those whom he predestined he also called, and those whom he called he also justified, and those whom he justified he also glorified.</span>
+>Romans 8:27–30 (CSB) And he who searches our hearts knows the mind of the Spirit, because he intercedes for the saints according to the will of God. We know that all things work together for the good of those who love God, who are called according to his purpose. For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. <span class="bgy">And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.</span>
 
 ## The Devotion
 
