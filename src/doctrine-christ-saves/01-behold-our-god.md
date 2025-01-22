@@ -1,8 +1,8 @@
 <img class="intro-right" src="book-ccss-3.jpg">
 
-<p style="font-size: 2em; margin-bottom: 0px "><strong><a class="header" href="#behold-our-god">Behold Our God</a></strong></p>
+<p style="font-weight: bold; font-size: 2em; margin-bottom: 0px "><a class="header" href="#behold-our-god">Behold Our God</a></p>
 
-<p style="font-size: 1.6rem; margin-top: 0px "><i>This is Our God</i><p>
+<p style="font-style: italic; font-size: 1.6rem; margin-top: 0px">This is Our God</p>
 
 ## The Text
 
