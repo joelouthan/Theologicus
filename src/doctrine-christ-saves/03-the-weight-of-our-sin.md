@@ -1,6 +1,8 @@
 <img class="intro-right" src="book-ccss-3.jpg">
 
-# The Weight of Our Sin
+<p style="font-weight: bold; font-size: 2em; margin-bottom: 0px "><a class="header" href="#the-weight-of-our-sin">The Weight of Our Sin</a></p>
+
+<p style="font-style: italic; font-size: 1.6rem; margin-top: 0px">The Depravity of Mankind</p>
 
 ## The Text
 
