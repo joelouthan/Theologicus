@@ -1,6 +1,8 @@
 <img class="intro-right" src="book-ccss-3.jpg">
 
-# The Perfection of His Word
+<p style="font-weight: bold; font-size: 2em; margin-bottom: 0px "><a class="header" href="#the-perfection-of-his-word">The Perfection of His Word</a></p>
+
+<p style="font-style: italic; font-size: 1.6rem; margin-top: 0px">Our Complete God</p>
 
 ## The Text
 
