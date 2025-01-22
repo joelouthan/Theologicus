@@ -129,12 +129,12 @@ h6:target::before {
   border-bottom: .1em solid var(--quote-border);
 }
 
-.bgy {
-  width: 100%;
+bgy {
   background-color: yellow;
   color: black;
   font-weight: bold;
-  padding: 3px;
+  padding-left: 3px;
+  padding-right: 3px;
 }
 
 .bgyc {
