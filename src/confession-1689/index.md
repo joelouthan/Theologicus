@@ -1,6 +1,8 @@
 <img class="intro-right" src="art-1689.png">
 
-# 1689 Second London Baptist Confession of Faith With Scripture Proofs
+<p style="font-weight: bold; font-size: 2em; margin-bottom: 0px "><a class="header" href="2lbc">The Second London Baptist Confession of Faith 1689</a></p>
+
+<p style="font-style: italic; font-size: 1.6rem; margin-top: 0px">With Scripture Proofs</p>
 
 ## Table of Contents
 
