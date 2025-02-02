@@ -2,7 +2,7 @@
 
 ## The Introduction
 
-Hello and welcome to [Theologicus](https://theologic.us/)! My name is Joseph Louthan, the sole proprietor and I am thrilled to have you here.
+Hello and welcome to [Theologicus](https://theologic.us/). My name is Joseph Louthan, the sole proprietor and I am thrilled to have you here.
 
 By simply taking a quick glance at the content therein, you can quickly see that [Theologicus](https://theologic.us/) is a small collection of my personal thoughts on God. These writings are from a specific perspective, namely:
 
