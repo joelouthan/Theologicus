@@ -32,7 +32,7 @@ of my only, only Lord Jesus.
 
 ## using
 
-[![tools](https://skillicons.dev/icons?i=vscode,vim,rust,md,css,html,bash,git,github,netlify,linux)]()
+[![tools](https://skillicons.dev/icons?i=vscode,vim,rust,md,css,html,bash,git,github,apple,netlify,linux,redhat)]()
 
 ## built on
 
