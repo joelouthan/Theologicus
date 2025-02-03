@@ -12,5 +12,26 @@
 ## The Psalm
 
 >Psalm 124 (CSB)  
+><sup></sup> A song of ascents. Of David. 
+>
+><sup>1</sup> If the LORD had not been on our side— let Israel say— 
+>
+><sup>2</sup> if the LORD had not been on our side when people attacked us, 
+>
+><sup>3</sup> then they would have swallowed us alive in their burning anger against us. 
+>
+><sup>4</sup> Then the water would have engulfed us; the torrent would have swept over us; 
+>
+><sup>5</sup> the raging water would have swept over us. 
+>
+><sup>6</sup> Blessed be the LORD, who has not let us be ripped apart by their teeth. 
+>
+><sup>7</sup> We have escaped like a bird from the hunter’s net; the net is torn, and we have escaped. 
+>
+><sup>8</sup> Our help is in the name of the LORD, the Maker of heaven and earth.
 
 ## The Prayer
+
+<div style="font-variant: small-caps;">
+My Living Word
+</div>
