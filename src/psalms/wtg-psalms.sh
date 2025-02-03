@@ -16,5 +16,9 @@ for i in {120..150}; do
 >Psalm $i (CSB)  
 
 ## The Prayer
+
+<div style="font-variant: small-caps;">
+My Living Word
+</div>
 EOF
 done
