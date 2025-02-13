@@ -35,3 +35,14 @@
 <div style="font-variant: small-caps;">
 My Living Word
 </div>
+
+I love you Lord
+* you have not let me rot in hell
+* you have not let me see death
+* you have given your Son
+* so I can see your face.
+
+I will praise your name
+* forever.
+
+Amen.
