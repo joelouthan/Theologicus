@@ -26,6 +26,10 @@
 
 ## The Prayer
 
+<div style="font-variant: small-caps;">
+My Most Precious Gift
+</div>
+
 The love you give
 * is steadfast
 * never ceases.

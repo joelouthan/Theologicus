@@ -28,4 +28,8 @@
 
 ## The Prayer
 
+<div style="font-variant: small-caps;">
+My Everlasting to Everlasting
+</div>
+
 **I HAVE YOUR ONLY BEGOTTEN SON FOREVER!**

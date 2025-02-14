@@ -33,7 +33,7 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-My Living Word
+My Savior
 </div>
 
 If I did not have you

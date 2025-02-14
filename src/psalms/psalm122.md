@@ -35,7 +35,7 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-My Living Word
+My God
 </div>
 
 I love coming into your house
