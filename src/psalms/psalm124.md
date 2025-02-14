@@ -35,3 +35,19 @@
 <div style="font-variant: small-caps;">
 My Living Word
 </div>
+
+If I did not have you
+* I would have perished
+* in everlasting hell.
+
+Yet you loved me
+* so much
+* you gave me your Son
+* so I lift my eyes
+* and see him
+* and believe
+* and now
+* I live in your
+* everlasting glory.
+
+Be exalted, O God!
