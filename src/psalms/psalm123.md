@@ -27,3 +27,5 @@
 <div style="font-variant: small-caps;">
 My Living Word
 </div>
+
+Let me see your lovely face today.
