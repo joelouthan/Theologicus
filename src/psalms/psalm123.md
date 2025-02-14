@@ -25,5 +25,7 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-My Living Word
+My Messiah
 </div>
+
+Let me see your lovely face today.
