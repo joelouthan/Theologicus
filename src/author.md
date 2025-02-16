@@ -2,9 +2,9 @@
 
 ## About
 
-<img class="profile-pic" src="jlouthan-ai-starry-back-500-01.png">Hello! My name is Joseph L. Louthan. I am trying to spend all of my days with God--my Beloved is mine and I am his (Songs 2:16). Sarah's husband and a Papa to a few kiddos. In Central Kentucky. Elder Candidate of [Reforming Truth Church](https://reformingtruth.church/). Joyfully ex-Evangelical turned [Reformed Baptist--1689 Confessional](https://theologic.us/confession-1689/).
+<img class="profile-pic" src="jlouthan-ai-starry-back-500-01.png">Hello! My name is Joseph L. Louthan. I am trying to spend all of my days with God--my Beloved is mine and I am His. Sarah's husband and a Papa to a few kiddos. Living in Central Kentucky. An elder candidate of [Reforming Truth Church](https://reformingtruth.church/). Joyfully ex-Evangelical turned [Reformed Baptist--1689 Confessional](https://theologic.us/confession-1689/).
 
-All of my life to live all of my days to express just how much God loves us. Hope to preach the goodness of God. Therefore, [Theologicus](https://theologic.us/) is my attempt to prepare for that one day that I get to preach every day for the rest of my life and twice on Sunday--for the sake of his great name and his glory alone.
+This blog is a collection of writings--[devotional, expository thoughts](https://theologic.us) on the gospel of God--the good news of what Christ has done for us.
 
 And if I have fifteen minutes to spare in my day, I'm intensely mediocre at [StarCraft 2](https://starcraft2.blizzard.com/en-us/).
 
