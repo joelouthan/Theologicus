@@ -45,7 +45,7 @@
 
 **Where do you see God in the text? What does the text say about God?**
 
-## God
+## Our God
 
 Just from the life of Saul, who then became Paul, what do we know about God?
 
