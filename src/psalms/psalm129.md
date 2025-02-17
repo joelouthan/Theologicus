@@ -12,6 +12,23 @@
 ## The Psalm
 
 >Psalm 129 (CSB)  
+><sup></sup> A song of ascents. 
+>
+><sup>1</sup> Since my youth they have often attacked me— let Israel say— 
+>
+><sup>2</sup> since my youth they have often attacked me, but they have not prevailed against me. 
+>
+><sup>3</sup> Plowmen plowed over my back; they made their furrows long. 
+>
+><sup>4</sup> The LORD is righteous; he has cut the ropes of the wicked. 
+>
+><sup>5</sup> Let all who hate Zion be driven back in disgrace. 
+>
+><sup>6</sup> Let them be like grass on the rooftops, which withers before it grows up 
+>
+><sup>7</sup> and can’t even fill the hands of the reaper or the arms of the one who binds sheaves. 
+>
+><sup>8</sup> Then none who pass by will say, “May the LORD’s blessing be on you. We bless you in the name of the LORD.”
 
 ## The Prayer
 

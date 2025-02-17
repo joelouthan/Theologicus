@@ -12,6 +12,13 @@
 ## The Psalm
 
 >Psalm 133 (CSB)  
+><sup></sup> A song of ascents. Of David. 
+>
+><sup>1</sup> How delightfully good when brothers live together in harmony! 
+>
+><sup>2</sup> It is like fine oil on the head, running down on the beard, running down Aaron’s beard onto his robes. 
+>
+><sup>3</sup> It is like the dew of Hermon falling on the mountains of Zion. For there the LORD has appointed the blessing— life forevermore.
 
 ## The Prayer
 
