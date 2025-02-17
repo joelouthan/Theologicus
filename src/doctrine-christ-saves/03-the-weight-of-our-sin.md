@@ -6,13 +6,58 @@
 
 ## The Text
 
->Psalm 51:4 (CSB) <bgy>Against you—you alone—I have sinned and done this evil in your sight.</bgy> So you are right when you pass sentence; you are blameless when you judge.
+>Judges 21:25b (CSB) [. . .] <span class="bgy">Everyone did what was right in his own eyes.</span>
 
 ## The Devotion
 
 
 
 ## The Scriptures
+
+>Genesis 3:4-7 (CSB) “No! You will certainly not die,” the serpent said to the woman. “In fact, God knows that when you eat it your eyes will be opened and you will be like God, knowing good and evil.” The woman saw that the tree was good for food and delightful to look at, and that it was desirable for obtaining wisdom. So she took some of its fruit and ate it; she also gave some to her husband, who was with her, and he ate it. Then the eyes of both of them were opened, and they knew they were naked; so they sewed fig leaves together and made coverings for themselves.
+
+>Genesis 3:14 (CSB) So the LORD God said to the serpent:  
+>Because you have done this,  
+>you are cursed more than any livestock  
+>and more than any wild animal.  
+>You will move on your belly  
+>and eat dust all the days of your life.
+
+>Genesis 3:22-24 (CSB) The LORD God said, “Since the man has become like one of us, knowing good and evil, he must not reach out, take from the tree of life, eat, and live forever.” So the LORD God sent him away from the garden of Eden to work the ground from which he was taken. He drove the man out and stationed the cherubim and the flaming, whirling sword east of the garden of Eden to guard the way to the tree of life.
+
+>Genesis 3:16–19 (CSB)  
+><sup>16</sup> He said to the woman: I will intensify your labor pains; you will bear children with painful effort. Your desire will be for your husband, yet he will rule over you. 
+>
+><sup>17</sup> And he said to the man, “Because you listened to your wife and ate from the tree about which I commanded you, ‘Do not eat from it’: The ground is cursed because of you. You will eat from it by means of painful labor all the days of your life. 
+>
+><sup>18</sup> It will produce thorns and thistles for you, and you will eat the plants of the field. 
+>
+><sup>19</sup> You will eat bread by the sweat of your brow until you return to the ground, since you were taken from it. For you are dust, and you will return to dust.”
+
+>Romans 3:10–19 (CSB)  
+><sup>10</sup> as it is written: There is no one righteous, not even one. 
+>
+><sup>11</sup> There is no one who understands; there is no one who seeks God. 
+>
+><sup>12</sup> All have turned away; all alike have become worthless. There is no one who does what is good, not even one. 
+>
+><sup>13</sup> Their throat is an open grave; they deceive with their tongues. Vipers’ venom is under their lips. 
+>
+><sup>14</sup> Their mouth is full of cursing and bitterness. 
+>
+><sup>15</sup> Their feet are swift to shed blood; 
+>
+><sup>16</sup> ruin and wretchedness are in their paths, 
+>
+><sup>17</sup> and the path of peace they have not known. 
+>
+><sup>18</sup> There is no fear of God before their eyes. 
+>
+><sup>19</sup> Now we know that whatever the law says, it speaks to those who are subject to the law, so that every mouth may be shut and the whole world may become subject to God’s judgment.
+
+>Romans 3:23 (CSB) For all have sinned and fall short of the glory of God.
+
+>James 2:10 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
 
 >Leviticus 18:24–22:31 (CSB)  
 ><sup>24</sup> “Do not defile yourselves by any of these practices, for the nations I am driving out before you have defiled themselves by all these things. 
@@ -358,3 +403,5 @@
 ><sup>11</sup> Dear friends, I urge you as strangers and exiles to abstain from sinful desires that wage war against the soul. 
 >
 ><sup>12</sup> Conduct yourselves honorably among the Gentiles, so that when they slander you as evildoers, they will observe your good works and will glorify God on the day he visits.
+
+>Psalm 51:4 (CSB) <span class="bgy">Against you—you alone—I have sinned and done this evil in your sight. So you are right when you pass sentence; you are blameless when you judge.
