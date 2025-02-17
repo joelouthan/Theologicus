@@ -29,5 +29,32 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+My Blessing & Keeping
 </div>
+
+You are my great God
+* who sought in your good pleasure
+* to create me
+* to be on this earth
+* but more so
+* before the mountains were formed
+* you saw the depths of my heart
+* you knew my wickedness
+* and you cared enough
+* to save me
+* to keep me
+* to bless me.
+
+I am so immensely blessed
+* from your own hand
+* and I have everything
+* because I have your only begotten Son
+* my only, only Lord Jesus Christ.
+
+I love you
+* and all that is in me
+* I will bless your holy name
+* forevermore.
+
+Amen.
+
