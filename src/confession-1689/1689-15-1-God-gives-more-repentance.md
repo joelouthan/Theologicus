@@ -184,7 +184,7 @@ I have been saved for about 17 years. Every day of my saved life I have had to c
 
 If God gives us everything we need for salvation, including his Son, his Spirit, his heart, righteousness, holiness, love, grace, mercy, faith, adoption, growth, and himself, then why would we think that somehow repentance is something within our own power.
 
-We are born of Adam--born into sin and of sin. Sin has infected and affected us down to our core. To turn away from sin and unto God cannot be done in our power--not even the littlest bit. God has called us to repent but he "remembers that we are made from dust" and has the deepest compassionate.
+We are born of Adam--born into sin and of sin. Sin has infected and affected us down to our core. To turn away from sin and unto God cannot be done in our power--not even the littlest bit.
 
 You and I are called to repent. But unless something outside of us happens, then we are utterly powerless to repent of our sin.
 

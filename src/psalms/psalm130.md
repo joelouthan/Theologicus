@@ -12,6 +12,23 @@
 ## The Psalm
 
 >Psalm 130 (CSB)  
+><sup></sup> A song of ascents. 
+>
+><sup>1</sup> Out of the depths I call to you, LORD! 
+>
+><sup>2</sup> Lord, listen to my voice; let your ears be attentive to my cry for help. 
+>
+><sup>3</sup> LORD, if you kept an account of iniquities, Lord, who could stand? 
+>
+><sup>4</sup> But with you there is forgiveness, so that you may be revered. 
+>
+><sup>5</sup> I wait for the LORD; I wait and put my hope in his word. 
+>
+><sup>6</sup> I wait for the Lord more than watchmen for the morning— more than watchmen for the morning. 
+>
+><sup>7</sup> Israel, put your hope in the LORD. For there is faithful love with the LORD, and with him is redemption in abundance. 
+>
+><sup>8</sup> And he will redeem Israel from all its iniquities.
 
 ## The Prayer
 

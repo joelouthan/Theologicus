@@ -13,7 +13,7 @@
 >
 ><sup>9</sup> The fear of the LORD is pure, enduring forever; the ordinances of the LORD are reliable and altogether righteous. 
 >
-><sup>10</sup> They are more desirable than gold— than an abundance of pure gold; and sweeter than honey dripping from a honeycomb. 
+><sup>10</sup> <span class="bgy">They are more desirable than gold— than an abundance of pure gold; and sweeter than honey dripping from a honeycomb.</span> 
 
 ## The Devotion
 
