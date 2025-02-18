@@ -12,7 +12,7 @@ And if I have fifteen minutes to spare in my day, I'm intensely mediocre at [Sta
 
 <div class="contact-info">
 
-  [![Cell](https://img.shields.io/badge/SMS-joseph-437790?style=for-the-badge&logo=Apple)](sms:8177071486)[![Email](https://img.shields.io/badge/Email-joseph-success?style=for-the-badge&logo=Minutemailer)](mailto:joe@theologic.us)[![GitHub](https://img.shields.io/badge/GitHub-joseph-171515?style=for-the-badge&logo=GitHub)](https://github.com/joelouthan)[![Twitter](https://img.shields.io/badge/Twitter-josephlouthan-blue?style=for-the-badge&logo=twitter)](https://twitter.com/josephlouthan)[![StarCraft 2](https://img.shields.io/badge/StarCraft%202-Nachoz%2311728-80A6C6?style=for-the-badge)](https://starcraft2.com/)
+  [![Cell](https://img.shields.io/badge/SMS-joseph-437790?style=for-the-badge&logo=Apple)](sms:8177071486)[![Email](https://img.shields.io/badge/Email-joseph-success?style=for-the-badge&logo=Minutemailer)](mailto:joe@theologic.us)[![GitHub](https://img.shields.io/badge/GitHub-joseph-171515?style=for-the-badge&logo=GitHub)](https://github.com/joelouthan)[![StarCraft 2](https://img.shields.io/badge/StarCraft%202-Nachoz%2311728-80A6C6?style=for-the-badge)](https://starcraft2.com/)
 
 </div>
 
