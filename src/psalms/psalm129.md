@@ -33,5 +33,36 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+My Conqueror,
 </div>
+
+I have no enemies
+* other than Satan
+* sin
+* death
+* demons
+* and hell.
+
+They have attacked me since my youth
+* and many times
+* it feels like 
+* they have conquered me
+* they alone have sought
+* to grind my bones into dust
+* they alone have sought
+* to see the end of my life.
+
+And they nearly did.
+
+But You, O Lord,
+* are always compassionate
+* and you took pity on me
+* and you saved me
+* from darkness
+* from the grip of sin
+* from the power of death.
+
+I will praise your name
+* Lord Jesus.
+
+Amen.
