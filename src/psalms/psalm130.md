@@ -33,5 +33,26 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+My Rescuer
 </div>
+
+When I have called to you, O Lord,
+* you have answered me
+* you have listened to my voice.
+
+I cry for help
+* I scream for salvation
+* and I need your Son
+* you answer has always been
+* yes and Amen.
+
+I have sought your face
+* and you have never denied me
+* you have never turned me away
+* you have never said no to me.
+
+You are mine
+* and I am yours
+* forevermore.
+
+Amen.
