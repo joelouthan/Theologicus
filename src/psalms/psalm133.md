@@ -23,5 +23,33 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+My Eldest Brother
 </div>
+
+Thank you for gathering us
+* into your family
+* into your church
+* so that we can live together
+* and know one another
+* and love one another.
+
+I remember moving to a foreign land
+* knowing no one
+* and being all alone
+* my prayers ahead of time
+* above all things
+* give me a church, O Lord
+* and look
+* you have provided
+* within a month of arriving
+* you provided a church
+* for me and my family.
+
+You were so quick to answer
+* and respond and provide
+* I love you with all of my heart
+* and I am so grateful
+* and I will bless your holy name
+* my King Jesus.
+
+Amen.

@@ -53,5 +53,28 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+My Lord
 </div>
+
+I give you thanks
+* for saving your people
+* unto you
+* and giving the call
+* and the command
+* to have your people gather
+* on the day of resurrection
+* of your only begotten Son
+* to worship you
+* all of our days.
+
+Continue to gather us
+* give us grace
+* to give you worship
+* and to love one another.
+
+I love you Lord
+* and I will bless your holy name
+* all because of what you have done
+* for us.
+
+Amen.
