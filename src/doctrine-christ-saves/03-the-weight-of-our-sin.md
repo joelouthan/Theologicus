@@ -10,7 +10,82 @@
 
 ## The Devotion
 
+What is sin?
 
+The Oxford Dictionary defines sin as “An act which is regarded as a transgression of the divine law and an offence against God; a violation (esp. wilful or deliberate) of some religious or moral principle.”[^1]
+
+God defines sin as "falling short of the glory of God" (Romans 3:23).
+
+In other words, God is most glorious--that is, *most perfect* amd *maxed out perfection* in his glory. To lest we confused actual perfection that can only be found in God alone and the local coffee diner that makes the "most perfect" cinnamon rolls ever. Humans, especially English speakers, have run out of superlatives akin to good/better/best to describe the good things in our world--never mind what the actual right definition of "perfect" is in the standard of who God is.
+
+You know what what the effects of sin is on our world? Even the good things from God in our world are not as good as what they could be in the presence of God.
+
+And it was never suppose to be this way. Sexual immorality, idol worship, hatred, foolishness, pride, and every other abomination was not the intention of God. God is the source of good and not evil. He can only do what is good and not sin. He did not make the world full of sickness, disease, cancer, betrayal, grief, mental illness, and death. He made the world *actually* perfect and *actually* good.
+
+Sin entered in through one man, our original father, Adam. Adam is made good, perfect, and right-standing with God. God gave Adam all the ability to obey God perfectly. Not only with morality but with one commandment: don't eat from this tree. If Adam obeyed God, and grew and matured in wisdom and stature, he would have not only been given eternal, perfect, good life but for his descendants as well. 
+
+But we know that did not happen. Adam fell into temptation. Adam did not struggle with sin. Adam sinned against God. Therefore, famine, poverty, lack, war, sadness, and anger have entered in. We know this because we live this. We are feeling the affects of people trying desperately to grab whatever power they can for their own ill-gotten gains--and if some people are broken or killed along the way, it is no concern to them.
+
+This is sin. And because of sin, even my pithy little pitiful explanation of sin falls way, way short. Because I was born in sin, I cannot properly define sin and give it is fullest explanation. My own brokenness and sinfulness prevents me from uncovering any of my potential sin-masking blindspots in my life. That is why this chapter will fall short of giving you the best definition of sin.
+
+This sin is not just a brokenness I was born into but it was an offense that I have committed time and time again throughout my life. And to even think I might have a good moment in time without sin:
+
+>James 2:10 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
+
+God has set the standard of righteousness which is his law. Keeping the law does not just mean keeping it from the moment you have known about it but rather keeping it from birth. For:
+
+>Psalms 58:3-5 (CSB) The wicked go astray from the womb;  
+>liars wander about from birth.  
+>They have venom like the venom of a snake,  
+>like the deaf cobra that stops up its ears,  
+>that does not listen to the sound of the charmers  
+>who skillfully weave spells.
+
+Too many people read these passages and they think, "Oh that is them--that is not me." Yes the same man who wrote this passage also wrote:
+
+>Psalms 51:3-5 (CSB) For I am conscious of my rebellion,  
+>and my sin is always before me.  
+>Against you — you alone — I have sinned  
+>and done this evil in your sight.  
+>So you are right when you pass sentence;  
+>you are blameless when you judge.  
+>Indeed, I was guilty when I was born;  
+>I was sinful when my mother conceived me.
+
+For the psalmist who wrote:
+
+>Psalms 73:4-12 (CSB) They have an easy time until they die,  
+>and their bodies are well fed.  
+>They are not in trouble like others;  
+>they are not afflicted like most people.  
+>Therefore, pride is their necklace,  
+>and violence covers them like a garment.  
+>Their eyes bulge out from fatness;  
+>the imaginations of their hearts run wild.  
+>They mock, and they speak maliciously;  
+>they arrogantly threaten oppression.  
+>They set their mouths against heaven,  
+>and their tongues strut across the earth.  
+>Therefore his people turn to them  
+>and drink in their overflowing words.  
+>The wicked say, “How can God know?  
+>Does the Most High know everything? ”  
+>Look at them — the wicked!  
+>They are always at ease,  
+>and they increase their wealth.
+
+Is the same psalmist realized just a few quick moments later:
+
+>Psalms 73:21-22 (CSB) When I became embittered  
+>and my innermost being was wounded,  
+>I was stupid and didn’t understand;  
+>I was an unthinking animal toward you.
+
+The ESV reads as "I was brutish and ignorant; I was like a beast toward you." This is not unlike when God turned Nebuchadnezzar into a beast that "was driven away from people, ate grass like cattle, and drenched with dew from the sky, until his hair grew like eagles’ feathers and his nails like birds’ claws." (Daniel 4:33)
+
+What we see on the outside of King Nebuchadnezzar is a glimpse, a facet of the heart of the man on the inside.
+
+All because of sin.
 
 ## The Scriptures
 
@@ -405,3 +480,5 @@
 ><sup>12</sup> Conduct yourselves honorably among the Gentiles, so that when they slander you as evildoers, they will observe your good works and will glorify God on the day he visits.
 
 >Psalm 51:4 (CSB) <span class="bgy">Against you—you alone—I have sinned and done this evil in your sight. So you are right when you pass sentence; you are blameless when you judge.
+
+[^1]: Oxford English Dictionary, "sin," accessed February 22, 2025, <https://www.oed.com/view/Entry/180176>.
