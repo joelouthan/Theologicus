@@ -12,6 +12,23 @@
 ## The Psalm
 
 >Psalm 137 (CSB)  
+><sup>1</sup> By the rivers of Babylon— there we sat down and wept when we remembered Zion. 
+>
+><sup>2</sup> There we hung up our lyres on the poplar trees, 
+>
+><sup>3</sup> for our captors there asked us for songs, and our tormentors, for rejoicing: “Sing us one of the songs of Zion.” 
+>
+><sup>4</sup> How can we sing the LORD’s song on foreign soil? 
+>
+><sup>5</sup> If I forget you, Jerusalem, may my right hand forget its skill. 
+>
+><sup>6</sup> May my tongue stick to the roof of my mouth if I do not remember you, if I do not exalt Jerusalem as my greatest joy! 
+>
+><sup>7</sup> Remember, LORD, what the Edomites said that day at Jerusalem: “Destroy it! Destroy it down to its foundations!” 
+>
+><sup>8</sup> Daughter Babylon, doomed to destruction, happy is the one who pays you back what you have done to us. 
+>
+><sup>9</sup> Happy is he who takes your little ones and dashes them against the rocks.
 
 ## The Prayer
 
