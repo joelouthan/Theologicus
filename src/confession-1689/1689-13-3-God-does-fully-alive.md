@@ -59,6 +59,8 @@ Why on earth could we think we can sanctify ourselves?
 
 >James 2:10 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
 
+>Galatians 3:10 (CSB) For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
+
 You and I have already broken the law of God. For that, the wrath of God is justly and rightly upon us.
 
 ### and so the saints grow in grace, perfecting holiness in the fear of God, pressing after an heavenly life, in evangelical obedience to all the commands which Christ as Head and King, in his Word has prescribed to them

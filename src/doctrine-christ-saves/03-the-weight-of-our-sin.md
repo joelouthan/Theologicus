@@ -32,6 +32,8 @@ This sin is not just a brokenness I was born into but it was an offense that I h
 
 >James 2:10 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
 
+>Galatians 3:10 (CSB) For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
+
 God has set the standard of righteousness which is his law. Keeping the law does not just mean keeping it from the moment you have known about it but rather keeping it from birth. For:
 
 >Psalms 58:3-5 (CSB) The wicked go astray from the womb;  
@@ -131,8 +133,6 @@ All because of sin.
 ><sup>19</sup> Now we know that whatever the law says, it speaks to those who are subject to the law, so that every mouth may be shut and the whole world may become subject to God’s judgment.
 
 >Romans 3:23 (CSB) For all have sinned and fall short of the glory of God.
-
->James 2:10 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
 
 >Leviticus 18:24–22:31 (CSB)  
 ><sup>24</sup> “Do not defile yourselves by any of these practices, for the nations I am driving out before you have defiled themselves by all these things. 

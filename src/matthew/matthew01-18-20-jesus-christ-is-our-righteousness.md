@@ -18,6 +18,8 @@
 
 >James 2:10 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
 
+>Galatians 3:10 (CSB) For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
+
 But the law was never intended to save us
 
 >Romans 8:1-4 (CSB) Therefore, there is now no condemnation for those in Christ Jesus, because the law of the Spirit of life in Christ Jesus has set you free from the law of sin and death. For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering, in order that the law’s requirement would be fulfilled in us who do not walk according to the flesh but according to the Spirit.
