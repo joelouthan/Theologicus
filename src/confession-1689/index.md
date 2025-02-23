@@ -1639,6 +1639,8 @@ The moral law doth for ever bind all, as well justified persons as others, to th
 
 >James 2:10–11 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all. For he who said, Do not commit adultery, also said, Do not murder. So if you do not commit adultery, but you murder, you are a lawbreaker.
 
+>Galatians 3:10 (CSB) For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
+
 >Matthew 5:17–19 (CSB) “Don’t think that I came to abolish the Law or the Prophets. I did not come to abolish but to fulfill. For truly I tell you, until heaven and earth pass away, not the smallest letter or one stroke of a letter will pass away from the law until all things are accomplished. Therefore, whoever breaks one of the least of these commands and teaches others to do the same will be called least in the kingdom of heaven. But whoever does and teaches these commands will be called great in the kingdom of heaven.
 
 >Romans 3:31 (CSB) Do we then nullify the law through faith? Absolutely not! On the contrary, we uphold the law.

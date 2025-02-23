@@ -103,6 +103,8 @@ And because we are not the source of good, we cannot do good because every human
 
 >James 2:10 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
 
+>Galatians 3:10 (CSB) For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
+
 We break one of God's laws, we break them all. Human justice would be injustice to punish a person for committing one crime. But this is how holiness, righteousness, love, mercy, grace, and divine justice works: God rightfully demands goodness, love, righteousness, holiness, and justice perfectly. He demands it and he will not abide by anything less than perfection.
 
 ### The Grace Upon Grace of God: nor to a right end, the glory of God

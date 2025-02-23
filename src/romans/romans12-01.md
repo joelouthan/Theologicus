@@ -24,6 +24,8 @@ Not only that, you and I have already broken the law. When we have broken one la
 
 >James 2:10 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
 
+>Galatians 3:10 (CSB) For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
+
 And it is not that we keep breaking the law of God since it does not save us. No!
 
 >Romans 6:1-2 (CSB) What should we say then? Should we continue in sin so that grace may multiply? Absolutely not! How can we who died to sin still live in it?

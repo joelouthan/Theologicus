@@ -72,6 +72,8 @@ But here's the thing. If I died then I am still not forgiven. My death means not
 
 >James 2:10 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
 
+>Galatians 3:10 (CSB) For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
+
 But because I am in him and he is in me, my sins were placed on the cross more than 2,000 years ago.
 
 >Romans 5:8 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us.

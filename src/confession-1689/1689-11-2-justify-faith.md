@@ -44,6 +44,8 @@ One, we have broken all of the law.
 
 >James 2:10 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
 
+>Galatians 3:10 (CSB) For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
+
 Two, when we try to do any good works to please God, it is rightfully judged as filthy rags in the sight of God:
 
 >Isaiah 64:6 (CSB) All of us have become like something unclean, and all our righteous acts are like a polluted garment; all of us wither like a leaf, and our iniquities carry us away like the wind. [^rags]
