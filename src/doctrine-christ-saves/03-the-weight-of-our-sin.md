@@ -22,7 +22,7 @@ You know what what the effects of sin is on our world? Even the good things from
 
 And it was never suppose to be this way. Sexual immorality, idol worship, hatred, foolishness, pride, and every other abomination was not the intention of God. God is the source of good and not evil. He can only do what is good and not sin. He did not make the world full of sickness, disease, cancer, betrayal, grief, mental illness, and death. He made the world *actually* perfect and *actually* good.
 
-Sin entered in through one man, our original father, Adam. Adam is made good, perfect, and right-standing with God. God gave Adam all the ability to obey God perfectly. Not only with morality but with one commandment: don't eat from this tree. If Adam obeyed God, and grew and matured in wisdom and stature, he would have not only been given eternal, perfect, good life but for his descendants as well. 
+Sin entered in through one man, our original father, Adam. Adam was made good, perfect, and right-standing with God. God gave Adam all the ability to obey God perfectly. Not only with morality but with one commandment: don't eat from this tree. If Adam obeyed God, and grew and matured in wisdom and stature, he would have not only been given eternal, perfect, good life but for his descendants as well. 
 
 But we know that did not happen. Adam fell into temptation. Adam did not struggle with sin. Adam sinned against God. Therefore, famine, poverty, lack, war, sadness, and anger have entered in. We know this because we live this. We are feeling the affects of people trying desperately to grab whatever power they can for their own ill-gotten gains--and if some people are broken or killed along the way, it is no concern to them.
 
