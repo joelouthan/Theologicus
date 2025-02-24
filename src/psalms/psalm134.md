@@ -23,5 +23,19 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+Only Worthy of Worship,
 </div>
+
+We shall gather together
+* by your accord
+* and sing praises to you
+* and hear your word
+* and pray to you
+* and be blessed by you.
+
+You are our only God
+* our Savior
+* and my Lord
+* forever.
+
+Amen.
