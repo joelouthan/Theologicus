@@ -33,5 +33,26 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+My Home
 </div>
+
+Lord, I know
+* that we are strangers in this world,
+* exiles
+* aliens
+* and immigrants
+* we are not of this world
+* but we live in this world.
+
+We point all creatures
+* to raise there eyes
+* and see your Son
+* Jesus Christ
+* and believe
+* and bring us all the way home.
+
+We are here just for a little while.
+
+You are our home, sustainer and portion.
+
+Amen.
