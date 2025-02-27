@@ -18,7 +18,7 @@ of my only, only Lord Jesus.
 - v3.3 (2023 Jul 16) [Apostles' Creed](https://theologic.us/creed-apostles/index.md)
 - v3.2 (2023 Jul 04) [Book Reviews](https://theologic.us/reviews/index.md)
 - v3.1 (2023 Jun 14) [Ruth](https://theologic.us/ruth/index.md)
-- v3.0 (2023 Jun 09) [Hugo to mdBook](https://theologic.us) <img style="background: #ffffff" src="icon-mdbook.png" alt="Icon - mdbook - command line tool for creating books written in Markdown--written in Rust" width="15">
+- v3.0 (2023 Jun 09) [Hugo to mdBook](https://theologic.us) <img style="background: #ffffff" src="icon-mdbook.jpg" alt="Icon - mdbook - command line tool for creating books written in Markdown--written in Rust" width="15">
 - v2.4 (2023 Apr 13) [The Epistle to the Romans](https://theologic.us/romans/index.md)
 - v2.3 (2023 Feb 08) [The Gospel of Mark](https://theologic.us/mark/index.md)
 - v2.2 (2022 Sep 08) [The Pastoral Epistles](https://theologic.us/pastorals/index.md)
