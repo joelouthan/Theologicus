@@ -2,7 +2,7 @@
 
 ## About
 
-<img class="profile-pic" src="jlouthan-ai-starry-back-500-01.png">Hello! My name is Joseph L. Louthan. I am trying to spend all of my days with God--my Beloved is mine and I am His. Sarah's husband and a Papa to a few kiddos. Living in Central Kentucky. An elder candidate of [Reforming Truth Church](https://reformingtruth.church/). Joyfully ex-Evangelical turned [Reformed Baptist--1689 Confessional](https://theologic.us/confession-1689/).
+<img class="profile-pic" src="jlouthan-ai-starry-back-500-01.png">Hello! My name is Joseph L. Louthan. I am trying to spend all of my days with God. Sarah's husband and a Papa to a few kiddos. Living in Central Kentucky. An elder candidate of [Reforming Truth Church](https://reformingtruth.church/). Joyfully ex-Evangelical turned [Reformed Baptist--1689 Confessional](https://theologic.us/confession-1689/).
 
 This blog is a collection of writings--[devotional, expository thoughts](https://theologic.us) on the gospel of God--the good news of what Christ has done for us.
 
