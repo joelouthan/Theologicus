@@ -67,5 +67,23 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+My Forever Love
 </div>
+
+You are the only one
+* who has perfectly loved me
+* cared for me
+* and been there for me
+* even in my darkest hour.
+
+You were my Lord
+* and my great God.
+
+Thank you for loving me all the days of my life.
+
+And one day, I will get to see you face to face
+* and then
+* I will rest
+* because I have all of your love.
+
+Amen.

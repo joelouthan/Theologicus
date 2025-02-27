@@ -57,5 +57,36 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+Completely Sovereign God,
 </div>
+
+Look at what you have done!
+* you have chosen us
+* to be your beloved
+* treasured possession
+* to love and adore
+* from before the foundation of the world
+* to be your own
+* to be your people
+* and you would be our great God in heaven.
+
+You have saved us
+* from the bondage of sin
+* from the destruction of death
+* from the disease of wickedness and shame.
+
+And we know this
+* because you sent your only begotten Son
+* Jesus Christ
+* to live and die for us
+* and to save us
+* and be with us
+* forevermore.
+
+We shall praise you
+* all of our days.
+
+We love you
+* you are our Father in heaven.
+
+Amen.

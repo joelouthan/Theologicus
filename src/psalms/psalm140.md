@@ -43,5 +43,20 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+O Lord
 </div>
+
+Whatever my fell me
+* save me from my sins
+* keep me from perishing
+* protect me from Satan and his demons
+* pull me from hell.
+
+You have been my only Savior
+* in you alone do I trust.
+
+I will bless your name
+* for all of my days.
+
+Amen.
+

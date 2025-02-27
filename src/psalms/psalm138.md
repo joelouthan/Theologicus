@@ -33,5 +33,11 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+O Lord
 </div>
+
+I love you.
+
+Thank you for saving me from my sins.
+
+Amen.
