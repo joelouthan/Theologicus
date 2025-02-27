@@ -65,5 +65,11 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+O Lord
 </div>
+
+Thank you for loving me and giving me all of your affections.
+
+And I know I have your love because I have your only begotten Son, Jesus Christ, my only Savior and Lord.
+
+Amen.
