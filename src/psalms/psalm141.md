@@ -37,5 +37,19 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+My Only Help and Hope
 </div>
+
+When I have called
+* you have always answered
+* you have rescued me 
+* more than times than I count.
+
+You are my only hope and stay.
+
+And I love you, Lord
+* and with all that is in me
+* I will forever
+* bless your holy name.
+
+Amen.
