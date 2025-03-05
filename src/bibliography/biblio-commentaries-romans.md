@@ -34,7 +34,7 @@ Holmon Reference. 1995.
 <hr style="clear:both;">
 
 <img src="commentary-romans-bray.webp">Romans (Ancient Christian Commentary on Scripture, NT Volume 6)  
-Edited Gerald L. Bray.  
+Edited by Gerald L. Bray.  
 IVP Academic. 2005.  
 [Goodreads](https://www.goodreads.com/book/show/32922759-romans?ac=1&from_search=true&qid=O8EDAlniS5&rank=1)
 

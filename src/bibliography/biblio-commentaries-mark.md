@@ -20,7 +20,7 @@ Eerdman's. 1974.
 <hr style="clear:both;">
 
 <img src="commentary-mark-oden.jpg">Mark (Ancient Christian Commentary on Scripture, NT Volume 2)  
-Thomas C. Odin & Christopher A. Hall. (Editors)  
+Edited by Thomas C. Odin & Christopher A. Hall. 
 IVP Academic. 2005.  
 [Goodreads](https://www.goodreads.com/book/show/33015669-mark)
 
