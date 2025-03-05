@@ -57,25 +57,25 @@ And this I know, You have declared Your sweets words to be true (Psalm 119). You
 How can I begin to describe the feeling when your sweet words falls upon my ears, eyes, mind and heart?
 
 Psalm 19:7–10 (CSB)  
-      The instruction of the LORD is perfect,  
-      renewing one’s life;  
-      the testimony of the LORD is trustworthy,  
-      making the inexperienced wise.  
+* The instruction of the LORD is perfect,  
+* renewing one’s life;  
+* the testimony of the LORD is trustworthy,  
+* making the inexperienced wise.  
 
 The precepts of the LORD are right,  
-      making the heart glad;  
-      the command of the LORD is radiant,  
-      making the eyes light up.  
+* making the heart glad;  
+* the command of the LORD is radiant,  
+* making the eyes light up.  
 
 The fear of the LORD is pure,  
-      enduring forever;  
-      the ordinances of the LORD are reliable  
-      and altogether righteous.  
+* enduring forever;  
+* the ordinances of the LORD are reliable  
+* and altogether righteous.  
 
 They are more desirable than gold—  
-      than an abundance of pure gold;  
-      and sweeter than honey  
-      dripping from a honeycomb.
+* than an abundance of pure gold;  
+* and sweeter than honey  
+* dripping from a honeycomb.
 
 If Your promises hold true—if You say You will make all things right despite our folly and sin (Genesis 3:15); if You say You will bear our iniquities and our trespasses (Isaiah 53) and You will draw near to us just when we think You are so far away (Psalm 22), then my life and my love is all in Your Word. I have nowhere else to go and no one else to turn to. 
 
