@@ -43,5 +43,43 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+My Only Lord
 </div>
+
+All the heavens
+* praise his holy name!
+
+All the angels and elders
+* praise his holy name!
+
+All the stars and planets
+* praise his holy name!
+
+All the earth
+* praise his holy name!
+
+All the rocks and waters and sky and sea
+* praise his holy name!
+
+All you creatures great and small
+* praise his holy name!
+
+All you sons of God
+* turn your eyes
+* back on the Christ
+* praise his holy name!
+
+All you wicked and unrighteous
+* lift your eyes
+* rest them upon the lifted Christ
+* and praise his holy name!
+
+All you who are lost
+* and praise his holy name!
+
+All of mankind
+* and praise his holy name!
+
+Forever.
+
+Amen.

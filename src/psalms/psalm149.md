@@ -33,5 +33,19 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+My Only King
 </div>
+
+Bring me low
+* much lower
+* cut me down
+* humble me
+* make me small.
+
+Make me like your Son
+* my King Jesus
+* and bring me all the way home.
+
+Hallelujah!
+
+Amen and amen!
