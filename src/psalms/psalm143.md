@@ -41,5 +41,45 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+My Only Answered Prayer
 </div>
+
+The world had left me for dead
+* discarded
+* thrown away.
+
+Satan had me in his teeth
+* and I was ravaged
+* beyond recognition
+* and beyond any reasonable healing
+
+Demons continuously pop shots
+* their arrows
+* tear my flesh
+* and my heart
+* and straight through my mind
+* and my will.
+
+I was left for dead.
+
+I was dead.
+
+I died.
+
+But in the midst of my wickedness, my sin, my worthlessness, my trespass, my evil--
+
+You saw me
+* all of my sin
+* all of it
+* the very base of my heart
+* and you saved me.
+
+You saved me.
+
+You alone loved me and cared for me.
+
+You alone are worthy of all praise.
+
+You are my Lord and God.
+
+Amen.
