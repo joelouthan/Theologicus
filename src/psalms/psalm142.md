@@ -31,5 +31,30 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+My Only Mercy
 </div>
+
+My King Jesus!
+* look at what you have done!
+* you have spared me from death and hell
+* you have fully absorbed all of the Enemies' attack
+* you have put upon yourself all of my sin
+* and your just wrath upon my wicked self.
+
+You did not just did it once
+* you continuously save me always
+* I do not repent as I should
+* I do not obey as I ought
+* I do not walk in steadfast love as I need to.
+
+But you, my Lord
+* have taken all of my sins perfectly
+* obeyed your wonderful law completely
+* and loved me steadfastly always.
+
+I praise you
+* because you are my life
+* my fullness of joy
+* and my bliss forevermore.
+
+Amen.
