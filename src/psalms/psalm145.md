@@ -59,5 +59,21 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+My Only Blessing
 </div>
+
+If I had every single word
+* in every language
+* and I created
+* all other languages
+* that ever were
+* or ever will be
+* and I could speak them all
+* I still would fall infinitely short
+* of descibing your loveliness.
+
+You are my heart and love.
+
+You are my King Jesus.
+
+Amen.
