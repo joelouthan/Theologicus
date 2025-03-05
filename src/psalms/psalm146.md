@@ -35,5 +35,33 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+My Only Trust
 </div>
+
+You have loved me
+* and you will always love me
+* I have your love
+* and you will never stop loving me
+* because you never started loving me.
+
+You are steadfast love
+* eternal love
+* forever love
+* unchanging love
+* unending love
+* saving love
+* greatest love
+* source of love
+* the love supreme.
+
+Keep saving me
+* because I am great sinner
+* in need of the greatest love
+* of the greatest Savior.
+
+You are my great God in heaven.
+
+And I love you.
+
+Amen.
+
