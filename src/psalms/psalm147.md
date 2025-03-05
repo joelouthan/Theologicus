@@ -55,5 +55,31 @@
 ## The Prayer
 
 <div style="font-variant: small-caps;">
-
+My Only Wonderfulness
 </div>
+
+You lifted up
+* and so far above
+* the infinite light
+* the eternal fire
+* the pure rejector
+* and exalted above all
+* of my wickedness
+* and my worthless gods.
+
+You have saved me
+* now I get to obey you
+* now I get to walk in your ways
+* now I get to worship you
+* now I get to love you
+* now I get to be with you forever.
+
+Be with my Lord
+* never leave me
+* never forsake me.
+
+You have me forever.
+
+Hallelujah!
+
+Amen!
