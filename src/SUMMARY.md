@@ -32,7 +32,8 @@
 -----------
 
 - [Second London Baptist Confession of Faith](confession-1689/index.md)
-  - [Introduction & Resources](confession-1689/1689-00-intro.md)
+  - [Foreword](confession-1689/1689-0-foreword.md)
+  - [Introduction](confession-1689/1689-00-introduction.md)
   - [I. Of The Holy Scriptures](confession-1689/1689-01-0-index.md)
     - [1.1 The Holy Scriptures](confession-1689/1689-01-1-the-holy-scriptures.md)
     - [1.2 The Old and New Testaments of Holy Scripture](confession-1689/1689-01-2-old-and-new-testaments.md)
@@ -214,11 +215,8 @@
     - [32.1 The Quick & The Dead: Judgment Day](confession-1689/1689-32-1-the-quick-and-the-dead-judgment-day.md)
     - [32.2 The Quick & The Dead: Manifestation of His Glory](confession-1689/1689-32-2-the-quick-and-the-dead-manifestation-of-his-glory.md)
     - [32.3 The Quick & The Dead: Come Lord Jesus--Amen](confession-1689/1689-32-3-the-quick-and-the-dead-come-lord-jesus-amen.md)
-  - [Teaching: 1689 Monthly Conference at Reforming Truth Church, Lexington, KY](confession-1689/1689-TEACH-00-rtc-intro.md)
-    - [March 2024 - Revelation & Inspiration of the Holy Scriptures](confession-1689/1689-TEACH-01-revelation-inspiration-of-holy-scriptures.md)
-    - [April 2024 - The External Relations of God](confession-1689/1689-TEACH-02-external-relations-of-God.md)
-    - [May 2024 - The Decree of God](confession-1689/1689-TEACH-03-decree-of-God.md)
-    - [June 2024 - The Creation of the World](confession-1689/1689-TEACH-04-on-the-imago-Dei.md)
+  - [Closing](confession-1689/1689-closing.md)
+  - [Bibliography](confession-1689/1689-bibliography.md)
 - [Belgic Confession]()
 - [Thirty-Nine Articles]()
 - [First London Baptist Confession of Faith]()
