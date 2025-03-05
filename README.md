@@ -12,6 +12,7 @@ of my only, only Lord Jesus.
 
 ## releases
 
+- v3.5 (2025 Mar 5) [Praying Through Psalms](https://theologic.us/psalms/)
 - v3.4 (2025 Jan 19) [1689 Second London Baptist Confession](https://theologic.us/confession-1689/index.md)
 - v3.3.2 (2024 Apr 10) Port 1689 to [submodule](https://github.com/joelouthan/theologicus-1689) <img src="icon-git.png" alt="Icon - Git" width="15">
 - v3.3.1 (2024 Jan 7) [Swift port](https://github.com/joelouthan/com.theologicus) <img src="icon-swift.png" alt="Icon - Swiftui" width="15">
