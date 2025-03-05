@@ -40,7 +40,9 @@ Banner of Truth. 2014.
 <hr style="clear:both;">
 
 <img src="theology-reformed-dogmatics-bavinck.jpg">Reformed Dogmatics.  
-Herman Bavinck, John Bolt (Editor), John Vriend (Translator).  
+Herman Bavinck.  
+Edited by John Bolt.  
+Translated by John Vriend.  
 Baker Academic. 2003.  
 [Goodreads](https://www.goodreads.com/book/show/277742.Reformed_Dogmatics_Volume_1_)
 
@@ -68,7 +70,8 @@ Crossway. 2012.
 <hr style="clear:both;">
 
 <img src="theology-existence-attributes-God-charnock.jpg">The Existence and Attributes of God, Volume 1-2.  
-Stephen Charnock, Mark Jones (Editor).  
+Stephen Charnock. 
+Edited by Mark Jones.  
 Crossway. 2022.  
 [Goodreads](https://www.goodreads.com/book/show/60331402-the-existence-and-attributes-of-god-volume-1-2)
 
@@ -89,7 +92,8 @@ Zondervan. 2011.
 <hr style="clear:both;">
 
 <img src="theology-complete-works-owen.jpg">The Complete Works.  
-John Owen, Lee Gatiss (Series Editor), Shawn D. Wright (Series Editor).  
+John Owen.  
+Edited by Lee Gatiss, Shawn D. Wright.  
 Crossway. 2022.  
 [Goodreads](https://www.goodreads.com/book/show/60354441-the-holy-spirit)
 

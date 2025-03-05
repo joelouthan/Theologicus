@@ -1,5 +1,5 @@
 <img src="commentary-ephesians-philemon-esv.jpg">ESV Expository Commentary: Ephesians–Philemon (Volume 11)  
-Iain M. Duguid, James M. Hamilton Jr., & Jay Sklar (Editors)  
+Edited by Iain M. Duguid, James M. Hamilton Jr., & Jay Sklar 
 Crossway. 2018.  
 [Goodreads](https://www.goodreads.com/book/show/38530820-esv-expository-commentary?ac=1&from_search=true&qid=vr9YaTR979&rank=2)
 

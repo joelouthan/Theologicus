@@ -27,8 +27,8 @@ Christian Focus. July 20, 2010.
 <hr style="clear:both;">
 
 <img src="commentary-1-samuel-2-chronicels-duguid-hamilton-skylar.jpg">1 Samuel-2 Chronicles (ESV Expository Commentary).  
-Iain M. Duguid, 
-James M. Hamilton Jr., Jay Sklar (Editors).  
+Iain M. Duguid.  
+Edited by James M. Hamilton Jr., Jay Sklar  
 John L. Mackay (Author).  
 Crossway. October 3, 2019.  
 [Goodreads](https://www.goodreads.com/book/show/43996924-1-samuel-2-chronicles)
@@ -36,7 +36,7 @@ Crossway. October 3, 2019.
 <hr style="clear:both;">
 
 <img src="commentary-samuel-kings-chronicles-cooper.jpg">1-2 Samuel, 1-2 Kings, 1-2 Chronicles (OT Volume 5) (Reformation Commentary on Scripture).  
-Derek Cooper & Martin J. Lohrmann (Editors).  
+Edited by Derek Cooper & Martin J. Lohrmann.  
 IVP Academic. 2016.  
 [Goodreads](https://www.goodreads.com/book/show/26598205-1-2-samuel-1-2-kings-1-2-chronicles-ot-volume-5)
 

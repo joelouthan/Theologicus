@@ -117,7 +117,6 @@ Thomas Nelson. 1989-93.
 <hr style="clear:both;">
 
 <img src="commentary-matthew-luke-esv.jpg">ESV Expository Commentary: Matthew–Luke (Volume, 8).  
-Dan Doriani (Author).  
 Iain M. Duguid, James M. Hamilton Jr., & Jay Sklar (Editors).  
 Crossway. September 7, 2021.  
 [Goodreads](https://www.goodreads.com/book/show/50611048-esv-expository-commentary-volume-8?from_search=true&from_srp=true&qid=FBpWi6R83q&rank=1)

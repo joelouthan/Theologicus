@@ -20,7 +20,7 @@ Eerdman's. 1974.
 <hr style="clear:both;">
 
 <img src="commentary-mark-oden.jpg">Mark (Ancient Christian Commentary on Scripture, NT Volume 2)  
-Edited Thomas C. Odin & Christopher A. Hall  
+Edited by Thomas C. Odin & Christopher A. Hall  
 IVP Academic. 2005.  
 [Goodreads](https://www.goodreads.com/book/show/33015669-mark)
 
@@ -41,8 +41,7 @@ Ligonier Ministries. October 29, 2019.
 <hr style="clear:both;">
 
 <img src="commentary-matthew-luke-esv.jpg">ESV Expository Commentary: Matthew–Luke (Volume 8)  
-Dan Doriani (Author)  
-Iain M. Duguid, James M. Hamilton Jr., & Jay Sklar (Editors)  
+Edited by Iain M. Duguid, James M. Hamilton Jr., & Jay Sklar 
 Crossway. September 7, 2021.  
 [Goodreads](https://www.goodreads.com/book/show/50611048-esv-expository-commentary-volume-8?ac=1&from_search=true&qid=KXgplk0Joa&rank=1)
 
