@@ -106,6 +106,6 @@ If you have God, what do you now?
 >we come to you rejoicing  
 >With our hands lifted high to the sky  
 >when the world wonders why  
->we just tell them we are loving our King.
->
-TODO: credit
+>we just tell them we are loving our King.[^1]
+
+[^1]: Jernigan, Dennis. "We Will Worship and Sing." bandcamp. Accessed March 9, 2025. https://richandfriends.bandcamp.com/track/we-will-worship-the-lamb-of-glory. 
