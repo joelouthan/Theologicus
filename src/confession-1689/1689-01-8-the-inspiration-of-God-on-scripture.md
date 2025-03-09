@@ -20,8 +20,6 @@
 
 The 1689 teaches that only the original manuscripts can be declared to be inerrant and infallible. In other words, the words written down from the hand of the author from the inspiration of the Holy Spirit can only be called inerrant and infallible. 
 
-TODO: Transcript this IG video: https://www.instagram.com/reel/C3mIcW_tmNC/?igsh=eXR5a2J4aGs3MnQw
-
 Copies and translations will have minor differences and errors in them. Are we to worry? Are we missing out? Have we gotten the gospel wrong?
 
 No. Not even in the least bit.

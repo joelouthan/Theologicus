@@ -32,8 +32,6 @@ By no means are we trying to make man-made rules out of Scriptures and then supe
 
 First and foremost, it is not the building that gives God worship rather, his glory fills the whole earth (Psalm 72:19). There is not a place on earth, in heavens or under the earth where he is not. His presence is always with us. Therefore, being that is true, we are called to worship in spirit and in truth.
 
-TODO: distinctions spirit and truth
-
 ### as in private families
 
 >Acts 10:2 (CSB) He was a devout man and feared God along with his whole household. He did many charitable deeds for the Jewish people and always prayed to God.

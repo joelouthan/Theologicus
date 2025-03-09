@@ -55,5 +55,3 @@ Weep with those who weep. Rejoice with those who rejoice.
 >1 Corinthians 13:1–2 (CSB) If I speak human or angelic tongues but do not have love, I am a noisy gong or a clanging cymbal. If I have the gift of prophecy and understand all mysteries and all knowledge, and if I have all faith so that I can move mountains but do not have love, I am nothing.
 
 Nothing but hot air. There must be love. Fruit of the Spirit.
-
-TODO: 15:15

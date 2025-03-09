@@ -71,8 +71,6 @@ To the ordained who are charge to shepherd the flock of God, we are commissioned
 
 The bread and the wine--the body and the blood of Christ--is to be administered "as often we do" until the Christ comes back.
 
-TODO:
-
 ### are all parts of religious worship of God, to be performed in obedience to him, with understanding, faith, reverence, and godly fear; moreover, solemn humiliation, with fastings
 
 >Esther 4:16 (CSB) “Go and assemble all the Jews who can be found in Susa and fast for me. Don’t eat or drink for three days, night or day. I and my female servants will also fast in the same way. After that, I will go to the king even if it is against the law. If I perish, I perish.”
