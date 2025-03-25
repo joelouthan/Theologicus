@@ -34,7 +34,13 @@ of my only, only Lord Jesus.
 
 ## using
 
-[![tools]( https://go-skill-icons.vercel.app/api/icons?i=vscode,vim,rust,md,css,html,bash,git,github,apple,netlify,linux,redhat)]()
+<p align="center">
+  <a href="https://theologic.us/author">
+    <img
+      src="https://go-skill-icons.vercel.app/api/icons?i=terminal,vscode,vim,md,regex,xcode,swift,css,html,githubcopilot,rust,mdbook,ansible,bash,git,github,netlify,linux&titles=true&theme=light&perline=9"
+    />
+  </a>
+</p>
 
 ## built on
 
