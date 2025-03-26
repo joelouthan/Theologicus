@@ -32,8 +32,18 @@ of my only, only Lord Jesus.
 ![Crates.io](https://img.shields.io/crates/v/mdbook-toc)
 ![Word Count](https://img.shields.io/badge/Word%20Count-538109-brightgreen)
 
+![Word Count](https://img.shields.io/badge/Word%20Count-538109-brightgreen)
+
 
 ## using
+
+<p align="center">
+  <a href="https://theologic.us/author">
+    <img
+      src="https://go-skill-icons.vercel.app/api/icons?i=terminal,vscode,vim,md,regex,xcode,swift,css,html,githubcopilot,rust,mdbook,ansible,bash,git,github,netlify,linux&titles=true&theme=light&perline=9"
+    />
+  </a>
+</p>
 
 <p align="center">
   <a href="https://theologic.us/author">
