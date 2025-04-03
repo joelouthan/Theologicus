@@ -4,7 +4,7 @@
 
 ## The Word
 
->Psalms 1:2-3 (CSB) Instead, his delight is in the LORD’s instruction,  
+>Psalm 1:2-3 (CSB) Instead, his delight is in the LORD’s instruction,  
 >and he meditates on it day and night.  
 >He is like a tree planted beside flowing streams  
 >that bears its fruit in its season,  
@@ -58,7 +58,7 @@ If God, who is righteous, gives literal life, God is righteous in the provision 
 
 ><sup>8</sup> The LORD God planted a garden in Eden, in the east, and there he placed the man he had formed. The LORD God caused to grow out of the ground every tree pleasing in appearance and good for food, including the tree of life in the middle of the garden, as well as the tree of the knowledge of good and evil.
 
->Psalms 16:5-6 (CSB) LORD, you are my portion  
+>Psalm 16:5-6 (CSB) LORD, you are my portion  
 >and my cup of blessing;  
 >you hold my future.  
 >The boundary lines have fallen for me  
@@ -75,7 +75,7 @@ In other words, God is right standing and free from sin despite the brokenness o
 
 The psalmist describes creation and righteousness in this way:
 
->Psalms 1 (CSB) How happy is the one who does not  
+>Psalm 1 (CSB) How happy is the one who does not  
 >walk in the advice of the wicked  
 >or stand in the pathway with sinners  
 >or sit in the company of mockers!  

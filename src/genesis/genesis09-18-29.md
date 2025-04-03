@@ -142,10 +142,10 @@ Man cannot wipe away their own sin. They lack the power to do so.
 
 Look at the power of God when we sin and yet trust in God:
 
->Psalms 51:7 (CSB) Purify me with hyssop, and I will be clean;
+>Psalm 51:7 (CSB) Purify me with hyssop, and I will be clean;
 wash me, and I will be whiter than snow.
 
->Psalms 103:12 (CSB) As far as the east is from the west,
+>Psalm 103:12 (CSB) As far as the east is from the west,
 so far has he removed
 our transgressions from us.
 

@@ -55,9 +55,9 @@ However, remember of the story of Noah. Noah was declared righteous and then he 
 
 If you continue to read on in Job 39 till chapter 41, God will continue to emphasize that he is the basic need provider for all of His creation.
 
-The author of Psalms 104 worships in this way:
+The author of Psalm 104 worships in this way:
 
->Psalms 104:10-18 (CSB)  
+>Psalm 104:10-18 (CSB)  
 >He causes the springs to gush into the valleys;  
 >they flow between the mountains.  
 >They supply water for every wild beast;  
@@ -93,7 +93,7 @@ If we are to believe and trust in him, we must understand a couple of things.
 
 ### God is need of nothing--He owns all of creation
 
->Psalms 50:1-13 (CSB)  
+>Psalm 50:1-13 (CSB)  
 >The Mighty One, God, the LORD, speaks;  
 >he summons the earth  
 >from the rising of the sun to its setting.  
@@ -130,7 +130,7 @@ If we are to believe and trust in him, we must understand a couple of things.
 
 ### Since he owns everything--everything we have comes from God
 
->Psalms 16:5-6 (CSB)  
+>Psalm 16:5-6 (CSB)  
 >LORD, you are my portion  
 >and my cup of blessing;  
 >you hold my future.  
@@ -156,7 +156,7 @@ If we know that and trust God in that, how can we respond?
 
 ### Thank the Lord Because He Provides for Us Everything
 
->Psalms 50:14-15 (CSB) Offer a thanksgiving sacrifice to God,  
+>Psalm 50:14-15 (CSB) Offer a thanksgiving sacrifice to God,  
 >and pay your vows to the Most High.  
 >Call on me in a day of trouble;  
 >I will rescue you, and you will honor me.”

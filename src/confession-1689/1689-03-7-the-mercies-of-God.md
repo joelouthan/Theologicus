@@ -113,7 +113,7 @@ And my beloved, if you have never sat in a church where the gospel was preached 
 
 >1 Chronicles 29:14-15 (CSB) But who am I, and who are my people, that we should be able to give as generously as this? For everything comes from you, and we have given you only what comes from your own hand. For we are aliens and temporary residents in your presence as were all our ancestors. Our days on earth are like a shadow, without hope.
 
->Psalms 22:6 (CSB) But I am a worm and not a man, scorned by mankind and despised by people.
+>Psalm 22:6 (CSB) But I am a worm and not a man, scorned by mankind and despised by people.
 
 Or in the words of the Apostle Paul be our ever declaration:
 

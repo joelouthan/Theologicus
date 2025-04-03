@@ -89,14 +89,14 @@ You behold God? You trust in his Son? Here is what you gain as having God as Fat
 
 >Romans 8:28-29 (CSB) We know that all things work together for the good of those who love God, who are called according to his purpose. For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
 
->Psalms 17:15 (CSB) But I will see your face in righteousness;  
+>Psalm 17:15 (CSB) But I will see your face in righteousness;  
 >when I awake, I will be satisfied with your presence.
 
 ### You will be glorified in Christ
 
 >Romans 8:30 (CSB) And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
 
->Psalms 16:5-11 (CSB)  
+>Psalm 16:5-11 (CSB)  
 >LORD, you are my portion  
 >and my cup of blessing;  
 >you hold my future.  

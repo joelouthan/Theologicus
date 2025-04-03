@@ -46,7 +46,7 @@ So the world has suggested in its solution that perhaps if we could choose our o
 
 So, as the world teaches, we have taken upon ourselves to choose what our gender should be. Let me not mince words: to choose your own gender is a sin against God. For:
 
->Psalms 139:13-14 (CSB)  
+>Psalm 139:13-14 (CSB)  
 >For it was you who created my inward parts;  
 >you knit me together in my mother’s womb.  
 >I will praise you  

@@ -50,7 +50,7 @@ We will get there by the grace of God alone. Until then, the Father will conform
 
 ### Before time and space were thought of, God had already set his affection upon his people
 
->Psalms 90:1-2 (CSB)
+>Psalm 90:1-2 (CSB)
 >Lord, you have been our refuge
 >in every generation.
 >Before the mountains were born,

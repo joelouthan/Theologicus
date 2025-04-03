@@ -18,7 +18,7 @@
 
 >Luke 19:8 (CSB) But Zacchaeus stood there and said to the Lord, “Look, I’ll give half of my possessions to the poor, Lord. And if I have extorted anything from anyone, I’ll pay back four times as much.”
 
-Let us not be so quick to forget! We cannot repent of our sin within our own natural power for "no one does good, no, not even one" (Romans 3:12; Psalms 14) We cannot turn to God as sons of Adam. We are wicked and depraved. Repenting of sins is a good thing but we lack the ability to do actual good in the sight of God the only good.
+Let us not be so quick to forget! We cannot repent of our sin within our own natural power for "no one does good, no, not even one" (Romans 3:12; Psalm 14) We cannot turn to God as sons of Adam. We are wicked and depraved. Repenting of sins is a good thing but we lack the ability to do actual good in the sight of God the only good.
 
 But ah, look at Christ! He has come to be your God-owed obedience and he is your God perfection! And he has saved you and covers you in his righteousness. Yes, our works before God are as filthy rags. But because God has cleansed you, given you his own heart, his own Spirit, causes you to obey him because he gave you his only begotten Son, you and I, now sons of the Almighty God *get* to repent of our sins.
 

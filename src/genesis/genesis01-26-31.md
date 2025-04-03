@@ -85,7 +85,7 @@ So many of the laws of God deals with how we are to treat other humans. Do not s
 
 >Colossians 3:5-11 (CSB) Therefore, put to death what belongs to your earthly nature: sexual immorality, impurity, lust, evil desire, and greed, which is idolatry. Because of these, God’s wrath is coming upon the disobedient, and you once walked in these things when you were living in them. But now, put away all the following: anger, wrath, malice, slander, and filthy language from your mouth. Do not lie to one another, since you have put off the old self with its practices and have put on the new self. You are being renewed in knowledge according to the image of your Creator. In Christ there is not Greek and Jew, circumcision and uncircumcision, barbarian, Scythian, slave and free; but Christ is all and in all.
 
->Psalms 51:1-5 (CSB) Be gracious to me, God,  
+>Psalm 51:1-5 (CSB) Be gracious to me, God,  
 >according to your faithful love;  
 >according to your abundant compassion,  
 >blot out my rebellion.  
@@ -102,7 +102,7 @@ So many of the laws of God deals with how we are to treat other humans. Do not s
 
 ### Know that when we trust in Christ, we are cleansed from all sin
 
->Psalms 51:6-19 (CSB) Surely you desire integrity in the inner self,  
+>Psalm 51:6-19 (CSB) Surely you desire integrity in the inner self,  
 >and you teach me wisdom deep within.  
 >Purify me with hyssop, and I will be clean;  
 >wash me, and I will be whiter than snow.  

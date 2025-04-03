@@ -8,7 +8,7 @@
 
 ## The Text
 
->Psalms 119:72 (CSB) Instruction from your lips is better for me than thousands of gold and silver pieces.
+>Psalm 119:72 (CSB) Instruction from your lips is better for me than thousands of gold and silver pieces.
 
 ## The Chapter
 

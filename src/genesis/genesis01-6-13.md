@@ -40,7 +40,7 @@
 
 ><sup>28</sup>For in him we live and move and have our being, as even some of your own poets have said, ‘For we are also his offspring.’ Since, then, we are God’s offspring, we shouldn’t think that the divine nature is like gold or silver or stone, an image fashioned by human art and imagination.
 
->Psalms 72:19 (CSB) Blessed be his glorious name forever;
+>Psalm 72:19 (CSB) Blessed be his glorious name forever;
 >the whole earth is filled with his glory.
 >Amen and amen.
 
@@ -96,14 +96,14 @@ Go and tell them that there is a God who made you, who loves you, who is not far
 
 ### In his presence, there is only life, there is only fullness of joy and there is only pleasures forevermore
 
->Psalms 16:11 (ESV)  
+>Psalm 16:11 (ESV)  
 >You make known to me the path of life;  
 >in your presence there is fullness of joy;  
 >at your right hand are pleasures forevermore.
 
 ### In his presence, is only complete satisfaction
 
->Psalms 17:15 (ESV)  
+>Psalm 17:15 (ESV)  
 >As for me, I shall behold your face in righteousness;  
 >when I awake, I shall be satisfied with your likeness.
 
@@ -111,7 +111,7 @@ There is nothing else ever--not your life, being married, sex, success, power, w
 
 Once God opens our eyes, renews our minds, and exchanges our hearts, we worship like the sons of Korah once sang:
 
->Psalms 84:10 (CSB) Better a day in your courts  
+>Psalm 84:10 (CSB) Better a day in your courts  
 >than a thousand anywhere else.  
 >I would rather stand at the threshold of the house of my God  
 >than live in the tents of wicked people.

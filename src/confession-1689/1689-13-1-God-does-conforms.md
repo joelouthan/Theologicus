@@ -66,9 +66,9 @@ You are only crying out just like every single child of God upon being saved by 
 
 >1 Chronicles 29:14-15 (CSB) But who am I, and who are my people, that we should be able to give as generously as this? For everything comes from you, and we have given you only what comes from your own hand. For we are aliens and temporary residents in your presence as were all our ancestors. Our days on earth are like a shadow, without hope.
 
->Psalms 22:6 (CSB) But I am a worm and not a man, scorned by mankind and despised by people.
+>Psalm 22:6 (CSB) But I am a worm and not a man, scorned by mankind and despised by people.
 
->Psalms 51:3-5 (CSB) For I am conscious of my rebellion,  
+>Psalm 51:3-5 (CSB) For I am conscious of my rebellion,  
 >and my sin is always before me.  
 >Against you — you alone — I have sinned  
 >and done this evil in your sight.  

@@ -26,7 +26,7 @@ And it pleased the Father, Son, and Spirit for the manifestation of the glory of
 
 In the year of this writing, 2024, the term gender has been a bit of a controversial topic in the Western world. In our sinful brokenness, we have been so desperate in our strive for autonomy, we have taken upon ourselves to choose what are gender should be. Let me not mince words: to choose your own gender is sin against God. For:
 
->Psalms 139:13-14 (CSB)  
+>Psalm 139:13-14 (CSB)  
 >For it was you who created my inward parts;  
 >you knit me together in my mother’s womb.  
 >I will praise you  

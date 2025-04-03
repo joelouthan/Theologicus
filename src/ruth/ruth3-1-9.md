@@ -49,7 +49,7 @@
 
 >Matthew 11:28 (CSB) Come to me, all of you who are weary and burdened, and I will give you rest.
 
->Psalms 16:11 (CSB) You reveal the path of life to me;  
+>Psalm 16:11 (CSB) You reveal the path of life to me;  
 >in your presence is abundant joy;  
 >at your right hand are eternal pleasures.
 
@@ -104,7 +104,7 @@ Make no mistake--we are not to be idle. And yet, we do not have live in fear or 
 
 How does he do this? Consider the 23rd Psalm:
 
->Psalms 23:1-3 (CSB) The LORD is my shepherd;  
+>Psalm 23:1-3 (CSB) The LORD is my shepherd;  
 >I have what I need.  
 >He lets me lie down in green pastures;  
 >he leads me beside quiet waters.  

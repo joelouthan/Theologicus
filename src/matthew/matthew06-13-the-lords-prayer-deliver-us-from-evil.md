@@ -124,7 +124,7 @@ Trust in God because God has saved you to himself and he gives you his word
 
 ### Turn from evil and delight in the righteousness of God
 
->Psalms 17:3 (CSB) You have tested my heart;  
+>Psalm 17:3 (CSB) You have tested my heart;  
 >you have examined me at night.  
 >You have tried me and found nothing evil;  
 >I have determined that my mouth will not sin.

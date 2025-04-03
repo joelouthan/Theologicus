@@ -121,7 +121,7 @@ Go back to Genesis 3 where Satan keep spitting out more half-truths:
 
 Are there any other gods?
 
->Psalms 97:9 (CSB) For you, LORD,  
+>Psalm 97:9 (CSB) For you, LORD,  
 >are the Most High over the whole earth;  
 >you are exalted above all the gods.
 
@@ -133,7 +133,7 @@ Are there any other gods?
 
 Asaph writes it in this way about those who think of themselves like a god
 
->Psalms 82 (CSB) God stands in the divine assembly;  
+>Psalm 82 (CSB) God stands in the divine assembly;  
 >he pronounces judgment among the gods:  
 >2 “How long will you judge unjustly  
 >and show partiality to the wicked? Selah  

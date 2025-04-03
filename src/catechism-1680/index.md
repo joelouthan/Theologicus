@@ -150,7 +150,7 @@ No. God created them good [^1] and in his own image, [^2] that is, in true right
 [^2] Genesis 1:26-27
 [^3] Ephesians 4:
 [^4] Colossians 3:
-[^5] Psalms 8:1-9
+[^5] Psalm 8:1-9
 
 #### Question 7 Then where does this corrupt human nature come from?
 
@@ -160,7 +160,7 @@ From the fall and disobedience of our first parents, Adam and Eve, in Paradise.[
 
 [^1] Genesis 3:1-24
 [^2] Romans 5:12 Romans 5:18-19
-[^3] Psalms 51:
+[^3] Psalm 51:
 
 #### Question 8 But are we so corrupt that we are totally unable to do any good and inclined toward all evil?
 

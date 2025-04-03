@@ -7,11 +7,11 @@
 }
 </style>
 
-# Praying Through Psalms, An Introduction & Resources
+# Praying Through Psalm, An Introduction & Resources
 
 ## The Introduction
 
-I hope to write a commentary on the Psalms. In the meantime, I will pray through them.
+I hope to write a commentary on the Psalm. In the meantime, I will pray through them.
 
 <hr style="clear:both;">
 
@@ -87,7 +87,7 @@ MacDonald Publishing.
 
 <hr style="clear:both;">
 
-<img src="commentary-psalms-hamilton.jpg">Psalms (EBTC) (Volumes 1 & 2)  
+<img src="commentary-psalms-hamilton.jpg">Psalm (EBTC) (Volumes 1 & 2)  
 James M. Hamilton Jr.  
 Lexham Academic. December 15, 2021.  
 [Goodreads](https://www.goodreads.com/book/show/59694368-psalms-volume-i?from_search=true&from_srp=true&qid=JyuA1mwZ60&rank=1)

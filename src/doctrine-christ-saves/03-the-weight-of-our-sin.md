@@ -36,7 +36,7 @@ This sin is not just a brokenness I was born into but it was an offense that I h
 
 God has set the standard of righteousness which is his law. Keeping the law does not just mean keeping it from the moment you have known about it but rather keeping it from birth. For:
 
->Psalms 58:3-5 (CSB) The wicked go astray from the womb;  
+>Psalm 58:3-5 (CSB) The wicked go astray from the womb;  
 >liars wander about from birth.  
 >They have venom like the venom of a snake,  
 >like the deaf cobra that stops up its ears,  
@@ -45,7 +45,7 @@ God has set the standard of righteousness which is his law. Keeping the law does
 
 Too many people read these passages and they think, "Oh that is them--that is not me." Yes the same man who wrote this passage also wrote:
 
->Psalms 51:3-5 (CSB) For I am conscious of my rebellion,  
+>Psalm 51:3-5 (CSB) For I am conscious of my rebellion,  
 >and my sin is always before me.  
 >Against you — you alone — I have sinned  
 >and done this evil in your sight.  
@@ -56,7 +56,7 @@ Too many people read these passages and they think, "Oh that is them--that is no
 
 For the psalmist who wrote:
 
->Psalms 73:4-12 (CSB) They have an easy time until they die,  
+>Psalm 73:4-12 (CSB) They have an easy time until they die,  
 >and their bodies are well fed.  
 >They are not in trouble like others;  
 >they are not afflicted like most people.  
@@ -78,7 +78,7 @@ For the psalmist who wrote:
 
 Is the same psalmist realized just a few quick moments later:
 
->Psalms 73:21-22 (CSB) When I became embittered  
+>Psalm 73:21-22 (CSB) When I became embittered  
 >and my innermost being was wounded,  
 >I was stupid and didn’t understand;  
 >I was an unthinking animal toward you.

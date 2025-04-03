@@ -127,7 +127,7 @@ And yet, Christ subjected himself to that same suffering--even to the point of d
 
 ### This is not the end
 
->Psalms 32:1-2 (CSB) How joyful is the one
+>Psalm 32:1-2 (CSB) How joyful is the one
 >whose transgression is forgiven,
 >whose sin is covered!
 >2 How joyful is a person whom

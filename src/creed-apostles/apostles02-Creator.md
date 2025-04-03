@@ -59,7 +59,7 @@ Page 1, Book 1, Chapter 1, Verse 1:
 
 #### Since God is Creator is before all things
 
->Psalms 90:2 Before the mountains were born, before you gave birth to the earth and the world, from eternity to eternity, you are God. 
+>Psalm 90:2 Before the mountains were born, before you gave birth to the earth and the world, from eternity to eternity, you are God. 
 
 
 #### Christ is God and therefore, is before all things
