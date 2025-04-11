@@ -155,7 +155,7 @@ Does the Spirit does this saving work over the course of one's life or in a mome
 
 ### yet so as they come most freely, being made willing by His grace.
 
->Psalms 18:17-19 (CSB) He rescued me from my powerful enemy  
+>Psalm 18:17-19 (CSB) He rescued me from my powerful enemy  
 >and from those who hated me,  
 >for they were too strong for me.  
 >They confronted me in the day of my calamity,  
@@ -163,20 +163,20 @@ Does the Spirit does this saving work over the course of one's life or in a mome
 >He brought me out to a spacious place;  
 >he rescued me because he delighted in me.
 >
->Psalms 116:8 (CSB) For you, LORD, rescued me from death,  
+>Psalm 116:8 (CSB) For you, LORD, rescued me from death,  
 >my eyes from tears,  
 >my feet from stumbling.
 >
->Psalms 34:4 (CSB) I sought the LORD, and he answered me  
+>Psalm 34:4 (CSB) I sought the LORD, and he answered me  
 >and rescued me from all my fears.
 
 We too were once disobedient and enslaved and dead in our sins. How does God respond?
 
->Psalms 81:7 (CSB) You called out in distress, and I rescued you;  
+>Psalm 81:7 (CSB) You called out in distress, and I rescued you;  
 >I answered you from the thundercloud.  
 >I tested you at the Waters of Meribah. *Selah*
 
->Psalms 103:13-14 (CSB) As a father has compassion on his children,  
+>Psalm 103:13-14 (CSB) As a father has compassion on his children,  
 >so the LORD has compassion on those who fear him.  
 >For he knows what we are made of,  
 >remembering that we are dust.

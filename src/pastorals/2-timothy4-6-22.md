@@ -118,14 +118,14 @@ Equipping, encouraging, blessing others so that they can take the good news of t
 
 ### Glorified by God: God is your All-in-all in life and in the death
 
->Psalms 16:5-6 (CSB) LORD, you are my portion
+>Psalm 16:5-6 (CSB) LORD, you are my portion
 and my cup of blessing;
 you hold my future.
 The boundary lines have fallen for me
 in pleasant places;
 indeed, I have a beautiful inheritance.
 
->Psalms 68:6 (CSB) God provides homes for those who are deserted.
+>Psalm 68:6 (CSB) God provides homes for those who are deserted.
 He leads out the prisoners to prosperity,
 but the rebellious live in a scorched land.
 

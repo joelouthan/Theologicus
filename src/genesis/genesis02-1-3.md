@@ -34,7 +34,7 @@ Look at God's heart towards us and some of the ways He is to His creation:
 
 ### God loves us and is always our protection and refuge from sin and evil
 
->Psalms 61:1-3 (CSB) God, hear my cry;  
+>Psalm 61:1-3 (CSB) God, hear my cry;  
 >pay attention to my prayer.  
 >I call to you from the ends of the earth  
 >when my heart is without strength.  
@@ -42,14 +42,14 @@ Look at God's heart towards us and some of the ways He is to His creation:
 >for you have been a refuge for me,  
 >a strong tower in the face of the enemy.
 
->Psalms 18:1-2 (CSB) I love you, LORD, my strength.  
+>Psalm 18:1-2 (CSB) I love you, LORD, my strength.  
 >The LORD is my rock,  
 >my fortress, and my deliverer,  
 >my God, my rock where I seek refuge,  
 >my shield and the horn of my salvation,  
 >my stronghold.
 
->Psalms 18:30-31 (CSB) God—his way is perfect;  
+>Psalm 18:30-31 (CSB) God—his way is perfect;  
 >the word of the LORD is pure.  
 >He is a shield to all who take refuge in him.  
 >For who is God besides the LORD?  
@@ -76,10 +76,10 @@ Within the gospel, we must understand the truth that Jesus is the only way to fu
 
 And the Triune God does so by dwelling in our hearts.
 
->Psalms 17:15 (CSB) But I will see your face in righteousness;  
+>Psalm 17:15 (CSB) But I will see your face in righteousness;  
 >when I awake, I will be satisfied with your presence.
 
->Psalms 16:11 (ESV) You make known to me the path of life;  
+>Psalm 16:11 (ESV) You make known to me the path of life;  
 >in your presence there is fullness of joy;  
 >at your right hand are pleasures forevermore.
 

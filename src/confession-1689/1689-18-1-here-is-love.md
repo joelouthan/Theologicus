@@ -112,6 +112,6 @@ God knew us and he perfectly saved us.
 
 We get to boast because the Christ has us! Christ has us, the Father has made his home in us, and the Spirit dwells in us. We have the Triune God! We have the fullness of God! We have the presence of God with us! We are his Beloved and he is ours!
 
->Psalms 23:6 (CSB) Only goodness and faithful love will pursue me all the days of my life, and I will dwell in the house of the LORD as long as I live.
+>Psalm 23:6 (CSB) Only goodness and faithful love will pursue me all the days of my life, and I will dwell in the house of the LORD as long as I live.
 
 [^1]: William Rees, “Here is Love,” 1876.

@@ -112,7 +112,7 @@ In this immense love and grace, receive the gift!
 
 ### Receive the gift that is God!
 
->Psalms 34:8-9 (CSB) Taste and see that the LORD is good.  
+>Psalm 34:8-9 (CSB) Taste and see that the LORD is good.  
 >How happy is the person who takes refuge in him!  
 > You who are his holy ones, fear the LORD,  
 >for those who fear him lack nothing.

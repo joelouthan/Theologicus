@@ -80,7 +80,7 @@ and her masses are parched with thirst.
 
 David proclaims it this way:
 
->Psalms 40:9-11 (CSB) I proclaim righteousness in the great assembly;
+>Psalm 40:9-11 (CSB) I proclaim righteousness in the great assembly;
 see, I do not keep my mouth closed—
 as you know, LORD.
 I did not hide your righteousness in my heart;

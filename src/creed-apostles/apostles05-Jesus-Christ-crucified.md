@@ -102,7 +102,7 @@ To save his people, Christ on the cross was done. But to redeem all of creation 
 
 >Hosea 13:14 (CSB) I will ransom them from the power of Sheol. I will redeem them from death. Death, where are your barbs? Sheol, where is your sting? Compassion is hidden from my eyes.
 
->Psalms 24:7-10 (CSB)  
+>Psalm 24:7-10 (CSB)  
 >Lift up your heads, you gates!  
 >Rise up, ancient doors!  
 >Then the King of glory will come in.  

@@ -117,7 +117,7 @@
 
 >1 Corinthians 10:14 (CSB) Therefore, my dear friends, flee from idolatry.
 
->Psalms 97:9-10 (CSB) For you, LORD,  
+>Psalm 97:9-10 (CSB) For you, LORD,  
 >are the Most High over the whole earth;  
 >you are exalted above all the gods.  
 >You who love the LORD, hate evil!  

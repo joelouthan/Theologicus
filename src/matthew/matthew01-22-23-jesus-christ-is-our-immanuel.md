@@ -56,13 +56,13 @@ and actions are weighed by him.
 
 ### El Elyon: The God Most High
 
->Psalms 97:9 (CSB) For you, LORD,
+>Psalm 97:9 (CSB) For you, LORD,
 are the Most High over the whole earth;
 you are exalted above all the gods.
 
 ### El Olam: The Everlasting God
 
->Psalms 90:1-2 (ESV)
+>Psalm 90:1-2 (ESV)
 Lord, you have been our dwelling place
 in all generations.
 Before the mountains were brought forth,
@@ -88,7 +88,7 @@ God replied to Moses, “I AM WHO I AM. This is what you are to say to the Israe
 
 ### Jehovah-Bore: The LORD Creator
 
->Psalms 33:6 (CSB) The heavens were made by the word of the LORD,
+>Psalm 33:6 (CSB) The heavens were made by the word of the LORD,
 and all the stars, by the breath of his mouth.
 
 ### Jehovah-Jireh: The LORD Our Provider
@@ -105,7 +105,7 @@ and all the stars, by the breath of his mouth.
 
 ### Jehovah-Rapha: The LORD Our Healer
 
->Psalms 103:1-5 (CSB) My soul, bless the LORD,
+>Psalm 103:1-5 (CSB) My soul, bless the LORD,
 and all that is within me, bless his holy name.
 My soul, bless the LORD,
 and do not forget all his benefits.
@@ -118,7 +118,7 @@ your youth is renewed like the eagle.
 
 ### Jehovah-Rohi: The LORD Our Shepherd
 
->Psalms 23:1 (CSB) The LORD is my shepherd;
+>Psalm 23:1 (CSB) The LORD is my shepherd;
 I have what I need.
 
 ### Jehovah-Sabbaoth: The LORD of Hosts
@@ -131,7 +131,7 @@ I have what I need.
 
 ### Jehovah-Shammah: The LORD is There
 
->Ezekiel 48:35; also Psalms 139:7-8 (CSB)
+>Ezekiel 48:35; also Psalm 139:7-8 (CSB)
 Where can I go to escape your Spirit?
 Where can I flee from your presence?
 If I go up to heaven, you are there;

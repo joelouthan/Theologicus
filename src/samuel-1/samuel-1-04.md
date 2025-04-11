@@ -67,7 +67,7 @@
 and the number of his months depends on you,
 and since you have set limits he cannot pass,
 
->Psalms 39:4-5 (CSB) “LORD, make me aware of my end  
+>Psalm 39:4-5 (CSB) “LORD, make me aware of my end  
 and the number of my days  
 so that I will know how short-lived I am.  
 In fact, you have made my days just inches long,  

@@ -146,7 +146,7 @@ Hearing about the faith of others and the good works of others is an encourageme
 
 >1 Peter 2:25 (CSB) For you were like sheep going astray, but you have now returned to the Shepherd and Overseer of your souls.
 
->Psalms 23:1 (CSB) The LORD is my shepherd;  
+>Psalm 23:1 (CSB) The LORD is my shepherd;  
 >I have what I need.
 
 ### Christ is the Head Pastor of the Church

@@ -90,7 +90,7 @@ We are declared blameless.
 >for my own sake  
 >and remember your sins no more.
 
->Psalms 103:10-12 (CSB) He has not dealt with us as our sins deserve  
+>Psalm 103:10-12 (CSB) He has not dealt with us as our sins deserve  
 >or repaid us according to our iniquities.  
 >11 For as high as the heavens are above the earth,  
 >so great is his faithful love  
@@ -105,7 +105,7 @@ We are declared blameless.
 
 ### We are to confess our sins to God
 
->Psalms 51:1-4 (CSB) Be gracious to me, God,  
+>Psalm 51:1-4 (CSB) Be gracious to me, God,  
 >according to your faithful love;  
 >according to your abundant compassion,  
 >blot out my rebellion.  

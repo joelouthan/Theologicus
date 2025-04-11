@@ -14,7 +14,7 @@
 
 **As all believers are bound to join themselves to particular churches, when and where they have opportunity so to do; so all that are admitted unto the privileges of a church, are also under the censures and government thereof, according to the rule of Christ.**
 
->Psalms 103:1-5 (CSB) My soul, bless the LORD,  
+>Psalm 103:1-5 (CSB) My soul, bless the LORD,  
 >and all that is within me, bless his holy name.  
 >My soul, bless the LORD,  
 >and do not forget all his benefits.  

@@ -8,11 +8,11 @@
 
 ## The Text
 
->Psalms 97:9 (CSB) For you, LORD,  
+>Psalm 97:9 (CSB) For you, LORD,  
 >are the Most High over the whole earth;  
 >you are exalted above all the gods.
 
->Psalms 90:2 (CSB) Before the mountains were born,  
+>Psalm 90:2 (CSB) Before the mountains were born,  
 >before you gave birth to the earth and the world,  
 >from eternity to eternity, you are God.
 

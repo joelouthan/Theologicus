@@ -37,7 +37,7 @@ Happy. Okay. Fulfilled. Right?  All of those are found in God alone.
 
 How did David pray it?
 
->Psalms 17:14-15 (CSB)  
+>Psalm 17:14-15 (CSB)  
 >With your hand, LORD, save me from men,  
 >from men of the world  
 >whose portion is in this life:  

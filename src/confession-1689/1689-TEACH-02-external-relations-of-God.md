@@ -222,10 +222,10 @@ He created us for his good pleasure.
 
 **he hath most sovereign dominion over all creatures, to do by them, for them, or upon them, whatsoever himself pleaseth**
 
->Psalms 115:3 (CSB) Our God is in heaven
+>Psalm 115:3 (CSB) Our God is in heaven
 >and does whatever he pleases.
 
->Psalms 135:6 (CSB) The LORD does whatever he pleases  
+>Psalm 135:6 (CSB) The LORD does whatever he pleases  
 >in heaven and on earth,  
 >in the seas and all the depths.
 

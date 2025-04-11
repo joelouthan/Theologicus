@@ -57,7 +57,7 @@ Alas, it is difficult for the modern mind to accept the notion that we, humans, 
 
 But there are a couple problems with that, the body, mind, soul, and spirit of the human is not bifurcated nor compartmentalize nor separated but intrinsically and intricately and inseparably woven and connected and overlapping together. What affects the mind affects the heart affects the body that affects the emotions that affects... etc.. 
 
->Psalms 139:13 (CSB) For it was you who created my inward parts; you knit me together in my mother’s womb.
+>Psalm 139:13 (CSB) For it was you who created my inward parts; you knit me together in my mother’s womb.
 
 We can strive and push. But in the end, we are limited. We will never run a one second mile. We will never know everything. We will not have all wisdom. We will not be full-hearted. We might get close but not to its infinite.
 
@@ -132,4 +132,4 @@ What can we do? Pray and ask God to mature us and conform us to the image of His
 
 [^calvin-scriptures]: John Calvin. [Institutes of the Christian Religion: Calvin's Own 'Essentials' Edition](https://www.goodreads.com/book/show/23306187-institutes-of-the-christian-religion). 199.
 
-[^spurgeon-psalms46]: Charles H. Spurgeon. [The Treasury of David: Psalms 46](https://www.christianity.com/bible/commentary.php?com=spur&b=19&c=46). 1871.
+[^spurgeon-psalms46]: Charles H. Spurgeon. [The Treasury of David: Psalm 46](https://www.christianity.com/bible/commentary.php?com=spur&b=19&c=46). 1871.

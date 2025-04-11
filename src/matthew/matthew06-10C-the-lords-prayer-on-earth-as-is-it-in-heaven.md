@@ -15,7 +15,7 @@
 
 ## On Earth As Is It In Heaven
 
->Psalms 73:21-28 (ESV)  
+>Psalm 73:21-28 (ESV)  
 >When my soul was embittered,  
 >when I was pricked in heart,  
 >I was brutish and ignorant;  
@@ -158,7 +158,7 @@ So, then what are we praying for? We pray because...
 
 #### We need to see how far are we from the glory of God
 
->Psalms 73:21-28 (ESV)  
+>Psalm 73:21-28 (ESV)  
 >When my soul was embittered,  
 >when I was pricked in heart,  
 >I was brutish and ignorant;  

@@ -22,7 +22,7 @@
 
 Before time and space began, before he created the heavens and the earth, before Genesis 1:1, God had already set his affections and love and mercies upon his precious people.
 
->Psalms 90:1-2 (CSB) Lord, you have been our refuge in every generation. Before the mountains were born, before you gave birth to the earth and the world, from eternity to eternity, you are God.
+>Psalm 90:1-2 (CSB) Lord, you have been our refuge in every generation. Before the mountains were born, before you gave birth to the earth and the world, from eternity to eternity, you are God.
 
 I have heard so many weird explanations from well-intended Christians try to do their best to explain away words like predestination and foreknew when it comes to God. We don’t have a frame for knowing before existing. We don’t have a mindset of loving before we were alive. But for the God was is from everlasting to everlasting, this is who he is and nothing more nor less.
 
@@ -104,7 +104,7 @@ But the Creator has absolute rights over the creation.
 
 In other words, we cannot put God into our debt. We don't do the right thing and move God to do our bidding. That is Paganism and God is above idolatries. For:
 
->Psalms 97:9 (CSB) For you, LORD,  
+>Psalm 97:9 (CSB) For you, LORD,  
 >are the Most High over the whole earth;  
 >you are exalted above all the gods.
 

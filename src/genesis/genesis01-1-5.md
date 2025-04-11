@@ -199,7 +199,7 @@ That same wisdom that was there from the beginning that we once had. We have to 
 
 Now, how do I know that Christ *joyfully* obeyed God evening unto death on the cross? Because in the 2nd chapter of Acts, Peter preaches this about Christ himself:
 
->Psalms 16:7-11 (CSB)  
+>Psalm 16:7-11 (CSB)  
 >I will bless the LORD who counsels me—  
 >even at night when my thoughts trouble me.  
 >I always let the LORD guide me.  

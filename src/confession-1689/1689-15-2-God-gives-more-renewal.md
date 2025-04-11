@@ -32,7 +32,7 @@ Put it this way, unless God made his home in you, then all the church attendance
 
 "But", you might say, "doesn't the Bible say, 'Those who call on the name of the Lord will be saved'?" (Romans 10:13) You might even suggest, "Doesn't Jesus Christ command us to repent from sin?"
 
-My beloved, would you agree that calling on the name of the Lord and repenting from sin are absolute good things in this sight of God? (Not a trick question. The answer is undoubtedly yes.) But we just read in Romans 3:10-12 (quoting Psalms 14) that "No one is good--no not even one."
+My beloved, would you agree that calling on the name of the Lord and repenting from sin are absolute good things in this sight of God? (Not a trick question. The answer is undoubtedly yes.) But we just read in Romans 3:10-12 (quoting Psalm 14) that "No one is good--no not even one."
 
 Make that make sense. How can a wicked depraved sinner who cannot possibly do good does good from within the wicked self?
 

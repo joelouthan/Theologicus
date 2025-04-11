@@ -194,13 +194,13 @@ We are not going anywhere--not with God.
 
 ### God restores: Holy Spirit brings us all the way home
 
->Psalms 16:10-11 (CSB) For you will not abandon me to Sheol;
+>Psalm 16:10-11 (CSB) For you will not abandon me to Sheol;
 you will not allow your faithful one to see decay.
 11 You reveal the path of life to me;
 in your presence is abundant joy;
 at your right hand are eternal pleasures.
 
->Psalms 17:15 (CSB) But I will see your face in righteousness;
+>Psalm 17:15 (CSB) But I will see your face in righteousness;
 when I awake, I will be satisfied with your presence.
 
 >Romans 8:35-39 (CSB) Who can separate us from the love of Christ? Can affliction or distress or persecution or famine or nakedness or danger or sword?As it is written:  

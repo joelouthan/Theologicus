@@ -89,7 +89,7 @@ Abstained from and run far from such teaching. Run to the word and sit in him.
 
 Whatever God gives us, we give. For:
 
->Psalms 16:5-9 (CSB)  
+>Psalm 16:5-9 (CSB)  
 >LORD, you are my portion  
 >and my cup of blessing;  
 >you hold my future.  
@@ -107,7 +107,7 @@ Whatever God gives us, we give. For:
 
 And
 
->Psalms 50:10 (CSB) ... for every animal of the forest is mine, the cattle on a thousand hills.
+>Psalm 50:10 (CSB) ... for every animal of the forest is mine, the cattle on a thousand hills.
 
 And because he is our great Father in heaven, who has given the world and the galaxy to His Son, Christ Jesus our Lord, and because of his Son, we are made co-heirs with the heir of the entire world.
 

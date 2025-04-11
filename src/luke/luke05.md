@@ -116,7 +116,7 @@ The law was never intended to save--only point us back to God
 
 The law of God is enough--it is perfect and good and true and wise
 
->Psalms 19:7-10 (CSB)  
+>Psalm 19:7-10 (CSB)  
 >The instruction of the LORD is perfect,  
 >renewing one’s life;  
 >the testimony of the LORD is trustworthy,  
@@ -136,7 +136,7 @@ The law of God is enough--it is perfect and good and true and wise
 
 Know the word of God and draw close to him
 
->Psalms 119:11 (CSB) I have treasured your word in my heart
+>Psalm 119:11 (CSB) I have treasured your word in my heart
 >so that I may not sin against you.
 
 Where have we added to the word of God?

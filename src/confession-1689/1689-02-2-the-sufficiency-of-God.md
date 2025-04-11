@@ -237,7 +237,7 @@ But here is the good news:
 
 ### to him is due from angels and men, whatsoever worship, service, or obedience, as creatures they owe unto the Creator, and whatever he is further pleased to require of them
 
->Psalms 97:9 (CSB) For you, LORD,
+>Psalm 97:9 (CSB) For you, LORD,
 >are the Most High over the whole earth;
 >you are exalted above all the gods.
 

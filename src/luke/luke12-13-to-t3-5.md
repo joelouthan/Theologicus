@@ -30,7 +30,7 @@
 
 >Matthew 5:43-48 (CSB) “You have heard that it was said, Love your neighbor and hate your enemy. But I tell you, love your enemies and pray for those who persecute you, so that you may be children of your Father in heaven. For he causes his sun to rise on the evil and the good, and sends rain on the righteous and the unrighteous. For if you love those who love you, what reward will you have? Don’t even the tax collectors do the same? And if you greet only your brothers and sisters, what are you doing out of the ordinary? Don’t even the Gentiles do the same? Be perfect, therefore, as your heavenly Father is perfect.
 
->Psalms 16:5-11 (CSB)   
+>Psalm 16:5-11 (CSB)   
 >LORD, you are my portion  
 >and my cup of blessing;  
 >you hold my future.  

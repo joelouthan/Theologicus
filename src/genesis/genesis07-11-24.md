@@ -131,7 +131,7 @@ But God has made a way and provision to turn away from yourself and your sin: tr
 
 >John 14:6-7 (CSB) Jesus told him, “I am the way, the truth, and the life. No one comes to the Father except through me. If you know me, you will also know my Father. From now on you do know him and have seen him.”
 
->Psalms 16:11 (CSB) You reveal the path of life to me;
+>Psalm 16:11 (CSB) You reveal the path of life to me;
 in your presence is abundant joy;
 at your right hand are eternal pleasures.
 

@@ -47,15 +47,15 @@ Your most grievous sins? Cleansed.
 
 Your most wicked sins? Covered.
 
->Psalms 85:2 (CSB) You forgave your people’s guilt;you covered all their sin. *Selah*
+>Psalm 85:2 (CSB) You forgave your people’s guilt;you covered all their sin. *Selah*
 
 Your most vile sins? Removed.
 
->Psalms 103:12 (CSB) As far as the east is from the west, so far has he removed our transgressions from us.
+>Psalm 103:12 (CSB) As far as the east is from the west, so far has he removed our transgressions from us.
 
 Your most monstrous sins? Forgiven.
 
->Psalms 103:3 (CSB) He forgives all your iniquity;he heals all your diseases.
+>Psalm 103:3 (CSB) He forgives all your iniquity;he heals all your diseases.
 
 And because of what God has done through Jesus Christ his Son by the power of the Holy Spirit alone, you are his elect.
 

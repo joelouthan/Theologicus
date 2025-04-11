@@ -22,7 +22,7 @@ What has God asked his followers to go and do?
 
 ## Christ Calls Us to Understand the Scriptures
 
->Luke 24:44–49 (CSB) He told them, “These are my words that I spoke to you while I was still with you—that everything written about me in the Law of Moses, the Prophets, and the Psalms must be fulfilled.”  Then he opened their minds to understand the Scriptures.  He also said to them, “This is what is written: The Messiah will suffer and rise from the dead the third day,  and repentance for forgiveness of sins will be proclaimed in his name to all the nations, beginning at Jerusalem.  You are witnesses of these things.  And look, I am sending you what my Father promised. As for you, stay in the city until you are empowered from on high.”
+>Luke 24:44–49 (CSB) He told them, “These are my words that I spoke to you while I was still with you—that everything written about me in the Law of Moses, the Prophets, and the Psalm must be fulfilled.”  Then he opened their minds to understand the Scriptures.  He also said to them, “This is what is written: The Messiah will suffer and rise from the dead the third day,  and repentance for forgiveness of sins will be proclaimed in his name to all the nations, beginning at Jerusalem.  You are witnesses of these things.  And look, I am sending you what my Father promised. As for you, stay in the city until you are empowered from on high.”
 
 >Acts 1:6–8 (CSB) So when they had come together, they asked him, “Lord, are you restoring the kingdom to Israel at this time?”
 >

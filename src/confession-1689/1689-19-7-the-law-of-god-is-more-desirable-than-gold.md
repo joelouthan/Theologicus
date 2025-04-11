@@ -8,7 +8,7 @@
 
 ## The Text
 
->Psalms 19:10-11 (CSB)  
+>Psalm 19:10-11 (CSB)  
 >They are more desirable than gold —  
 >than an abundance of pure gold;  
 >and sweeter than honey  

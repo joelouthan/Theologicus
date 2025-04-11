@@ -94,12 +94,12 @@ Sealed by the Spirit:
 
 Your family may disown you, the Lord cannot:
 
->Psalms 27:10 (CSB) Even if my father and mother abandon me,
+>Psalm 27:10 (CSB) Even if my father and mother abandon me,
 the LORD cares for me.
 
 Call upon him, and he will answer you:
 
->Psalms 9:9-10 (CSB) The LORD is a refuge for the persecuted,
+>Psalm 9:9-10 (CSB) The LORD is a refuge for the persecuted,
 a refuge in times of trouble.
 10 Those who know your name trust in you
 because you have not abandoned
@@ -107,7 +107,7 @@ those who seek you, LORD.
 
 Even in your deepest darkest pain when God feels so far, watch when God draws closer to those who cry out to him:
 
->Psalms 22:1-5 (CSB) My God, my God, why have you abandoned me?
+>Psalm 22:1-5 (CSB) My God, my God, why have you abandoned me?
 Why are you so far from my deliverance
 and from my words of groaning?
 2 My God, I cry by day, but you do not answer,

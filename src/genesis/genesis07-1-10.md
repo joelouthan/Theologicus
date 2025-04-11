@@ -14,7 +14,7 @@ I say that to say that when you read Genesis 4 through 6, you might be tempting 
 
 >John 1:11-13 (CSB) He came to his own, and his own people did not receive him. But to all who did receive him, he gave them the right to be children of God, to those who believe in his name,who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
 
-What Bible teaches clearly is that every human being born of man was born far from the holiness of God. By birth, we are destined to died. "No one is righteous; no, not one" as the Apostle Paul quotes King David in the Psalms. 
+What Bible teaches clearly is that every human being born of man was born far from the holiness of God. By birth, we are destined to died. "No one is righteous; no, not one" as the Apostle Paul quotes King David in the Psalm. 
 
 As I overstated that Noah, in his flesh and depravity, was wicked like all of mankind on the face of the earth.
 
