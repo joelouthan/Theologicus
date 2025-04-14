@@ -112,9 +112,11 @@ One particular book he threw at me was *God of the Possible: A Biblical Introduc
 
 ChatGPT defines Open Theism as:
 
->Open Theism is a theological viewpoint that emphasizes the belief that God is omniscient, but that the future is not fully determined. This means that God is aware of all possible futures, but that the actions and decisions of human beings can ultimately determine which future comes to pass. This view contrasts with traditional theism, which holds that God has a specific plan for the future that will inevitably come to pass. Open Theism is also sometimes referred to as "free will theism."
->
->ChatGPT. "Could you explain to me Open Theism, please?". [https://chat.openai.com/chat](https://chat.openai.com/chat). January 9, 2023 version.
+>Open Theism is a theological viewpoint that emphasizes the belief that God is omniscient, but that the future is not fully determined. This means that God is aware of all possible futures, but that the actions and decisions of human beings can ultimately determine which future comes to pass. This view contrasts with traditional theism, which holds that God has a specific plan for the future that will inevitably come to pass. Open Theism is also sometimes referred to as "free will theism."[^chatgpt-opentheism]
+
+[^chatgpt-opentheism]: "*Could you explain to me Open Theism, please?*" ChatGPT (website). Access January 9, 2023. [https://chat.openai.com/chat](https://chat.openai.com/chat).
+
+[^chatgpt-theology-glory]: *Could you explain a 'theology of glory' and a 'theology of the cross?* *ChatGPT* (website). Accessed March 7, 2023. [https://chat.openai.com/chat](https://chat.openai.com/chat).
 
 Mr. Boyd introduces the concept of Open Theism by reciting the story of King Hezekiah. The Lord appeared to King Hezekiah and simply stated:
 
