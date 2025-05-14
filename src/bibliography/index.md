@@ -62,6 +62,10 @@
 
 {{#include biblio-commentaries-romans.md}}
 
+### Galatians
+
+{{#include biblio-commentaries-galatians.md}}
+
 ### Pastorals
 
 {{#include biblio-commentaries-pastorals.md}}
