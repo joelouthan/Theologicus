@@ -1168,7 +1168,7 @@
   - [Romans 16 God Has Overcome--Amen](romans/romans16.md)
 - [1 Corinthians]()
 - [2 Corinthians]()
-- [Galatians]()
+- [Galatians](galatians/index.md)
 - [Ephesians]()
 - [Philippians]()
 - [Colossians]()
