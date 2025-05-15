@@ -24,51 +24,51 @@
 
 ## Commentaries
 
-{{#include biblio-commentaries.md}}
+{{#include biblio-cmt.md}}
 
 ### Genesis
 
-{{#include biblio-commentaries-genesis.md}}
+{{#include biblio-cmt-genesis.md}}
 
 ### Judges
 
-{{#include biblio-commentaries-judges.md}}
+{{#include biblio-cmt-judges.md}}
 
 ### Ruth
 
-{{#include biblio-commentaries-ruth.md}}
+{{#include biblio-cmt-ruth.md}}
 
 ### Samuel
 
-{{#include biblio-commentaries-samuel.md}}
+{{#include biblio-cmt-samuel.md}}
 
 ### Psalms
 
-{{#include biblio-commentaries-psalms.md}}
+{{#include biblio-cmt-psalms.md}}
 
 ### Matthew
 
-{{#include biblio-commentaries-matthew.md}}
+{{#include biblio-cmt-matthew.md}}
 
 ### Mark
 
-{{#include biblio-commentaries-mark.md}}
+{{#include biblio-cmt-mark.md}}
 
 ### Luke
 
-{{#include biblio-commentaries-luke.md}}
+{{#include biblio-cmt-luke.md}}
 
 ### Romans
 
-{{#include biblio-commentaries-romans.md}}
+{{#include biblio-cmt-romans.md}}
 
 ### Galatians
 
-{{#include biblio-commentaries-galatians.md}}
+{{#include biblio-cmt-galatians.md}}
 
 ### Pastorals
 
-{{#include biblio-commentaries-pastorals.md}}
+{{#include biblio-cmt-pastorals.md}}
 
 ## Preaching
 

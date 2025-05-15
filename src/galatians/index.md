@@ -14,4 +14,4 @@
 
 ### Commentaries & Books
 
-{{#include ../bibliography/biblio-commentaries-galatians.md}}
+{{#include ../bibliography/biblio-cmt-galatians.md}}

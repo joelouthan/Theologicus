@@ -14,11 +14,11 @@
 
 #### General Commentaries
 
-{{#include ../bibliography/biblio-commentaries.md}}
+{{#include ../bibliography/biblio-cmt.md}}
 
 #### Samuel
 
-{{#include ../bibliography/biblio-commentaries-samuel.md}}
+{{#include ../bibliography/biblio-cmt-samuel.md}}
 
 ### Theology
 

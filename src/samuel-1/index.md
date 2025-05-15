@@ -44,19 +44,19 @@ The only thing I can say is, "There's nothing to it but to do it."
 
 #### Judges
 
-{{#include ../bibliography/biblio-commentaries-judges.md}}
+{{#include ../bibliography/biblio-cmt-judges.md}}
 
 #### Ruth
 
-{{#include ../bibliography/biblio-commentaries-ruth.md}}
+{{#include ../bibliography/biblio-cmt-ruth.md}}
 
 #### Samuel
 
-{{#include ../bibliography/biblio-commentaries-samuel.md}}
+{{#include ../bibliography/biblio-cmt-samuel.md}}
 
 #### General Commentaries
 
-{{#include ../bibliography/biblio-commentaries.md}}
+{{#include ../bibliography/biblio-cmt.md}}
 
 ### Theology
 
