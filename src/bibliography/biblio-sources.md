@@ -1,5 +1,3 @@
-<img src="dnd-1689-site-logo.png">Site: [Doctrine & Devotion](http://www.doctrineanddevotion.com/)  
-[The 1689 Baptist Confession of Faith](https://www.the1689confession.com/)  
-with Scriptural References
-
-<hr style="clear:both;">
+<div class="bibliography">
+<i><a href="https://www.the1689confession.com/" target="_blank">The 1689 Baptist Confession of Faith</i>. <a href="https://www.doctrineanddevotion.com/" target="_blank">Doctrine and Devotion</a>. Edited by Joe Thorn, Jimmy Fowler.
+</div>

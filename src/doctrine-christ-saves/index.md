@@ -44,7 +44,7 @@ This is that new series. Lots of work and a little bit of writing and re-writing
 
 ### Confessions
 
-{{#include ../bibliography/biblio-confessions.md}}
+{{#include ../bibliography/biblio-confessional.md}}
 
 ### Theology
 

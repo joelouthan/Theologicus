@@ -1,43 +1,36 @@
-<img src="commentary-1-samuel-phillips.jpg">1 & 2 Samuel (Reformed Expository Commentary).  
-Richard D. Phillips.  
-P & R Publishing. 2012.  
-[Goodreads](https://www.goodreads.com/book/show/13770449-1-samuel)
-
-<hr style="clear:both;">
-
-<img src="commentary-samuel-a-son-to-me-leithart.jpg">A Son to Me: A Exposition of 1 & 2 Samuel.  
-Peter J. Leithart.  
-Canon Press. 2003.  
-[Goodreads](https://www.goodreads.com/book/show/259112.A_Son_to_Me)
-
-<hr style="clear:both;">
-
-<img src="commentary-david-after-Gods-own-heart-boda.jpg">After God's Own Heart: The Gospel According to David.  
-Mark J. Boda.  
-P & R Publishing. June 29,2007.  
-[Goodreads](https://www.goodreads.com/book/show/146855785-after-god-s-own-heart)
-
-<hr style="clear:both;">
-
-<img src="commentary-1-samuel-davis.jpg">1 Samuel: Looking on the Heart.  
-Mark J. Boda.  
-Christian Focus. July 20, 2010.  
-[Goodreads](https://www.goodreads.com/book/show/1634391.1_Samuel)
-
-<hr style="clear:both;">
-
-<img src="commentary-1-samuel-2-chronicels-duguid-hamilton-skylar.jpg">1 Samuel-2 Chronicles (ESV Expository Commentary).  
-Iain M. Duguid.  
-Edited by James M. Hamilton Jr., Jay Sklar  
-John L. Mackay (Author).  
-Crossway. October 3, 2019.  
-[Goodreads](https://www.goodreads.com/book/show/43996924-1-samuel-2-chronicles)
-
-<hr style="clear:both;">
-
-<img src="commentary-samuel-kings-chronicles-cooper.jpg">1-2 Samuel, 1-2 Kings, 1-2 Chronicles (OT Volume 5) (Reformation Commentary on Scripture).  
-Edited by Derek Cooper & Martin J. Lohrmann.  
-IVP Academic. 2016.  
-[Goodreads](https://www.goodreads.com/book/show/26598205-1-2-samuel-1-2-kings-1-2-chronicles-ot-volume-5)
-
-<hr style="clear:both;">
+<div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
+  <div class="csl-entry"><i>1-2 Samuel, 1-2 Kings, 1-2 Chronicles: Old Testament</i>. Vol. V. Reformation Commentary on Scripture. Downers Grove, IL: IVP Academic, 2016.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=1-2%20Samuel%2C%201-2%20Kings%2C%201-2%20Chronicles%3A%20Old%20Testament&amp;rft.place=Downers%20Grove%2C%20IL&amp;rft.publisher=IVP%20Academic&amp;rft.series=Reformation%20Commentary%20on%20Scripture&amp;rft.date=2016"></span>
+  <div class="csl-entry">Boda, Mark J. <i>After God’s Own Heart: The Gospel According to David</i>. Edited by III Longman Tremper and J. Alan Groves. The Gospel According to the Old Testament. Phillipsburg, NJ: P&amp;R Publishing, 2007.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=After%20God%E2%80%99s%20Own%20Heart%3A%20The%20Gospel%20according%20to%20David&amp;rft.place=Phillipsburg%2C%20NJ&amp;rft.publisher=P%26R%20Publishing&amp;rft.series=The%20Gospel%20according%20to%20the%20Old%20Testament&amp;rft.aufirst=Mark%20J.&amp;rft.aulast=Boda&amp;rft.au=Mark%20J.%20Boda&amp;rft.au=III%2C%20Tremper%20Longman&amp;rft.au=J.%20Alan%20Groves&amp;rft.date=2007"></span>
+  <div class="csl-entry">Cooper, Derek, ed. <i>1-2 Samuel, 1-2 Kings, 1-2 Chronicles</i>. Reformation Commentary on Scripture. Old Testament 5. Downers Grove. Illinois: IVP Academic, an imprint of InterVarsity Press, 2016.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-0-8308-2955-2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=1-2%20Samuel%2C%201-2%20Kings%2C%201-2%20Chronicles&amp;rft.place=Downers%20Grove.%20Illinois&amp;rft.publisher=IVP%20Academic%2C%20an%20imprint%20of%20InterVarsity%20Press&amp;rft.series=Reformation%20commentary%20on%20Scripture.%20Old%20Testament&amp;rft.aufirst=Derek&amp;rft.aulast=Cooper&amp;rft.au=Derek%20Cooper&amp;rft.date=2016&amp;rft.tpages=745&amp;rft.isbn=978-0-8308-2955-2"></span>
+  <div class="csl-entry">Crockett, William. <i>A Harmony of Samuel, Kings, and Chronicles: The Books of the Kings of Judah and Israel</i>. New York; Chicago; Toronto; London; Edinburgh: Fleming H. Revell Company, 1897.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=A%20Harmony%20of%20Samuel%2C%20Kings%2C%20and%20Chronicles%3A%20The%20Books%20of%20the%20Kings%20of%20Judah%20and%20Israel&amp;rft.place=New%20York%3B%20Chicago%3B%20Toronto%3B%20London%3B%20Edinburgh&amp;rft.publisher=Fleming%20H.%20Revell%20Company&amp;rft.aufirst=William&amp;rft.aulast=Crockett&amp;rft.au=William%20Crockett&amp;rft.date=1897"></span>
+  <div class="csl-entry">Eary, Lisa A. <i>Rethinking David and Goliath</i>. Bellingham, WA: Lexham Press, 2012.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Rethinking%20David%20and%20Goliath&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Lexham%20Press&amp;rft.aufirst=Lisa%20A.&amp;rft.aulast=Eary&amp;rft.au=Lisa%20A.%20Eary&amp;rft.date=2012"></span>
+  <div class="csl-entry">Greear, J. D., and Heath A. Thomas. <i>Exalting Jesus in 1 &amp; 2 Samuel</i>. Nashville, TN: Holman Reference, 2016.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Exalting%20Jesus%20in%201%20%26%202%20Samuel&amp;rft.place=Nashville%2C%20TN&amp;rft.publisher=Holman%20Reference&amp;rft.aufirst=J.%20D.&amp;rft.aulast=Greear&amp;rft.au=J.%20D.%20Greear&amp;rft.au=Heath%20A.%20Thomas&amp;rft.date=2016"></span>
+  <div class="csl-entry">Hawker, Robert. <i>Poor Man’s Old Testament Commentary: Deuteronomy–2 Samuel</i>. Vol. 2. Bellingham, WA: Logos Bible Software, 2013.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Poor%20Man%E2%80%99s%20Old%20Testament%20Commentary%3A%20Deuteronomy%E2%80%932%20Samuel&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Logos%20Bible%20Software&amp;rft.aufirst=Robert&amp;rft.aulast=Hawker&amp;rft.au=Robert%20Hawker&amp;rft.date=2013"></span>
+  <div class="csl-entry">Hoffner, Jr., Harry A. <i>1 &amp; 2 Samuel</i>. Evangelical Exegetical Commentary. Bellingham, WA: Lexham Press, 2015.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=1%20%26%202%20Samuel&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Lexham%20Press&amp;rft.series=Evangelical%20Exegetical%20Commentary&amp;rft.aufirst=Jr.%2C%20Harry%20A.&amp;rft.aulast=Hoffner&amp;rft.au=Jr.%2C%20Harry%20A.%20Hoffner&amp;rft.date=2015"></span>
+  <div class="csl-entry">Horne, Charles, and Julius Bewer. <i>The Bible and Its Story: The History, II Samuel to II Chronicles</i>. Vol. 4. New York, NY: Francis R. Niglutsch, 1909.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20Bible%20and%20its%20Story%3A%20The%20History%2C%20II%20Samuel%20to%20II%20Chronicles&amp;rft.place=New%20York%2C%20NY&amp;rft.publisher=Francis%20R.%20Niglutsch&amp;rft.aufirst=Charles&amp;rft.aulast=Horne&amp;rft.au=Charles%20Horne&amp;rft.au=Julius%20Bewer&amp;rft.date=1909"></span>
+  <div class="csl-entry">———. <i>The Bible and Its Story: The History, Joshua to 2 Samuel</i>. Vol. 3. New York, NY: Francis R. Niglutsch, 1909.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20Bible%20and%20its%20Story%3A%20The%20History%2C%20Joshua%20to%202%20Samuel&amp;rft.place=New%20York%2C%20NY&amp;rft.publisher=Francis%20R.%20Niglutsch&amp;rft.aufirst=Charles&amp;rft.aulast=Horne&amp;rft.au=Charles%20Horne&amp;rft.au=Julius%20Bewer&amp;rft.date=1909"></span>
+  <div class="csl-entry">Joseph, Oscar L. <i>The Expositor’s Bible: Samuel to Job</i>. Edited by W. Robertson Nicoll. Vol. 2. Expositor’s Bible. Hartford, CT: S.S. Scranton Co., 1903.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20Expositor%E2%80%99s%20Bible%3A%20Samuel%20to%20Job&amp;rft.place=Hartford%2C%20CT&amp;rft.publisher=S.S.%20Scranton%20Co.&amp;rft.series=Expositor%E2%80%99s%20Bible&amp;rft.aufirst=Oscar%20L.&amp;rft.aulast=Joseph&amp;rft.au=Oscar%20L.%20Joseph&amp;rft.au=W.%20Robertson%20Nicoll&amp;rft.date=1903"></span>
+  <div class="csl-entry">Leithart, Peter J. <i>A Son to Me: An Exposition of 1 &amp; 2 Samuel</i>. Moscow, ID: Canon Press, 2003.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-1-885767-99-8&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=A%20son%20to%20me%3A%20an%20exposition%20of%201%20%26%202%20Samuel&amp;rft.place=Moscow%2C%20ID&amp;rft.publisher=Canon%20Press&amp;rft.aufirst=Peter%20J.&amp;rft.aulast=Leithart&amp;rft.au=Peter%20J.%20Leithart&amp;rft.date=2003&amp;rft.tpages=307&amp;rft.isbn=978-1-885767-99-8"></span>
+  <div class="csl-entry">Phillips, Richard D. <i>1 Samuel</i>. Edited by Philip Graham Ryken, Richard D. Phillips, and Duguid Iain M. 1st ed. Reformed Expository Commentary. Phillipsburg, NJ: P&amp;R Publishing, 2012.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=1%20Samuel&amp;rft.place=Phillipsburg%2C%20NJ&amp;rft.publisher=P%26R%20Publishing&amp;rft.edition=1st%20ed.&amp;rft.series=Reformed%20Expository%20Commentary&amp;rft.aufirst=Richard%20D.&amp;rft.aulast=Phillips&amp;rft.au=Richard%20D.%20Phillips&amp;rft.au=Philip%20Graham%20Ryken&amp;rft.au=Richard%20D.%20Phillips&amp;rft.au=Duguid%20Iain%20M&amp;rft.date=2012"></span>
+  <div class="csl-entry">———. <i>2 Samuel</i>. Reformed Expository Commentaries Ser. Phillipsburg, NJ: P &amp; R Publishing, 2018.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-1-62995-458-5%20978-1-62995-459-2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=2%20Samuel&amp;rft.place=Phillipsburg%2C%20NJ&amp;rft.publisher=P%20%26%20R%20Publishing&amp;rft.series=Reformed%20Expository%20Commentaries%20Ser&amp;rft.aufirst=Richard%20D.&amp;rft.aulast=Phillips&amp;rft.au=Richard%20D.%20Phillips&amp;rft.date=2018&amp;rft.tpages=1&amp;rft.isbn=978-1-62995-458-5%20978-1-62995-459-2&amp;rft.language=eng"></span>
+  <div class="csl-entry">Reid, Andrew. <i>1 &amp; 2 Samuel: Hope for the Helpless</i>. Reading the Bible Today Series. Sydney, South NSW: Aquila Press, 2008.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=1%20%26%202%20Samuel%3A%20Hope%20for%20the%20Helpless&amp;rft.place=Sydney%2C%20South%20NSW&amp;rft.publisher=Aquila%20Press&amp;rft.series=Reading%20the%20Bible%20Today%20Series&amp;rft.aufirst=Andrew&amp;rft.aulast=Reid&amp;rft.au=Andrew%20Reid&amp;rft.date=2008"></span>
+  <div class="csl-entry">Smith, Henry Preserved. <i>A Critical and Exegetical Commentary on the Books of Samuel.</i> International Critical Commentary. New York: C. Scribner’s Sons, 1899.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=A%20critical%20and%20exegetical%20commentary%20on%20the%20books%20of%20Samuel.&amp;rft.place=New%20York&amp;rft.publisher=C.%20Scribner%E2%80%99s%20Sons&amp;rft.series=International%20Critical%20Commentary&amp;rft.aufirst=Henry%20Preserved&amp;rft.aulast=Smith&amp;rft.au=Henry%20Preserved%20Smith&amp;rft.date=1899"></span>
+  <div class="csl-entry"><i>Synopsis of Samuel, Kings, and Chronicles</i>. Bellingham, WA: Faithlife, 2015.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Synopsis%20of%20Samuel%2C%20Kings%2C%20and%20Chronicles&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Faithlife&amp;rft.date=2015"></span>
+</div>

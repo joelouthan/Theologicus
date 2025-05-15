@@ -1,34 +1,26 @@
-<img src="commentary-judges-davis.jpg">Judges: Such a Great Salvation.  
-Dale Ralph Davis.  
-Christian Focus. 2015.  
-[Goodreads](https://www.goodreads.com/book/show/1634392.Judges)
-
-<hr style="clear:both;">
-
-<img src="commentary-totc-judges-ruth-cundall-morris.jpg">Judges and Ruth: An Introduction and Commentary (Tyndale Old Testament Commentary)  
-by Arthur E. Cundall & Leon L. Morris.  
-IVP Academic. June 1, 1968.  
-[Goodreads](https://www.goodreads.com/book/show/5128427-judges-and-ruth)
-
-<hr style="clear:both;">
-
-<img src="commentary-judges-schwab.jpg">Right in Their Own Eyes: The Gospel According to Judges (Gospel According to the Old Testament).  
-George M. Schwab.  
-P&R Publishing. 2011.  
-[Goodreads](https://www.goodreads.com/book/show/13397290-right-in-their-own-eyes?from_search=true&from_srp=true&qid=kHXIlsLIz0&rank=1)
-
-<hr style="clear:both;">
-
-<img src="commentary-judges-ruth-chisholm.jpg">A Commentary on Judges and Ruth.  
-Robert B. Chisholm Jr..  
-Kregel Academic. 2013.  
-[Goodreads](https://www.goodreads.com/book/show/16692336-a-commentary-on-judges-and-ruth)
-
-<hr style="clear:both;">
-
-<img src="commentary-judges-ruth-webb.jpg">Judges and Ruth: God in Chaos.  
-Barry G. Webb.  
-Crossway. 2015.  
-[Goodreads](https://www.goodreads.com/book/show/23531554-judges-and-ruth?from_search=true&from_srp=true&qid=t5D46PhcYO&rank=1)
-
-<hr style="clear:both;">
+<div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
+  <div class="csl-entry">Beldman, David J. H. <i>Deserting the King: The Book of Judges</i>. Edited by Craig G. Bartholomew. Transformative Word. Bellingham, WA: Lexham Press, 2017.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Deserting%20the%20King%3A%20The%20Book%20of%20Judges&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Lexham%20Press&amp;rft.series=Transformative%20Word&amp;rft.aufirst=David%20J.%20H.&amp;rft.aulast=Beldman&amp;rft.au=David%20J.%20H.%20Beldman&amp;rft.au=Craig%20G.%20Bartholomew&amp;rft.date=2017"></span>
+  <div class="csl-entry">Brannan, Rick. <i>Prophets, Priests, Regents, and Judges Dataset Documentation</i>. Bellingham, WA: Faithlife, 2017.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Prophets%2C%20Priests%2C%20Regents%2C%20and%20Judges%20Dataset%20Documentation&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Faithlife&amp;rft.aufirst=Rick&amp;rft.aulast=Brannan&amp;rft.au=Rick%20Brannan&amp;rft.date=2017"></span>
+  <div class="csl-entry">Chisholm, Jr., Robert B. <i>A Commentary on Judges and Ruth: Commentary</i>. Kregel Exegetical Library. Grand Rapids, MI: Kregel Academic, 2013.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=A%20Commentary%20on%20Judges%20and%20Ruth%3A%20Commentary&amp;rft.place=Grand%20Rapids%2C%20MI&amp;rft.publisher=Kregel%20Academic&amp;rft.series=Kregel%20Exegetical%20Library&amp;rft.aufirst=Jr.%2C%20Robert%20B.&amp;rft.aulast=Chisholm&amp;rft.au=Jr.%2C%20Robert%20B.%20Chisholm&amp;rft.date=2013"></span>
+  <div class="csl-entry">———. <i>A Commentary on Judges and Ruth: Text</i>. Kregel Exegetical Library. Grand Rapids, MI: Kregel Academic, 2013.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=A%20Commentary%20on%20Judges%20and%20Ruth%3A%20Text&amp;rft.place=Grand%20Rapids%2C%20MI&amp;rft.publisher=Kregel%20Academic&amp;rft.series=Kregel%20Exegetical%20Library&amp;rft.aufirst=Jr.%2C%20Robert%20B.&amp;rft.aulast=Chisholm&amp;rft.au=Jr.%2C%20Robert%20B.%20Chisholm&amp;rft.date=2013"></span>
+  <div class="csl-entry">Chisholm, Robert B. <i>A Commentary on Judges and Ruth</i>. Kregel Exegetical Library. Grand Rapids: Kregel Academic, 2013.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-0-8254-2556-1&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=A%20commentary%20on%20Judges%20and%20Ruth&amp;rft.place=Grand%20Rapids&amp;rft.publisher=Kregel%20Academic&amp;rft.series=Kregel%20exegetical%20library&amp;rft.aufirst=Robert%20B.&amp;rft.aulast=Chisholm&amp;rft.au=Robert%20B.%20Chisholm&amp;rft.date=2013&amp;rft.tpages=697&amp;rft.isbn=978-0-8254-2556-1&amp;rft.language=eng"></span>
+  <div class="csl-entry">Cundall, Arthur Ernest, Leon Morris, and D. J. Wiseman. <i>Judges &amp; Ruth: An Introduction and Commentary</i>. Tyndale Old Testament Commentaries, v. 7. Downers Grove, Ill: IVP Academic, 2008.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-0-8308-4207-0&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Judges%20%26%20Ruth%3A%20an%20introduction%20and%20commentary&amp;rft.place=Downers%20Grove%2C%20Ill&amp;rft.publisher=IVP%20Academic&amp;rft.series=Tyndale%20Old%20Testament%20commentaries&amp;rft.aufirst=Arthur%20Ernest&amp;rft.aulast=Cundall&amp;rft.au=Arthur%20Ernest%20Cundall&amp;rft.au=Leon%20Morris&amp;rft.au=D.%20J.%20Wiseman&amp;rft.date=2008&amp;rft.tpages=307&amp;rft.isbn=978-0-8308-4207-0"></span>
+  <div class="csl-entry">Gunn, David M. <i>Judges</i>. Edited by John Sawyer, Christopher Rowland, and Judith Kovacs. Blackwell Bible Commentaries. Malden, MA; Oxford; Carlton, Victoria: Blackwell Publishing, 2005.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Judges&amp;rft.place=Malden%2C%20MA%3B%20Oxford%3B%20Carlton%2C%20Victoria&amp;rft.publisher=Blackwell%20Publishing&amp;rft.series=Blackwell%20Bible%20Commentaries&amp;rft.aufirst=David%20M.&amp;rft.aulast=Gunn&amp;rft.au=David%20M.%20Gunn&amp;rft.au=John%20Sawyer&amp;rft.au=Christopher%20Rowland&amp;rft.au=Judith%20Kovacs&amp;rft.date=2005"></span>
+  <div class="csl-entry">Horne, Charles, and Julius Bewer. <i>The Bible and Its Story: The History, Joshua to 2 Samuel</i>. Vol. 3. New York, NY: Francis R. Niglutsch, 1909.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20Bible%20and%20its%20Story%3A%20The%20History%2C%20Joshua%20to%202%20Samuel&amp;rft.place=New%20York%2C%20NY&amp;rft.publisher=Francis%20R.%20Niglutsch&amp;rft.aufirst=Charles&amp;rft.aulast=Horne&amp;rft.au=Charles%20Horne&amp;rft.au=Julius%20Bewer&amp;rft.date=1909"></span>
+  <div class="csl-entry">Joseph, Oscar L. <i>The Expositor’s Bible: Genesis to Ruth</i>. Edited by W. Robertson Nicoll. Vol. 1. Expositor’s Bible. Hartford, CT: S.S. Scranton Co., 1903.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20Expositor%E2%80%99s%20Bible%3A%20Genesis%20to%20Ruth&amp;rft.place=Hartford%2C%20CT&amp;rft.publisher=S.S.%20Scranton%20Co.&amp;rft.series=Expositor%E2%80%99s%20Bible&amp;rft.aufirst=Oscar%20L.&amp;rft.aulast=Joseph&amp;rft.au=Oscar%20L.%20Joseph&amp;rft.au=W.%20Robertson%20Nicoll&amp;rft.date=1903"></span>
+  <div class="csl-entry">Moore, George Foot. <i>A Critical and Exegetical Commentary on Judges</i>. International Critical Commentary. New York: C. Scribner’s Sons, 1910.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=A%20critical%20and%20exegetical%20commentary%20on%20Judges&amp;rft.place=New%20York&amp;rft.publisher=C.%20Scribner%E2%80%99s%20Sons&amp;rft.series=International%20Critical%20Commentary&amp;rft.aufirst=George%20Foot&amp;rft.aulast=Moore&amp;rft.au=George%20Foot%20Moore&amp;rft.date=1910"></span>
+  <div class="csl-entry">Schwab, George M. <i>Right in Their Own Eyes: The Gospel According to Judges</i>. The Gospel According to the Old Testament. Phillipsburg, N.J: P&amp;R Pub, 2011.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-1-59638-210-7&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Right%20in%20their%20own%20eyes%3A%20the%20Gospel%20according%20to%20Judges&amp;rft.place=Phillipsburg%2C%20N.J&amp;rft.publisher=P%26R%20Pub&amp;rft.series=The%20Gospel%20according%20to%20the%20Old%20Testament&amp;rft.aufirst=George%20M.&amp;rft.aulast=Schwab&amp;rft.au=George%20M.%20Schwab&amp;rft.date=2011&amp;rft.isbn=978-1-59638-210-7"></span>
+  <div class="csl-entry">Webb, Barry G. <i>Judges and Ruth: God in Chaos</i>. Preaching the Word. Wheaton, Illinois: Crossway, 2015.</div>
+  <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-1-4335-0676-5&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Judges%20and%20Ruth%3A%20God%20in%20chaos&amp;rft.place=Wheaton%2C%20Illinois&amp;rft.publisher=Crossway&amp;rft.series=Preaching%20the%20word&amp;rft.aufirst=Barry%20G.&amp;rft.aulast=Webb&amp;rft.au=Barry%20G.%20Webb&amp;rft.date=2015&amp;rft.tpages=303&amp;rft.isbn=978-1-4335-0676-5"></span>
+</div>
