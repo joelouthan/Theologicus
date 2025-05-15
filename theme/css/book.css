@@ -2,3 +2,17 @@
   padding-left: 2em;
   text-indent: -2em;
 }
+
+/* Add space between bibliography entries */
+.csl-entry {
+  margin-bottom: 2.0em;  /* Adjust this value to increase/decrease spacing */
+}
+
+/* If you want to keep the spans and divs of the same entry together */
+.Z3988 {
+  display: none;  /* This hides the metadata spans completely */
+  /* Or if you want to keep them but control spacing differently:
+  display: block;
+  margin-bottom: 1.5em; 
+  */
+}
