@@ -1,3 +1,5 @@
+### Galatians
+
 <div class="bibliography">
 
 Adams, Jay E. *Galatians, Ephesians, Colossians, and Philemon.* The Christian Counselor’s Commentary. Cordova, TN: Institute for Nouthetic Studies, 2020.

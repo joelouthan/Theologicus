@@ -1,3 +1,5 @@
+## Books
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Anyabwile, Thabiti, Alistair Begg, D. A. Carson, Sinclair B. Ferguson, W. Robert Godfrey, Steven J. Lawson, R. C. Sproul, Jr. Sproul R. C., and Derek W. H. Thomas. <i>Holy, Holy, Holy: Proclaiming the Perfections of God</i>. Lake Mary, FL: Reformation Trust Publishing, 2010.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Holy%2C%20Holy%2C%20Holy%3A%20Proclaiming%20the%20Perfections%20of%20God&amp;rft.place=Lake%20Mary%2C%20FL&amp;rft.publisher=Reformation%20Trust%20Publishing&amp;rft.aufirst=Thabiti&amp;rft.aulast=Anyabwile&amp;rft.au=Thabiti%20Anyabwile&amp;rft.au=Alistair%20Begg&amp;rft.au=D.%20A.%20Carson&amp;rft.au=Sinclair%20B.%20Ferguson&amp;rft.au=W.%20Robert%20Godfrey&amp;rft.au=Steven%20J.%20Lawson&amp;rft.au=R.%20C.%20Sproul&amp;rft.au=Jr.%2C%20R.%20C.%20Sproul&amp;rft.au=Derek%20W.%20H.%20Thomas&amp;rft.date=2010"></span>

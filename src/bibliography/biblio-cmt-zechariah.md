@@ -1,3 +1,5 @@
+### Zechariah 
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Coggins, Richard, and Jin H. Han. <i>Six Minor Prophets through the Centuries: Nahum, Habakkuk, Zephaniah, Haggai, Zechariah, and Malachi</i>. Edited by John Sawyer, Christopher Rowland, Judith Kovacs, and David M. Gunn. Vol. 29. Blackwell Bible Commentaries. West Sussex, UK: Wiley Blackwell, 2011.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Six%20Minor%20Prophets%20through%20the%20Centuries%3A%20Nahum%2C%20Habakkuk%2C%20Zephaniah%2C%20Haggai%2C%20Zechariah%2C%20and%20Malachi&amp;rft.place=West%20Sussex%2C%20UK&amp;rft.publisher=Wiley%20Blackwell&amp;rft.series=Blackwell%20Bible%20Commentaries&amp;rft.aufirst=Richard&amp;rft.aulast=Coggins&amp;rft.au=Richard%20Coggins&amp;rft.au=Jin%20H.%20Han&amp;rft.au=John%20Sawyer&amp;rft.au=Christopher%20Rowland&amp;rft.au=Judith%20Kovacs&amp;rft.au=David%20M.%20Gunn&amp;rft.date=2011"></span>

@@ -1,3 +1,5 @@
+### Micah
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Hoyt, JoAnna M. <i>Amos, Jonah, &amp; Micah</i>. Evangelical Exegetical Commentary. Bellingham, WA: Lexham Press, 2018.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Amos%2C%20Jonah%2C%20%26%20Micah&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Lexham%20Press&amp;rft.series=Evangelical%20Exegetical%20Commentary&amp;rft.aufirst=JoAnna%20M.&amp;rft.aulast=Hoyt&amp;rft.au=JoAnna%20M.%20Hoyt&amp;rft.date=2018"></span>

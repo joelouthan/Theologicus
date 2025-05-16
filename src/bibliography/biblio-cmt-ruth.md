@@ -1,3 +1,5 @@
+### Ruth
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Chisholm, Jr., Robert B. <i>A Commentary on Judges and Ruth: Commentary</i>. Kregel Exegetical Library. Grand Rapids, MI: Kregel Academic, 2013.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=A%20Commentary%20on%20Judges%20and%20Ruth%3A%20Commentary&amp;rft.place=Grand%20Rapids%2C%20MI&amp;rft.publisher=Kregel%20Academic&amp;rft.series=Kregel%20Exegetical%20Library&amp;rft.aufirst=Jr.%2C%20Robert%20B.&amp;rft.aulast=Chisholm&amp;rft.au=Jr.%2C%20Robert%20B.%20Chisholm&amp;rft.date=2013"></span>

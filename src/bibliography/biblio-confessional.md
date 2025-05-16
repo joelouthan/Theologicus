@@ -1,3 +1,4 @@
+## Confessional
 
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">America, The German Reformed Church of the United States of. <i>The Heidelberg Catechism, in German, Latin and English: With an Historical Introduction: English</i>. Tercentenary Edition. New York; Chambersburg, PA: Charles Scribner; M. Kieffer &amp; Co., 1863.</div>

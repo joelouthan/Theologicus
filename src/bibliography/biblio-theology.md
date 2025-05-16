@@ -1,3 +1,5 @@
+## Theology
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Aernie, Matthew, and Donald Hartley. <i>The Righteous &amp; Merciful Judge: The Day of the Lord in the Life and Theology of Paul</i>. Edited by Derek R. Brown, Claire Brubaker, Sarah Awa, and Danielle Thevenaz. Studies in Scripture &amp; Biblical Theology. Bellingham, WA: Lexham Press, 2018.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20Righteous%20%26%20Merciful%20Judge%3A%20The%20Day%20of%20the%20Lord%20in%20the%20Life%20and%20Theology%20of%20Paul&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Lexham%20Press&amp;rft.series=Studies%20in%20Scripture%20%26%20Biblical%20Theology&amp;rft.aufirst=Matthew&amp;rft.aulast=Aernie&amp;rft.au=Matthew%20Aernie&amp;rft.au=Donald%20Hartley&amp;rft.au=Derek%20R.%20Brown&amp;rft.au=Claire%20Brubaker&amp;rft.au=Sarah%20Awa&amp;rft.au=Danielle%20Thevenaz&amp;rft.date=2018"></span>

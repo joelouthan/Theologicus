@@ -1,3 +1,5 @@
+### Joel
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Busenitz, Irvin A. <i>Commentary on Joel and Obadiah</i>. Mentor Commentaries. Geanies House, Fearn, Ross-shire, Great Britain: Mentor, 2003.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Commentary%20on%20Joel%20and%20Obadiah&amp;rft.place=Geanies%20House%2C%20Fearn%2C%20Ross-shire%2C%20Great%20Britain&amp;rft.publisher=Mentor&amp;rft.series=Mentor%20Commentaries&amp;rft.aufirst=Irvin%20A.&amp;rft.aulast=Busenitz&amp;rft.au=Irvin%20A.%20Busenitz&amp;rft.date=2003"></span>

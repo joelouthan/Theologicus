@@ -1,3 +1,5 @@
+### Habakkuk
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Andersen, Francis I. <i>Habakkuk: A New Translation with Introduction and Commentary</i>. Vol. 25. Anchor Yale Bible. New Haven; London: Yale University Press, 2008.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Habakkuk%3A%20a%20new%20translation%20with%20introduction%20and%20commentary&amp;rft.place=New%20Haven%3B%20London&amp;rft.publisher=Yale%20University%20Press&amp;rft.series=Anchor%20Yale%20Bible&amp;rft.aufirst=Francis%20I.&amp;rft.aulast=Andersen&amp;rft.au=Francis%20I.%20Andersen&amp;rft.date=2008"></span>

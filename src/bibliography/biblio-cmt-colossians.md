@@ -1,3 +1,5 @@
+### Colossians
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Abbott, Thomas Kingsmill. <i>A Critical and Exegetical Commentary on the Epistles to the Ephesians and to the Colossians</i>. International Critical Commentary. New York: C. Scribner’s sons, 1909.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=A%20critical%20and%20exegetical%20commentary%20on%20the%20epistles%20to%20the%20Ephesians%20and%20to%20the%20Colossians&amp;rft.place=New%20York&amp;rft.publisher=C.%20Scribner%E2%80%99s%20sons&amp;rft.series=International%20Critical%20Commentary&amp;rft.aufirst=Thomas%20Kingsmill&amp;rft.aulast=Abbott&amp;rft.au=Thomas%20Kingsmill%20Abbott&amp;rft.date=1909"></span>

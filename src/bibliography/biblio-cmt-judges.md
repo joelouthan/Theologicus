@@ -1,3 +1,5 @@
+### Judges
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Beldman, David J. H. <i>Deserting the King: The Book of Judges</i>. Edited by Craig G. Bartholomew. Transformative Word. Bellingham, WA: Lexham Press, 2017.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Deserting%20the%20King%3A%20The%20Book%20of%20Judges&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Lexham%20Press&amp;rft.series=Transformative%20Word&amp;rft.aufirst=David%20J.%20H.&amp;rft.aulast=Beldman&amp;rft.au=David%20J.%20H.%20Beldman&amp;rft.au=Craig%20G.%20Bartholomew&amp;rft.date=2017"></span>

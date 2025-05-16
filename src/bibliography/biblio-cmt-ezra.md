@@ -1,3 +1,5 @@
+### Ezra
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Adam, Peter. <i>Ezra &amp; Nehemiah: Walking in God’s Words</i>. Edited by Paul Barnett and Belinda Pollard. Reading the Bible Today Series. Sydney, South NSW: Aquila Press, 2014.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Ezra%20%26%20Nehemiah%3A%20Walking%20in%20God%E2%80%99s%20Words&amp;rft.place=Sydney%2C%20South%20NSW&amp;rft.publisher=Aquila%20Press&amp;rft.series=Reading%20the%20Bible%20Today%20Series&amp;rft.aufirst=Peter&amp;rft.aulast=Adam&amp;rft.au=Peter%20Adam&amp;rft.au=Paul%20Barnett&amp;rft.au=Belinda%20Pollard&amp;rft.date=2014"></span>

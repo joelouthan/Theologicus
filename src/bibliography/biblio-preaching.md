@@ -1,3 +1,5 @@
+## Preaching
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Bartholomew, Craig G. <i>Excellent Preaching: Proclaiming the Gospel in Its Context &amp; Ours</i>. Bellingham, WA: Lexham Press, 2015.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Excellent%20Preaching%3A%20Proclaiming%20the%20Gospel%20in%20Its%20Context%20%26%20Ours&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Lexham%20Press&amp;rft.aufirst=Craig%20G.&amp;rft.aulast=Bartholomew&amp;rft.au=Craig%20G.%20Bartholomew&amp;rft.date=2015"></span>

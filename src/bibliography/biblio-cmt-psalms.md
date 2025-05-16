@@ -1,3 +1,5 @@
+### Psalms
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Akin, Daniel L., Johnny M. Hunt, and Tony Merida. <i>Exalting Jesus in Psalms 101–150</i>. Edited by David Platt, Daniel L. Akin, and Tony Merida. Christ-Centered Exposition. Nashville, TN: Holman Reference, 2021.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Exalting%20Jesus%20in%20Psalms%20101%E2%80%93150&amp;rft.place=Nashville%2C%20TN&amp;rft.publisher=Holman%20Reference&amp;rft.series=Christ-Centered%20Exposition&amp;rft.aufirst=Daniel%20L.&amp;rft.aulast=Akin&amp;rft.au=Daniel%20L.%20Akin&amp;rft.au=Johnny%20M.%20Hunt&amp;rft.au=Tony%20Merida&amp;rft.au=David%20Platt&amp;rft.au=Daniel%20L.%20Akin&amp;rft.au=Tony%20Merida&amp;rft.date=2021"></span>

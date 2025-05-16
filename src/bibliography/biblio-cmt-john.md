@@ -1,3 +1,5 @@
+### John
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Adams, Jay E. <i>The Gospel of John, The Letters of John and Jesus</i>. The Christian Counselor’s Commentary. Cordova, TN: Institute for Nouthetic Studies, 2020.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20Gospel%20of%20John%2C%20The%20Letters%20of%20John%20and%20Jesus&amp;rft.place=Cordova%2C%20TN&amp;rft.publisher=Institute%20for%20Nouthetic%20Studies&amp;rft.series=The%20Christian%20Counselor%E2%80%99s%20Commentary&amp;rft.aufirst=Jay%20E.&amp;rft.aulast=Adams&amp;rft.au=Jay%20E.%20Adams&amp;rft.date=2020"></span>

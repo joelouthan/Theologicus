@@ -1,3 +1,5 @@
+### Daniel
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Akin, Daniel L. <i>Exalting Jesus in Daniel</i>. Nashville, TN: Holman Reference, 2017.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Exalting%20Jesus%20in%20Daniel&amp;rft.place=Nashville%2C%20TN&amp;rft.publisher=Holman%20Reference&amp;rft.aufirst=Daniel%20L.&amp;rft.aulast=Akin&amp;rft.au=Daniel%20L.%20Akin&amp;rft.date=2017"></span>

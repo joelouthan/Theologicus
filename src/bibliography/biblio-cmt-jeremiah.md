@@ -1,3 +1,5 @@
+### Jeremiah
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Callaway, Mary Chilton. <i>Jeremiah through the Centuries</i>. Edited by John Sawyer, Christopher Rowland, Judith Kovacs, and David M. Gunn. Wiley Blackwell Bible Commentaries. Hoboken, NJ; West Sussex, UK: Wiley Blackwell, 2020.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Jeremiah%20through%20the%20Centuries&amp;rft.place=Hoboken%2C%20NJ%3B%20West%20Sussex%2C%20UK&amp;rft.publisher=Wiley%20Blackwell&amp;rft.series=Wiley%20Blackwell%20Bible%20Commentaries&amp;rft.aufirst=Mary%20Chilton&amp;rft.aulast=Callaway&amp;rft.au=Mary%20Chilton%20Callaway&amp;rft.au=John%20Sawyer&amp;rft.au=Christopher%20Rowland&amp;rft.au=Judith%20Kovacs&amp;rft.au=David%20M.%20Gunn&amp;rft.date=2020"></span>

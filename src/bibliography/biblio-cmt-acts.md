@@ -1,3 +1,5 @@
+### Acts
+
 <div class="bibliography">
 
 *Acts: New Testament*. Vol. VI. Reformation Commentary on Scripture. Downers Grove, IL: IVP Academic, 2014.

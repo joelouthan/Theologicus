@@ -1,3 +1,5 @@
+### Song of Solomon 
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Akin, Daniel L. <i>Exalting Jesus in Song of Songs</i>. Edited by Daniel L. Akin, David Platt, and Tony Merida. Christ-Centered Exposition Commentary. Nashville, TN: Holman Reference, 2015.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Exalting%20Jesus%20in%20Song%20of%20Songs&amp;rft.place=Nashville%2C%20TN&amp;rft.publisher=Holman%20Reference&amp;rft.series=Christ-Centered%20Exposition%20Commentary&amp;rft.aufirst=Daniel%20L.&amp;rft.aulast=Akin&amp;rft.au=Daniel%20L.%20Akin&amp;rft.au=Daniel%20L.%20Akin&amp;rft.au=David%20Platt&amp;rft.au=Tony%20Merida&amp;rft.date=2015"></span>

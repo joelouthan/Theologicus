@@ -1,3 +1,5 @@
+### Isaiah
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Barry, John D. <i>The Resurrected Servant in Isaiah</i>. Bellingham, WA: Lexham Press, 2010.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20Resurrected%20Servant%20in%20Isaiah&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Lexham%20Press&amp;rft.aufirst=John%20D&amp;rft.aulast=Barry&amp;rft.au=John%20D%20Barry&amp;rft.date=2010"></span>

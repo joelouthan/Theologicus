@@ -1,3 +1,5 @@
+### Ezekiel
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Block, Daniel I. <i>The Book of Ezekiel, Chapters 1–24</i>. REVISED HARDBOUND edition. Grand Rapids, Mich.: Eerdmans, 1997.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-0-8028-2535-3&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20Book%20of%20Ezekiel%2C%20Chapters%201%E2%80%9324&amp;rft.place=Grand%20Rapids%2C%20Mich.&amp;rft.publisher=Eerdmans&amp;rft.edition=REVISED%20HARDBOUND%20edition&amp;rft.aufirst=Daniel%20I.&amp;rft.aulast=Block&amp;rft.au=Daniel%20I.%20Block&amp;rft.date=1997-08-26&amp;rft.tpages=909&amp;rft.isbn=978-0-8028-2535-3&amp;rft.language=English"></span>

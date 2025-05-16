@@ -1,3 +1,5 @@
+### The Epistles of John
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Akin, Daniel L. <i>1, 2, 3 John</i>. The New American Commentary / Gen. Ed. David S. Dockery 38. Nashville, Tenn: Broadman &amp; Holman, 2001.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-0-8054-0138-7&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=1%2C%202%2C%203%20John&amp;rft.place=Nashville%2C%20Tenn&amp;rft.publisher=Broadman%20%26%20Holman&amp;rft.series=The%20new%20American%20commentary%20%2F%20gen.%20ed.%20David%20S.%20Dockery&amp;rft.aufirst=Daniel%20L.&amp;rft.aulast=Akin&amp;rft.au=Daniel%20L.%20Akin&amp;rft.date=2001&amp;rft.tpages=296&amp;rft.isbn=978-0-8054-0138-7&amp;rft.language=eng"></span>

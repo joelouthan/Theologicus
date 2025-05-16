@@ -1,3 +1,5 @@
+### Esther
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Adam, Peter. <i>Esther: For Such a Time as This</i>. Reading the Bible Today Series. Sydney, South NSW: Aquila Press, 2018.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Esther%3A%20For%20Such%20a%20Time%20as%20This&amp;rft.place=Sydney%2C%20South%20NSW&amp;rft.publisher=Aquila%20Press&amp;rft.series=Reading%20the%20Bible%20Today%20Series&amp;rft.aufirst=Peter&amp;rft.aulast=Adam&amp;rft.au=Peter%20Adam&amp;rft.date=2018"></span>

@@ -1,6 +1,6 @@
+## Bibles
+
 <div class="bibliography">
-
-
 
 Barton, Bruce B., ed. *NIV Life Application Study Bible*, Third Edition (Hardcover). Third. Tyndale House Publishers, 2019.
 

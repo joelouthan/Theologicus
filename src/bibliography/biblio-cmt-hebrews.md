@@ -1,3 +1,5 @@
+### Hebrews
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Adam, Peter. <i>Hebrews: The Majestic Son</i>. Edited by Paul Barnett. Second Edition. Reading the Bible Today Series. Sydney, South NSW: Aquila Press, 2020.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Hebrews%3A%20The%20Majestic%20Son&amp;rft.place=Sydney%2C%20South%20NSW&amp;rft.publisher=Aquila%20Press&amp;rft.edition=Second%20Edition&amp;rft.series=Reading%20the%20Bible%20Today%20Series&amp;rft.aufirst=Peter&amp;rft.aulast=Adam&amp;rft.au=Peter%20Adam&amp;rft.au=Paul%20Barnett&amp;rft.date=2020"></span>

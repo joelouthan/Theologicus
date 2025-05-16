@@ -1,3 +1,5 @@
+### 1 & 2 Kings
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry"><i>1-2 Samuel, 1-2 Kings, 1-2 Chronicles: Old Testament</i>. Vol. V. Reformation Commentary on Scripture. Downers Grove, IL: IVP Academic, 2016.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=1-2%20Samuel%2C%201-2%20Kings%2C%201-2%20Chronicles%3A%20Old%20Testament&amp;rft.place=Downers%20Grove%2C%20IL&amp;rft.publisher=IVP%20Academic&amp;rft.series=Reformation%20Commentary%20on%20Scripture&amp;rft.date=2016"></span>

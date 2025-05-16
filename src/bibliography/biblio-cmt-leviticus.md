@@ -1,3 +1,5 @@
+### Leviticus
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Brown, David, A. R. Fausset, and Robert Jamieson. <i>A Commentary, Critical, Experimental, and Practical, on the Old and New Testaments, Vol I: Genesis–Deuteronomy</i>. Vol. I. London; Glasgow: William Collins, Sons, &amp; Company, Limited, n.d.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=A%20Commentary%2C%20Critical%2C%20Experimental%2C%20and%20Practical%2C%20on%20the%20Old%20and%20New%20Testaments%2C%20Vol%20I%3A%20Genesis%E2%80%93Deuteronomy&amp;rft.place=London%3B%20Glasgow&amp;rft.publisher=William%20Collins%2C%20Sons%2C%20%26%20Company%2C%20Limited&amp;rft.aufirst=David&amp;rft.aulast=Brown&amp;rft.au=David%20Brown&amp;rft.au=A.%20R.%20Fausset&amp;rft.au=Robert%20Jamieson"></span>

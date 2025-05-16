@@ -1,3 +1,5 @@
+### Hosea
+
 <div class="csl-bib-body" style="line-height: 1.35; margin-left: 2em; text-indent:-2em;">
   <div class="csl-entry">Barrett, Michael P. V. <i>Love Divine and Unfailing: The Gospel According to Hosea</i>. Edited by III Longman Tremper and J. Alan Groves. The Gospel According to the Old Testament. Phillipsburg, NJ: P&amp;R Publishing, 2008.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Love%20Divine%20and%20Unfailing%3A%20The%20Gospel%20according%20to%20Hosea&amp;rft.place=Phillipsburg%2C%20NJ&amp;rft.publisher=P%26R%20Publishing&amp;rft.series=The%20Gospel%20according%20to%20the%20Old%20Testament&amp;rft.aufirst=Michael%20P.%20V.&amp;rft.aulast=Barrett&amp;rft.au=Michael%20P.%20V.%20Barrett&amp;rft.au=III%2C%20Tremper%20Longman&amp;rft.au=J.%20Alan%20Groves&amp;rft.date=2008"></span>
