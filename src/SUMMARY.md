@@ -260,6 +260,7 @@
   - [Spirit Gives Us Growth](doctrine-christ-saves/17-spirit-gives-us-growth.md)
   - [Spirit Gives Us Life Forever](doctrine-christ-saves/18-spirit-gives-us-life-forever.md)
   - [What Shall We Say to These Things?](doctrine-christ-saves/19-what-shall-we-say.md)
+  - [Bibliography](doctrine-christ-saves/bibliography.md)
 
 # Commentaries
 
