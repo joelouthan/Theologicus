@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-paul.jpg">
+<img class="intro-right" src="../images/art-paul.jpg">
 
 # Romans 13:1-7 Ours to Do: Obey Christ as King
 

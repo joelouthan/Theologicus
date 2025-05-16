@@ -1,4 +1,4 @@
-<img class="intro-right" src="book-ccss-3.jpg">
+<img class="intro-right" src="../images/book-ccss-3.jpg">
 
 <p style="font-size: 2em; margin-bottom: 0px "><strong><a class="header" href="#christ-came-to-save-sinners-an-introduction--resources">Christ Came to Save Sinners, An Introduction & Resources</a></strong></p>
 

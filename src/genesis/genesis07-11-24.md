@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-creation.png">
+<img class="intro-right" src="../images/art-creation.png">
 
 # Genesis 7:11-24 The Gospel Certainty: The Will of God
 

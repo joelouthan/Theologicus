@@ -1,4 +1,4 @@
-<img class="intro-right" src="book-cur-deus-homo-anselm.jpg">
+<img class="intro-right" src="../images/book-cur-deus-homo-anselm.jpg">
 
 # Cur Deus Homo by Anselm of Canterbury
 

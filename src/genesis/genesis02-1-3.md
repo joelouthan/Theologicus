@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-creation.png">
+<img class="intro-right" src="../images/art-creation.png">
 
 # Genesis 2:1-3 Our Forever Rest
 

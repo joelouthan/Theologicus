@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-luke.jpg">
+<img class="intro-right" src="../images/art-luke.jpg">
 
 # Luke 3 The Start of the Ministry of the Christ
 

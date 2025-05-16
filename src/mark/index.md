@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-mark.jpg">
+<img class="intro-right" src="../images/art-mark.jpg">
 
 # The Gospel of Mark: An Introduction & Resources
 

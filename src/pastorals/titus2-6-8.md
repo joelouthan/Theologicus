@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-titus.jpg">
+<img class="intro-right" src="../images/art-titus.jpg">
 
 # Titus 2:6-8 Teach Like This: Spirit of Christ
 

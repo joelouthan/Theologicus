@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-paul.jpg">
+<img class="intro-right" src="../images/art-paul.jpg">
 
 # Romans 12:2 Ours to Do: Discern What is Good
 

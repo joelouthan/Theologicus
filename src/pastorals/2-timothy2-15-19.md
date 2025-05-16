@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-timothy.jpg">
+<img class="intro-right" src="../images/art-timothy.jpg">
 
 # 2 Timothy 2:15-19 Truth by God
 

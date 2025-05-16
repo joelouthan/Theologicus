@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-timothy-titus.jpg">
+<img class="intro-right" src="../images/art-timothy-titus.jpg">
 
 # The Pastoral Epistles: An Introduction & Resources
 

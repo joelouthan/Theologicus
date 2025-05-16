@@ -1,4 +1,4 @@
-<img class="intro-right" src="book-no-condemnation-winslow.jpg">
+<img class="intro-right" src="../images/book-no-condemnation-winslow.jpg">
 
 # No Condemnation in Christ Jesus by Octavius Winslow
 

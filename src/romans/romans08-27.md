@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-paul.jpg">
+<img class="intro-right" src="../images/art-paul.jpg">
 
 # Romans 8:27 Who Defines Us in the Midst of Our Sin?
 

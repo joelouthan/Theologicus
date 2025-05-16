@@ -1,4 +1,4 @@
-<img class="intro-right" src="book-death-of-death-owen.jpg">
+<img class="intro-right" src="../images/book-death-of-death-owen.jpg">
 
 # The Death of Death in the Death of Christ by John Owen
 

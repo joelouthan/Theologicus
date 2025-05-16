@@ -1169,6 +1169,7 @@
 - [1 Corinthians]()
 - [2 Corinthians]()
 - [Galatians](galatians/index.md)
+  - [Bibliography](galatians/bibliography.md)
 - [Ephesians]()
 - [Philippians]()
 - [Colossians]()

@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-timothy.jpg">
+<img class="intro-right" src="../images/art-timothy.jpg">
 
 # 2 Timothy 1:1-7 Thanks Be To God!
 

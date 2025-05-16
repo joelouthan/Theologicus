@@ -1,4 +1,4 @@
-<img class="intro-right" src="logo-theologicus.png">
+<img class="intro-right" src="../images/logo-theologicus.png">
 
 <p style="font-size: 2em; margin-bottom: 0px "><strong><a class="header" href="#theologicus-some-expository-thoughts">Theologicus: Some Expository Thoughts</a></strong></p>
 

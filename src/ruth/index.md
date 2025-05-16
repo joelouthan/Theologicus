@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-ruth-naomi.jpg">
+<img class="intro-right" src="../images/art-ruth-naomi.jpg">
 
 # Ruth: An Introduction & Resources
 

@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-paul.jpg">
+<img class="intro-right" src="../images/art-paul.jpg">
 
 # The Epistle to the Romans: An Introduction & Resources
 

@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-david.jpg">
+<img class="intro-right" src="../images/art-david.jpg">
 
 # 2nd Samuel: An Introduction & Resources
 

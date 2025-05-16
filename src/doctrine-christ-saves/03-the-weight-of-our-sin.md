@@ -1,4 +1,4 @@
-<img class="intro-right" src="book-ccss-3.jpg">
+<img class="intro-right" src="../images/book-ccss-3.jpg">
 
 <p style="font-weight: bold; font-size: 2em; margin-bottom: 0px "><a class="header" href="#the-weight-of-our-sin">The Weight of Our Sin</a></p>
 

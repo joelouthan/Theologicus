@@ -1,4 +1,4 @@
-<img class="intro-right" src="book-patrix-bolz-weber.jpg">
+<img class="intro-right" src="../images/book-patrix-bolz-weber.jpg">
 
 # Pastrix: The Cranky, Beautiful Faith of a Sinner & Saint by Nadia Bolz-Weber
 

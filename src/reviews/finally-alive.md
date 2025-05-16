@@ -1,4 +1,4 @@
-<img class="intro-right" src="book-finally-alive-piper.jpg">
+<img class="intro-right" src="../images/book-finally-alive-piper.jpg">
 
 # Finally Alive by John Piper
 
