@@ -275,3 +275,4 @@
   <div class="csl-entry">Wright, David F., Sinclair B. Ferguson, and J. I. Packer, eds. <i>New Dictionary of Theology</i>. First Edition first Printing. Downers Grove, Ill.: IVP Academic, 1988.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-0-8308-1400-8&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=New%20Dictionary%20of%20Theology&amp;rft.place=Downers%20Grove%2C%20Ill.&amp;rft.publisher=IVP%20Academic&amp;rft.edition=First%20Edition%20first%20Printing&amp;rft.aufirst=David%20F.&amp;rft.aulast=Wright&amp;rft.au=David%20F.%20Wright&amp;rft.au=Sinclair%20B.%20Ferguson&amp;rft.au=J.%20I.%20Packer&amp;rft.date=1988-03-26&amp;rft.tpages=757&amp;rft.isbn=978-0-8308-1400-8&amp;rft.language=English"></span>
 </div>
+<hr>

@@ -23,3 +23,4 @@ Tan, Randall K., David A. deSilva, and Isaiah Hoogendyk. *The Lexham Greek-Engli
 Zodhiates, Spiros, ed. *The Hebrew-Greek Key Word Study Bible*: NASB-77 Edition, Hardbound (Key Word Study Bibles). Revised Edition. Chattanooga, TN: AMG Publishers, 2008.
 
 </div>
+<hr>

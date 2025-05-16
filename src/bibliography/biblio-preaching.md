@@ -58,3 +58,4 @@
   <div class="csl-entry">York, Hershael W., and Bert Decker. <i>Preaching with Bold Assurance: A Solid and Enduring Approach to Engaging Exposition</i>. Nashville, Tenn: Broadman &amp; Holman Publishers, 2003.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-0-8054-2623-6&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Preaching%20with%20bold%20assurance%3A%20a%20solid%20and%20enduring%20approach%20to%20engaging%20exposition&amp;rft.place=Nashville%2C%20Tenn&amp;rft.publisher=Broadman%20%26%20Holman%20Publishers&amp;rft.aufirst=Hershael%20W.&amp;rft.aulast=York&amp;rft.au=Hershael%20W.%20York&amp;rft.au=Bert%20Decker&amp;rft.date=2003&amp;rft.tpages=275&amp;rft.isbn=978-0-8054-2623-6"></span>
 </div>
+<hr>

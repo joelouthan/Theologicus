@@ -54,3 +54,5 @@
   <div class="csl-entry">———. <i>The Rise and Triumph of the Modern Self: Cultural Amnesia, Expressive Individualism, and the Road to Sexual Revolution</i>. Wheaton, Illinois: Crossway, 2020.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-1-4335-5633-3&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20rise%20and%20triumph%20of%20the%20modern%20self%3A%20cultural%20amnesia%2C%20expressive%20individualism%2C%20and%20the%20road%20to%20sexual%20revolution&amp;rft.place=Wheaton%2C%20Illinois&amp;rft.publisher=Crossway&amp;rft.aufirst=Carl%20R.&amp;rft.aulast=Trueman&amp;rft.au=Carl%20R.%20Trueman&amp;rft.date=2020&amp;rft.tpages=425&amp;rft.isbn=978-1-4335-5633-3"></span>
 </div>
+<hr>
+

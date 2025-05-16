@@ -328,3 +328,4 @@
   <div class="csl-entry">———. <i>Sermons on Various Subjects</i>. London: C. Rivington; J. Hutton, 1739.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Sermons%20on%20Various%20Subjects&amp;rft.place=London&amp;rft.publisher=C.%20Rivington%3B%20J.%20Hutton&amp;rft.aufirst=George&amp;rft.aulast=Whitefield&amp;rft.au=George%20Whitefield&amp;rft.date=1739"></span>
 </div>
+<hr>
