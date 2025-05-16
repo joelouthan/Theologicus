@@ -4,8 +4,6 @@
 
 ## Bibliography
 
-{{#include ../bibliography/biblio-cmt.md}}
-
 {{#include ../bibliography/biblio-cmt-samuel.md}}
 
 {{#include ../bibliography/biblio-bibles.md}}
@@ -21,3 +19,5 @@
 {{#include ../bibliography/biblio-theology.md}}
 
 {{#include ../bibliography/biblio-sources.md}}
+
+{{#include ../bibliography/biblio-cmt.md}}

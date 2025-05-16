@@ -33,4 +33,3 @@ Finishing our first series, [Apostles' Creed](https://theologic.us/creed-apostle
 The only thing I can say is, "There's nothing to it but to do it."
 
 <img class="intro-right" src="../images/art-david.jpg" hidden>
-
