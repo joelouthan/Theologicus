@@ -359,6 +359,7 @@
   - [Ruth 3:10-18 God's Justifying Work for His People](ruth/ruth3-10-18.md)
   - [Ruth 4:1-10 God Redeems Us, Part 1](ruth/ruth4-1-10.md)
   - [Ruth 4:11-22 God Redeems Us, Part 2](ruth/ruth4-11-22.md)
+  - [Bibliography](ruth/bibliography.md)
 - [1 Samuel](samuel-1/index.md)
   - [1 Samuel: Judges](samuel-1/samuel-1-00-1-judges.md)
   - [1 Samuel: Ruth](samuel-1/samuel-1-00-1-ruth.md)

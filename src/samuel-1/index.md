@@ -1,6 +1,6 @@
 <img class="intro-right" src="../images/art-david.jpg">
 
-# 1 Samuel: An Introduction & Resources
+# 1 Samuel
 
 ## The Introduction
 
@@ -33,32 +33,4 @@ Finishing our first series, [Apostles' Creed](https://theologic.us/creed-apostle
 The only thing I can say is, "There's nothing to it but to do it."
 
 <img class="intro-right" src="../images/art-david.jpg" hidden>
-
-## The Recommendations
-
-### Study Bibles
-
-{{#include ../bibliography/biblio-bibles.md}}
-
-### Commentaries
-
-#### Judges
-
-{{#include ../bibliography/biblio-cmt-judges.md}}
-
-#### Ruth
-
-{{#include ../bibliography/biblio-cmt-ruth.md}}
-
-#### Samuel
-
-{{#include ../bibliography/biblio-cmt-samuel.md}}
-
-#### General Commentaries
-
-{{#include ../bibliography/biblio-cmt.md}}
-
-### Theology
-
-{{#include ../bibliography/biblio-theology.md}}
 

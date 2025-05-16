@@ -1,6 +1,6 @@
 <img class="intro-right" src="../images/art-luke.jpg">
 
-# Luke: An Introduction & Resources
+# Luke
 
 ## The Introduction
 

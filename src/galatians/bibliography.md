@@ -1,6 +1,6 @@
-<img class="intro-right" src="../images/../images/art-paul.jpg">
+<img class="intro-right" src="../images/art-paul.jpg">
 
-# The Epistle to the Galatians: An Introduction & Resources
+# The Epistle to the Galatians
 
 ## Bibliography
 

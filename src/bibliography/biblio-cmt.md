@@ -102,3 +102,4 @@
   <div class="csl-entry">Spurgeon, C. H. <i>Spurgeon’s Sermon Notes: Genesis to Malachi</i>. Vol. 1. Bellingham, WA: Logos Bible Software, 2009.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Spurgeon's%20Sermon%20Notes%3A%20Genesis%20to%20Malachi&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Logos%20Bible%20Software&amp;rft.aufirst=C.%20H.&amp;rft.aulast=Spurgeon&amp;rft.au=C.%20H.%20Spurgeon&amp;rft.date=2009"></span>
 </div>
+<hr>

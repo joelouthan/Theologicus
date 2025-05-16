@@ -1,6 +1,6 @@
 <img class="intro-right" src="../images/art-apostles-creed.png">
 
-# The Apostles' Creed: An Introduction & Resources
+# The Apostles' Creed
 
 ## The Introduction
 

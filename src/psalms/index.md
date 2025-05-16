@@ -7,7 +7,7 @@
 }
 </style>
 
-# Praying Through Psalm, An Introduction & Resources
+# Praying Through Psalm, An Introduction
 
 ## The Introduction
 
