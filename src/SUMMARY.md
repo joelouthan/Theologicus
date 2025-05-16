@@ -22,7 +22,7 @@
   - [The Resurrection of the Body](creed-apostles/apostles12-resurrection-of-body.md)
   - [Life Everlasting](creed-apostles/apostles13-life-everlasting.md)
   - [Amen](creed-apostles/apostles14-amen.md)
-
+  - [Bibliography](creed-apostles/bibliography.md)
 - [Nicene](creeds/nicene.md)
 - [Chalcedonian](creeds/chalcedonian.md)
 - [Athanasian](creeds/athanasian.md)

@@ -2578,5 +2578,3 @@ Edward Man, Pastor, Houndsditch, London
 Charles Archer, Pastor, Hock-Norton, Oxon  
 
 In the name of and on the behalf of the whole assembly.
-
-## [The Resources](1689-bibliography.md)
