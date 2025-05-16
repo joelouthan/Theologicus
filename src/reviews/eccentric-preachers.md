@@ -1,4 +1,4 @@
-<img class="intro-right" src="../images/preaching-eccentric-preachers-spurgeon.jpg">
+<img class="intro-right" src="../images/book-spurgeon-eccentric_preachers.jpg">
 
 # Eccentric Preachers by Charles Spurgeon
 
