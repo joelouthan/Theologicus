@@ -10,7 +10,7 @@ The format is based on [Keep a Changelog](https://keepachangelog.com/en/1.0.0/),
   - `{{#include ../bibliography/biblio-books.md}}`
   - See this repo's [src/bibliography](https://github.com/joelouthan/Theologicus/tree/main/src/bibliography) for my examples
 - [Turbian 9th edition](https://www.chicagomanualofstyle.org/turabian/about/about-new.html)
-- ![Word Count](https://img.shields.io/badge/Word%20Count-558977-brightgreen)
+- ![Word Count](https://img.shields.io/badge/Word%20Count-565211-brightgreen)
 
 ## 3.5 (2025 Mar 5) [Praying Through Psalms](https://theologic.us/psalms/)
 
