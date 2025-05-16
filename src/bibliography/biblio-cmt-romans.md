@@ -104,3 +104,5 @@
   <div class="csl-entry">———. <i>Lectures on the Epistle to the Romans</i>. Edited by J. S. Wardlaw. Vol. 3. Posthumous Works of the Rev. Ralph Wardlaw, D. D. Edinburgh; London: A. Fullarton &amp; Co., 1861.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Lectures%20on%20the%20Epistle%20to%20the%20Romans&amp;rft.place=Edinburgh%3B%20London&amp;rft.publisher=A.%20Fullarton%20%26%20Co.&amp;rft.series=Posthumous%20Works%20of%20the%20Rev.%20Ralph%20Wardlaw%2C%20D.%20D.&amp;rft.aufirst=Ralph&amp;rft.aulast=Wardlaw&amp;rft.au=Ralph%20Wardlaw&amp;rft.au=J.%20S.%20Wardlaw&amp;rft.date=1861"></span>
 </div>
+
+<hr>

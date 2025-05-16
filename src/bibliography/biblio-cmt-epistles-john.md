@@ -34,3 +34,4 @@
   <div class="csl-entry">Walls, David, and Max Anders. <i>I &amp; II Peter, I, II &amp; III John, Jude</i>. Vol. 11. Holman New Testament Commentary. Nashville, TN: Broadman &amp; Holman Publishers, 1999.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=I%20%26%20II%20Peter%2C%20I%2C%20II%20%26%20III%20John%2C%20Jude&amp;rft.place=Nashville%2C%20TN&amp;rft.publisher=Broadman%20%26%20Holman%20Publishers&amp;rft.series=Holman%20New%20Testament%20Commentary&amp;rft.aufirst=David&amp;rft.aulast=Walls&amp;rft.au=David%20Walls&amp;rft.au=Max%20Anders&amp;rft.date=1999"></span>
 </div></body>
+<hr>

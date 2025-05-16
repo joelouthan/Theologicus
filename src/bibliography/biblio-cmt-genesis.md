@@ -53,3 +53,5 @@
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-0-310-57252-7&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Genesis&amp;rft.publisher=Zondervan%20Academic&amp;rft.aufirst=Gordon%20John&amp;rft.aulast=Wenham&amp;rft.au=Gordon%20John%20Wenham&amp;rft.au=David%20Allen%20Hubbard&amp;rft.au=Glenn%20W.%20Barker&amp;rft.au=John%20D.%20W.%20Watts&amp;rft.au=Ralph%20P.%20Martin&amp;rft.date=2017-08-29&amp;rft.tpages=968&amp;rft.isbn=978-0-310-57252-7&amp;rft.language=English"></span>
 </div></body>
 </html>
+
+<hr>

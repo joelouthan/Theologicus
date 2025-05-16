@@ -24,3 +24,5 @@
   <div class="csl-entry">Storms, Sam. <i>Biblical Studies: Ecclesiastes</i>. Edmond, OK: Sam Storms, 2016.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Biblical%20Studies%3A%20Ecclesiastes&amp;rft.place=Edmond%2C%20OK&amp;rft.publisher=Sam%20Storms&amp;rft.aufirst=Sam&amp;rft.aulast=Storms&amp;rft.au=Sam%20Storms&amp;rft.date=2016"></span>
 </div>
+
+<hr>

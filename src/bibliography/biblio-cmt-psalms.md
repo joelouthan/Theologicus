@@ -86,3 +86,5 @@
   <div class="csl-entry">Witthoff, David, Kristopher A. Lyle, and Matt Nerdahl. <i>Psalms Form and Structure</i>. Edited by Eli Evans. Bellingham, WA: Faithlife, 2014.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Psalms%20Form%20and%20Structure&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Faithlife&amp;rft.aufirst=David&amp;rft.aulast=Witthoff&amp;rft.au=David%20Witthoff&amp;rft.au=Kristopher%20A.%20Lyle&amp;rft.au=Matt%20Nerdahl&amp;rft.au=Eli%20Evans&amp;rft.date=2014"></span>
 </div>
+
+<hr>

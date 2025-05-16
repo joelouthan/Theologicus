@@ -42,3 +42,5 @@
   <div class="csl-entry">———. <i>The Book of Proverbs, Chapters 15-31</i>. Grand Rapids: Eerdmans, 2005.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-0-8028-2776-0&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20book%20of%20proverbs%2C%20chapters%2015-31&amp;rft.place=Grand%20Rapids&amp;rft.publisher=Eerdmans&amp;rft.aufirst=Bruce%20K.&amp;rft.aulast=Waltke&amp;rft.au=Bruce%20K.%20Waltke&amp;rft.date=2005-03-15&amp;rft.tpages=624&amp;rft.isbn=978-0-8028-2776-0&amp;rft.language=English"></span>
 </div>
+
+<hr>

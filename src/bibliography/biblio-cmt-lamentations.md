@@ -18,3 +18,5 @@
   <div class="csl-entry">Smith, Steven. <i>Exalting Jesus in Jeremiah, Lamentations</i>. Nashville, TN: Holman Bible Publishers, 2019.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Exalting%20Jesus%20in%20Jeremiah%2C%20Lamentations&amp;rft.place=Nashville%2C%20TN&amp;rft.publisher=Holman%20Bible%20Publishers&amp;rft.aufirst=Steven&amp;rft.aulast=Smith&amp;rft.au=Steven%20Smith&amp;rft.date=2019"></span>
 </div>
+
+<hr>

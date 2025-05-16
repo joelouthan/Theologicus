@@ -46,3 +46,5 @@
   <div class="csl-entry">Young, Edward J. <i>The Book of Isaiah</i>. Eerdmans, 1992.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-0-8028-0595-9&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20Book%20of%20Isaiah&amp;rft.publisher=Eerdmans&amp;rft.aufirst=Edward%20J.&amp;rft.aulast=Young&amp;rft.au=Edward%20J.%20Young&amp;rft.date=1992-12-15&amp;rft.tpages=1729&amp;rft.isbn=978-0-8028-0595-9&amp;rft.language=English"></span>
 </div>
+
+<hr>

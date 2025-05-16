@@ -57,3 +57,5 @@
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Mark%3A%20A%20New%20Covenant%20Commentary&amp;rft.place=Eugene%2C%20OR&amp;rft.publisher=Cascade%20Books&amp;rft.series=New%20Covenant%20Commentary%20Series&amp;rft.aufirst=Kim%20Huat&amp;rft.aulast=Tan&amp;rft.au=Kim%20Huat%20Tan&amp;rft.au=Michael%20F.%20Bird&amp;rft.au=Craig%20Keener&amp;rft.date=2015"></span>
 </div></body>
 </html>
+
+<hr>

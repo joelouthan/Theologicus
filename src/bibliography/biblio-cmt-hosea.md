@@ -10,3 +10,5 @@
   <div class="csl-entry">Mackay, John L. <i>Hosea: A Mentor Commentary</i>. Mentor Commentaries. Ross-shire, Great Britain: Mentor, 2012.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Hosea%3A%20A%20Mentor%20Commentary&amp;rft.place=Ross-shire%2C%20Great%20Britain&amp;rft.publisher=Mentor&amp;rft.series=Mentor%20Commentaries&amp;rft.aufirst=John%20L.&amp;rft.aulast=Mackay&amp;rft.au=John%20L.%20Mackay&amp;rft.date=2012"></span>
 </div>
+
+<hr>

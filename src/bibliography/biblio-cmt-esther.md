@@ -20,3 +20,5 @@
   <div class="csl-entry">Tomasino, Anthony. <i>Esther</i>. Evangelical Exegetical Commentary. Bellingham, WA: Lexham Press, 2016.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Esther&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Lexham%20Press&amp;rft.series=Evangelical%20Exegetical%20Commentary&amp;rft.aufirst=Anthony&amp;rft.aulast=Tomasino&amp;rft.au=Anthony%20Tomasino&amp;rft.date=2016"></span>
 </div>
+
+<hr>

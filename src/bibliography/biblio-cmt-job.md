@@ -34,3 +34,5 @@
   <div class="csl-entry">Webb, Barry G. <i>Job: Evangelical Biblical Theology Commentary</i>. Lexham Academic, 2023.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-1-68359-659-2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Job%3A%20Evangelical%20Biblical%20Theology%20Commentary&amp;rft.publisher=Lexham%20Academic&amp;rft.aufirst=Barry%20G.&amp;rft.aulast=Webb&amp;rft.au=Barry%20G.%20Webb&amp;rft.date=2023-04-26&amp;rft.tpages=520&amp;rft.isbn=978-1-68359-659-2&amp;rft.language=English"></span>
 </div>
+
+<hr>

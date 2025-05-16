@@ -58,3 +58,4 @@
   <div class="csl-entry">———. <i>Authorized: The Use and Misuse of the King James Bible (Audio)</i>. Bellingham, WA: Lexham Press, 2019.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Authorized%3A%20The%20Use%20and%20Misuse%20of%20the%20King%20James%20Bible%20(Audio)&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Lexham%20Press&amp;rft.aufirst=Mark&amp;rft.aulast=Ward&amp;rft.au=Mark%20Ward&amp;rft.date=2019"></span>
 </div></body>
+<hr>

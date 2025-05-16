@@ -12,3 +12,5 @@
   <div class="csl-entry">Smith, John Merlin Powis, and Julius August Bewer. <i>A Critical and Exegetical Commentary on Haggai, Zechariah, Malachi and Jonah</i>. International Critical Commentary. New York: C. Scribner’s Sons, 1912.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=A%20critical%20and%20exegetical%20commentary%20on%20Haggai%2C%20Zechariah%2C%20Malachi%20and%20Jonah&amp;rft.place=New%20York&amp;rft.publisher=C.%20Scribner%E2%80%99s%20Sons&amp;rft.series=International%20Critical%20Commentary&amp;rft.aufirst=John%20Merlin%20Powis&amp;rft.aulast=Smith&amp;rft.au=John%20Merlin%20Powis%20Smith&amp;rft.au=Julius%20August%20Bewer&amp;rft.date=1912"></span>
 </div>
+
+<hr>

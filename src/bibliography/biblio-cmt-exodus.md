@@ -26,3 +26,5 @@
   <div class="csl-entry">Reid, Andrew. <i>Exodus: Saved for Service</i>. Edited by Paul Barnett and Belinda Pollard. Reading the Bible Today Series. Sydney, South NSW: Aquila Press, 2013.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Exodus%3A%20Saved%20for%20Service&amp;rft.place=Sydney%2C%20South%20NSW&amp;rft.publisher=Aquila%20Press&amp;rft.series=Reading%20the%20Bible%20Today%20Series&amp;rft.aufirst=Andrew&amp;rft.aulast=Reid&amp;rft.au=Andrew%20Reid&amp;rft.au=Paul%20Barnett&amp;rft.au=Belinda%20Pollard&amp;rft.date=2013"></span>
 </div>
+
+<hr>

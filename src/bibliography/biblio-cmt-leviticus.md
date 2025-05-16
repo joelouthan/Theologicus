@@ -18,3 +18,5 @@
   <div class="csl-entry">Wenham, Gordon J. <i>The Book of Leviticus</i>. Nachdr. The New International Commentary on the Old Testament. Grand Rapids, Mich: Eerdmans, 2009.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-0-8028-2522-3&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20book%20of%20Leviticus&amp;rft.place=Grand%20Rapids%2C%20Mich&amp;rft.publisher=Eerdmans&amp;rft.edition=Nachdr.&amp;rft.series=The%20new%20international%20commentary%20on%20the%20Old%20Testament&amp;rft.aufirst=Gordon%20J.&amp;rft.aulast=Wenham&amp;rft.au=Gordon%20J.%20Wenham&amp;rft.date=2009&amp;rft.tpages=362&amp;rft.isbn=978-0-8028-2522-3&amp;rft.language=eng"></span>
 </div>
+
+<hr>

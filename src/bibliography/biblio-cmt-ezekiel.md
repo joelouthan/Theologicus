@@ -20,3 +20,5 @@
   <div class="csl-entry">Stuart, Dr Douglas, and Douglas Stuart. <i>Preacher’s Commentary, Vol. 20: Ezekiel</i>. Illustrated edition. Thomas Nelson, 2002.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-0-7852-4794-4&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Preacher's%20commentary%2C%20vol.%2020%3A%20ezekiel&amp;rft.publisher=Thomas%20Nelson&amp;rft.edition=Illustrated%20edition&amp;rft.aufirst=Dr%20Douglas&amp;rft.aulast=Stuart&amp;rft.au=Dr%20Douglas%20Stuart&amp;rft.au=Douglas%20Stuart&amp;rft.date=2002-03-01&amp;rft.tpages=416&amp;rft.isbn=978-0-7852-4794-4&amp;rft.language=English"></span>
 </div>
+
+<hr>

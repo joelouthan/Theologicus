@@ -75,3 +75,5 @@ Willitts, Joel. *NT340 Book Study: Paul’s Letter to the Galatians: The Gospel 
 Wilson, Todd. *Galatians: Gospel-Rooted Living.* Edited by R. Kent Hughes. Preaching the Word. Wheaton, IL: Crossway, 2013.
 
 </div>
+
+<hr>

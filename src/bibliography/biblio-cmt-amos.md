@@ -8,3 +8,5 @@
   <div class="csl-entry">Smith, Gary V. <i>Amos</i>. Mentor Commentaries. Fearn, Ross-shire, Great Britain: Mentor, 1998.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Amos&amp;rft.place=Fearn%2C%20Ross-shire%2C%20Great%20Britain&amp;rft.publisher=Mentor&amp;rft.series=Mentor%20Commentaries&amp;rft.aufirst=Gary%20V.&amp;rft.aulast=Smith&amp;rft.au=Gary%20V.%20Smith&amp;rft.date=1998"></span>
 </div>
+
+<hr>

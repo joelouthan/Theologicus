@@ -26,3 +26,5 @@
   <div class="csl-entry">Webb, Barry G. <i>Judges and Ruth: God in Chaos</i>. Preaching the Word. Wheaton, Illinois: Crossway, 2015.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_id=urn%3Aisbn%3A978-1-4335-0676-5&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Judges%20and%20Ruth%3A%20God%20in%20chaos&amp;rft.place=Wheaton%2C%20Illinois&amp;rft.publisher=Crossway&amp;rft.series=Preaching%20the%20word&amp;rft.aufirst=Barry%20G.&amp;rft.aulast=Webb&amp;rft.au=Barry%20G.%20Webb&amp;rft.date=2015&amp;rft.tpages=303&amp;rft.isbn=978-1-4335-0676-5"></span>
 </div>
+
+<hr>

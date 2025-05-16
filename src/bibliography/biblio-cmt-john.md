@@ -68,3 +68,4 @@
   <div class="csl-entry"><i>St. Augustin: Homilies on the Gospel of John, Homilies on the First Epistle of John, Soliloquies</i>. Vol. 7. A Select Library of the Nicene and Post-Nicene Fathers of the Christian Church, First Series. New York: Christian Literature Company, 1888.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=St.%20Augustin%3A%20Homilies%20on%20the%20Gospel%20of%20John%2C%20Homilies%20on%20the%20First%20Epistle%20of%20John%2C%20Soliloquies&amp;rft.place=New%20York&amp;rft.publisher=Christian%20Literature%20Company&amp;rft.series=A%20Select%20Library%20of%20the%20Nicene%20and%20Post-Nicene%20Fathers%20of%20the%20Christian%20Church%2C%20First%20Series&amp;rft.date=1888"></span>
 </div></body>
+<hr>

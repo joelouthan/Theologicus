@@ -18,3 +18,5 @@
   <div class="csl-entry">Stead, Michael R. <i>Zechariah: The Lord Returns</i>. Edited by Paul Barnett. Reading the Bible Today Series. Sydney, South NSW: Aquila Press, 2015.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Zechariah%3A%20The%20Lord%20Returns&amp;rft.place=Sydney%2C%20South%20NSW&amp;rft.publisher=Aquila%20Press&amp;rft.series=Reading%20the%20Bible%20Today%20Series&amp;rft.aufirst=Michael%20R&amp;rft.aulast=Stead&amp;rft.au=Michael%20R%20Stead&amp;rft.au=Paul%20Barnett&amp;rft.date=2015"></span>
 </div>
+
+<hr>

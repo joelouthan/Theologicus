@@ -12,3 +12,5 @@
   <div class="csl-entry">Pakula, Martin. <i>Numbers: Homeward Bound</i>. Edited by Paul Barnett. Reading the Bible Today Series. Sydney, South NSW: Aquila Press, 2006.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Numbers%3A%20Homeward%20Bound&amp;rft.place=Sydney%2C%20South%20NSW&amp;rft.publisher=Aquila%20Press&amp;rft.series=Reading%20the%20Bible%20Today%20Series&amp;rft.aufirst=Martin&amp;rft.aulast=Pakula&amp;rft.au=Martin%20Pakula&amp;rft.au=Paul%20Barnett&amp;rft.date=2006"></span>
 </div>
+
+<hr>

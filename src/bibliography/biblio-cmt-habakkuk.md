@@ -14,3 +14,5 @@
   <div class="csl-entry">Thomas, Heath A. <i>Faith amid the Ruins: The Book of Habakkuk</i>. Edited by Craig G. Bartholomew. Transformative Word. Bellingham, WA: Lexham Press, 2016.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Faith%20amid%20the%20Ruins%3A%20The%20Book%20of%20Habakkuk&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Lexham%20Press&amp;rft.series=Transformative%20Word&amp;rft.aufirst=Heath%20A.&amp;rft.aulast=Thomas&amp;rft.au=Heath%20A.%20Thomas&amp;rft.au=Craig%20G.%20Bartholomew&amp;rft.date=2016"></span>
 </div>
+
+<hr>

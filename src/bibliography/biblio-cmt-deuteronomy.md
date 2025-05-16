@@ -20,3 +20,5 @@
   <div class="csl-entry">Kline, Meredith G. <i>Treaty of the Great King: The Covenant Structure of Deuteronomy: Studies and Commentary</i>. Eugene, OR: Wipf &amp; Stock, 2012.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Treaty%20of%20the%20Great%20King%3A%20The%20Covenant%20Structure%20of%20Deuteronomy%3A%20Studies%20and%20Commentary&amp;rft.place=Eugene%2C%20OR&amp;rft.publisher=Wipf%20%26%20Stock&amp;rft.aufirst=Meredith%20G.&amp;rft.aulast=Kline&amp;rft.au=Meredith%20G.%20Kline&amp;rft.date=2012"></span>
 </div>
+
+<hr>

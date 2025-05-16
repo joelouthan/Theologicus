@@ -16,3 +16,5 @@
   <div class="csl-entry">Thomas, Derek W. H. <i>Ezra &amp; Nehemiah</i>. Edited by Richard D. Phillips, Philip Graham Ryken, and Iain M. Duguid. Reformed Expository Commentary. Phillipsburg, NJ: P&amp;R Publishing, 2016.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Ezra%20%26%20Nehemiah&amp;rft.place=Phillipsburg%2C%20NJ&amp;rft.publisher=P%26R%20Publishing&amp;rft.series=Reformed%20Expository%20Commentary&amp;rft.aufirst=Derek%20W.%20H.&amp;rft.aulast=Thomas&amp;rft.au=Derek%20W.%20H.%20Thomas&amp;rft.au=Richard%20D.%20Phillips&amp;rft.au=Philip%20Graham%20Ryken&amp;rft.au=Iain%20M.%20Duguid&amp;rft.date=2016"></span>
 </div>
+
+<hr>

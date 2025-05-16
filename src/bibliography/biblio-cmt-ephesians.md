@@ -56,3 +56,4 @@
   <div class="csl-entry">The Art of Godliness. “Ephesians 2:3b The Wrath of God.” Accessed February 10, 2025. <a href="https://theartofgodliness.com/blog/2014/10/12/ephesians-2-the-wrath-of-god">https://theartofgodliness.com/blog/2014/10/12/ephesians-2-the-wrath-of-god</a>.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Adc&amp;rft.type=webpage&amp;rft.title=Ephesians%202%3A3b%20The%20Wrath%20of%20God&amp;rft.description=There%20is%20hardly%20a%20more%20uncomfortable%20doctrine%20than%20this%3A%20the%20wrath%20of%20God.%26nbsp%3B%20And%20yet%2C%20it%20must%20be%20taught%20%E2%80%94%20and%20heeded.&amp;rft.identifier=https%3A%2F%2Ftheartofgodliness.com%2Fblog%2F2014%2F10%2F12%2Fephesians-2-the-wrath-of-god&amp;rft.language=en-US"></span>
 </div></body>
+<hr>

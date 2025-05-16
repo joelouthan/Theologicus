@@ -20,3 +20,5 @@
   <div class="csl-entry">Widder, Wendy. <i>Jonah</i>. Edited by Douglas Mangum and Elizabeth Vince. Lexham Research Commentaries. Bellingham, WA: Lexham Press, 2017.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Jonah&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Lexham%20Press&amp;rft.series=Lexham%20Research%20Commentaries&amp;rft.aufirst=Wendy&amp;rft.aulast=Widder&amp;rft.au=Wendy%20Widder&amp;rft.au=Douglas%20Mangum&amp;rft.au=Elizabeth%20Vince&amp;rft.date=2017"></span>
 </div>
+
+<hr>

@@ -38,3 +38,4 @@
   <div class="csl-entry">Wilson, R. McL. <i>A Critical and Exegetical Commentary on Colossians and Philemon</i>. Edited by G. I. Davies and G. N. Stanton. International Critical Commentary. London; New York: T&amp;T Clark International, 2005.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=A%20Critical%20and%20Exegetical%20Commentary%20on%20Colossians%20and%20Philemon&amp;rft.place=London%3B%20New%20York&amp;rft.publisher=T%26T%20Clark%20International&amp;rft.series=International%20Critical%20Commentary&amp;rft.aufirst=R.%20McL.&amp;rft.aulast=Wilson&amp;rft.au=R.%20McL.%20Wilson&amp;rft.au=G.%20I.%20Davies&amp;rft.au=G.%20N.%20Stanton&amp;rft.date=2005"></span>
 </div></body>
+<hr>

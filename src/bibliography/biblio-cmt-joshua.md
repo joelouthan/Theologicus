@@ -18,3 +18,5 @@
   <div class="csl-entry">Woudstra, Marten H. <i>The Book of Joshua</i>. The New International Commentary on the Old Testament. Grand Rapids, MI: Wm. B. Eerdmans Publishing Co., 1981.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20Book%20of%20Joshua&amp;rft.place=Grand%20Rapids%2C%20MI&amp;rft.publisher=Wm.%20B.%20Eerdmans%20Publishing%20Co.&amp;rft.series=The%20New%20International%20Commentary%20on%20the%20Old%20Testament&amp;rft.aufirst=Marten%20H.&amp;rft.aulast=Woudstra&amp;rft.au=Marten%20H.%20Woudstra&amp;rft.date=1981"></span>
 </div>
+
+<hr>

@@ -20,3 +20,5 @@
   <div class="csl-entry">Luther, Martin, and John Hunt. <i>The Spiritual Songs of Martin Luther: From the German</i>. Edited by Thomas Clark. London: Hamilton, Adams, and Co., 1853.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20Spiritual%20Songs%20of%20Martin%20Luther%3A%20From%20the%20German&amp;rft.place=London&amp;rft.publisher=Hamilton%2C%20Adams%2C%20and%20Co.&amp;rft.aufirst=Martin&amp;rft.aulast=Luther&amp;rft.au=Martin%20Luther&amp;rft.au=John%20Hunt&amp;rft.au=Thomas%20Clark&amp;rft.date=1853"></span>
 </div>
+
+<hr>

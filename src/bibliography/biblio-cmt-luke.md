@@ -68,3 +68,5 @@
   <div class="csl-entry">Wilcock, Michael. <i>The Savior of the World: The Message of Luke’s Gospel</i>. The Bible Speaks Today. Downers Grove, IL: InterVarsity Press, 1979.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20Savior%20of%20the%20world%3A%20the%20message%20of%20Luke%E2%80%99s%20gospel&amp;rft.place=Downers%20Grove%2C%20IL&amp;rft.publisher=InterVarsity%20Press&amp;rft.series=The%20Bible%20Speaks%20Today&amp;rft.aufirst=Michael&amp;rft.aulast=Wilcock&amp;rft.au=Michael%20Wilcock&amp;rft.date=1979"></span>
 </div>
+
+<hr>

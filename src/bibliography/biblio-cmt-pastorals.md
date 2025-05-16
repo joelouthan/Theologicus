@@ -44,3 +44,5 @@
   <div class="csl-entry">———. <i>Guard the Truth: The Message of 1 Timothy &amp; Titus</i>. The Bible Speaks Today. Downers Grove, IL: InterVarsity Press, 1996.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Guard%20the%20truth%3A%20the%20message%20of%201%20Timothy%20%26%20Titus&amp;rft.place=Downers%20Grove%2C%20IL&amp;rft.publisher=InterVarsity%20Press&amp;rft.series=The%20Bible%20Speaks%20Today&amp;rft.aufirst=John%20R.%20W.&amp;rft.aulast=Stott&amp;rft.au=John%20R.%20W.%20Stott&amp;rft.date=1996"></span>
 </div>
+
+<hr>

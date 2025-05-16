@@ -36,3 +36,5 @@
   <div class="csl-entry">Tanner, J. Paul. <i>Daniel</i>. Evangelical Exegetical Commentary. Bellingham, WA: Lexham Press, 2020.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Daniel&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Lexham%20Press&amp;rft.series=Evangelical%20Exegetical%20Commentary&amp;rft.aufirst=J.%20Paul&amp;rft.aulast=Tanner&amp;rft.au=J.%20Paul%20Tanner&amp;rft.date=2020"></span>
 </div>
+
+<hr>

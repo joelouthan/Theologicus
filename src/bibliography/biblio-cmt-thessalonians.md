@@ -38,3 +38,4 @@
   <div class="csl-entry">Thiselton, Anthony C. <i>1 &amp; 2 Thessalonians through the Centuries</i>. Edited by John Sawyer, Christopher Rowland, Judith Kovacs, and David M. Gunn. Wiley Blackwell Bible Commentaries. West Sussex, UK: Wiley-Blackwell, 2011.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=1%20%26%202%20Thessalonians%20through%20the%20Centuries&amp;rft.place=West%20Sussex%2C%20UK&amp;rft.publisher=Wiley-Blackwell&amp;rft.series=Wiley%20Blackwell%20Bible%20Commentaries&amp;rft.aufirst=Anthony%20C.&amp;rft.aulast=Thiselton&amp;rft.au=Anthony%20C.%20Thiselton&amp;rft.au=John%20Sawyer&amp;rft.au=Christopher%20Rowland&amp;rft.au=Judith%20Kovacs&amp;rft.au=David%20M.%20Gunn&amp;rft.date=2011"></span>
 </div></body>
+<hr>

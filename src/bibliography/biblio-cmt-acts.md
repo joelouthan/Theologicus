@@ -59,8 +59,6 @@ Stott, John R. W., and J. Alec Motyer. *The Message of Acts*. The Bible Speaks T
 Thomas, Derek W. H. *Acts*. Edited by Richard D. Phillips, Philip Graham Ryken, and Daniel M. Doriani. Reformed Expository Commentary. Phillipsburg, NJ: P&R Publishing, 2011.
 
 Wagenman, Michael R. *Together for the World: The Book of Acts*. Edited by Craig G. Bartholomew. Transformative Word. Bellingham, WA: Lexham Press, 2016.
-
-
-
 </div>
 
+<hr>
