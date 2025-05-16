@@ -4,7 +4,7 @@
 
 <img class="profile-pic" src="jlouthan-ai-starry-back-500-01.png">Hello! My name is Joseph L. Louthan. Trying to spend all of my days with God. Sarah's husband and a Papa to a few kiddos. Living in Central Kentucky. An elder candidate of [Reforming Truth Church](https://reformingtruth.church/). Joyfully ex-Evangelical turned [Reformed Baptist--1689 Confessional](https://theologic.us/confession-1689/).
 
-This blog is a collection of writings--[devotional, expository thoughts](https://theologic.us) on the gospel of God--the good news of what Christ has done for us.
+This blog is a collection of writings--[devotional, expository thoughts](https://theologic.us)--on the gospel of God. That is, what we all have failed to do and the good news of what Christ has done for us.
 
 And if I have fifteen minutes to spare in my day, I'm intensely mediocre at [StarCraft 2](https://starcraft2.blizzard.com/en-us/).
 
