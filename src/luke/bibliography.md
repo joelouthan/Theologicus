@@ -1,12 +1,12 @@
-<img class="intro-right" src="../images/art-creation.png">
+<img class="intro-right" src="../images/art-luke.jpg">
 
-# Genesis
+# Luke
 
 ## Bibliography
 
 ## Commentaries
 
-{{#include ../bibliography/biblio-cmt-genesis.md}}
+{{#include ../bibliography/biblio-cmt-luke.md}}
 
 {{#include ../bibliography/biblio-bibles.md}}
 

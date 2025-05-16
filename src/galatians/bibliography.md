@@ -4,6 +4,10 @@
 
 ## Bibliography
 
+## Commentaries
+
+{{#include ../bibliography/biblio-cmt-galatians.md}}
+
 {{#include ../bibliography/biblio-bibles.md}}
 
 {{#include ../bibliography/biblio-books.md}}
