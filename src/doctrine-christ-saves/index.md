@@ -35,23 +35,3 @@ Since, I have moved on to the new current blogging format but held off migrating
 Then I thought, as the meme goes, "Why not both?"
 
 This is that new series. Lots of work and a little bit of writing and re-writing. But I think it is worth it. I hope you do too.
-
-## The Resources
-
-<img class="intro-right" src="book-ccss-3.jpg" hidden>
-
-{{#include ../bibliography/biblio-books.md}}
-
-### Confessions
-
-{{#include ../bibliography/biblio-confessional.md}}
-
-### Theology
-
-{{#include ../bibliography/biblio-theology.md}}
-
-[^1]: Ferguson, Sinclair B., David F. Wright, and James Innell Packer, eds. New Dictionary of Theology. Nachdr. The Master 
-
-[^2]: “Ordo Salutis.” In Wikipedia, December 8, 2024. <https://en.wikipedia.org/w/index.php?title=Ordo_salutis&oldid=1261932539#cite_note-5>.
-
-[^3]: Ligonier Ministries. “The Order of Salvation | Reformed Bible Studies & Devotionals at Ligonier.Org.” Accessed January 22, 2025. <https://learn.ligonier.org/devotionals/order-salvation>.
