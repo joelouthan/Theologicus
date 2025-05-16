@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-ruth-naomi.jpg">
+<img class="intro-right" src="../images/art-ruth-naomi.jpg">
 
 # Ruth 2:1-6 God's Calling for His People
 

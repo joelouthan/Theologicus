@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-1689.png">
+<img class="intro-right" src="../images/art-1689.png">
 
 # 19.6 The Ordinances Of The Lord Are Reliable
 

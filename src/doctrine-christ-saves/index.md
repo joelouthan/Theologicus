@@ -1,6 +1,6 @@
-<img class="intro-right" src="book-ccss-3.jpg">
+<img class="intro-right" src="../images/book-ccss-3.jpg">
 
-<p style="font-size: 2em; margin-bottom: 0px "><strong><a class="header" href="#christ-came-to-save-sinners-an-introduction--resources">Christ Came to Save Sinners, An Introduction & Resources</a></strong></p>
+<p style="font-size: 2em; margin-bottom: 0px "><strong><a class="header" href="#christ-came-to-save-sinners-an-introduction--resources">Christ Came to Save Sinners</a></strong></p>
 
 <p style="font-size: 1.6rem; margin-top: 0px "><i>An Exposition of 1 Timothy 1:15 concerning the Order of Salvation</i><p>
 
@@ -35,23 +35,3 @@ Since, I have moved on to the new current blogging format but held off migrating
 Then I thought, as the meme goes, "Why not both?"
 
 This is that new series. Lots of work and a little bit of writing and re-writing. But I think it is worth it. I hope you do too.
-
-## The Resources
-
-<img class="intro-right" src="book-ccss-3.jpg" hidden>
-
-{{#include ../bibliography/biblio-books.md}}
-
-### Confessions
-
-{{#include ../bibliography/biblio-confessions.md}}
-
-### Theology
-
-{{#include ../bibliography/biblio-theology.md}}
-
-[^1]: Ferguson, Sinclair B., David F. Wright, and James Innell Packer, eds. New Dictionary of Theology. Nachdr. The Master 
-
-[^2]: “Ordo Salutis.” In Wikipedia, December 8, 2024. <https://en.wikipedia.org/w/index.php?title=Ordo_salutis&oldid=1261932539#cite_note-5>.
-
-[^3]: Ligonier Ministries. “The Order of Salvation | Reformed Bible Studies & Devotionals at Ligonier.Org.” Accessed January 22, 2025. <https://learn.ligonier.org/devotionals/order-salvation>.

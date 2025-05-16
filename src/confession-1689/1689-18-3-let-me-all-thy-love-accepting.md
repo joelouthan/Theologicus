@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-1689.png">
+<img class="intro-right" src="../images/art-1689.png">
 
 # 18.3 The Spirit is Given Freely to Us in Christ
 

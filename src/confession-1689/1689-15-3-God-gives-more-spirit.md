@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-1689.png">
+<img class="intro-right" src="../images/art-1689.png">
 
 # 15.3 God Gives More: Spirit
 

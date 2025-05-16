@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-timothy.jpg">
+<img class="intro-right" src="../images/art-timothy.jpg">
 
 # 1 Timothy 6:17-19 Hope in Christ
 

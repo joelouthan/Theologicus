@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-1689.png">
+<img class="intro-right" src="../images/art-1689.png">
 
 # 18.4 In Your Truth You Do Direct me: We Can Never Be Separate From The Love of God in Christ
 

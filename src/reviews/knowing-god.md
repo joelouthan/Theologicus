@@ -1,4 +1,4 @@
-<img class="intro-right" src="theology-knowing-god-packer.jpg">
+<img class="intro-right" src="../images/theology-knowing-god-packer.jpg">
 
 # Knowing God by J.I. Packer
 

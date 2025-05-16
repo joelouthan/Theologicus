@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-1689.png">
+<img class="intro-right" src="../images/art-1689.png">
 
 # Teaching: 1689 Monthly Conference at Reforming Truth Church, Lexington, KY
 

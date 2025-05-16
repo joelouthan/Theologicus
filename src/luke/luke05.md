@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-luke.jpg">
+<img class="intro-right" src="../images/art-luke.jpg">
 
 # Luke 5 Christ is Lord Over Everything
 

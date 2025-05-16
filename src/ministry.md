@@ -121,9 +121,9 @@ To that end, I am a Reformed Baptist and therefore, credobaptist. My local churc
 
 ### Reforming Truth Church, Lexington, KY (2022 to Present)
 
-- Member
+- Covenent Member
+- Elder Candidate
 - Bible Study Teacher
-- Technology 
 
 ### Frontline Church South, Oklahoma City, OK (2019-2022)
 

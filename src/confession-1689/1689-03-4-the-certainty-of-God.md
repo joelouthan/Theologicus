@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-1689.png">
+<img class="intro-right" src="../images/art-1689.png">
 
 # 1689 Baptist Confession of Faith, Chapter 3.4 The Certainty of God
 

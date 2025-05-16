@@ -1,40 +1,26 @@
-<img src="github-book-theologicus3.png" hidden><img src="bible-csb-study.jpg">CSB Study Bible  
-Holmon Bible Publishers. 2017.  
-[Goodreads](https://www.goodreads.com/book/show/30746885-csb-study-bible)
+## Bibles
 
-<hr style="clear:both;">
+<div class="bibliography">
 
-<img src="bible-esv-reformation-study-sproul.jpg">ESV Reformation Study Bible  
-Commentary & Edited by R.C. Sproul.  
-Ligonier Ministries. March 16, 2015.  
-[Goodreads](https://www.goodreads.com/book/show/53529503-esv-reformation-study-bible?ac=1&from_search=true&qid=KXDsGlDfkm&rank=1)
+Barton, Bruce B., ed. *NIV Life Application Study Bible*, Third Edition (Hardcover). Third. Tyndale House Publishers, 2019.
 
-<hr style="clear:both;">
+Blum, Edwin A., and Wax, Trevor, eds.*CSB Study Bible*: Notes. Nashville, TN: Holman Bible Publishers, 2017.
 
-<img src="bible-esv-study.jpg">ESV Study Bible.  
-ESV Text Edition: 2016.  
-Crossway. 2008.  
-[Goodreads](https://www.goodreads.com/book/show/5031805-esv-study-bible)
+Brannan, Rick, Ken M. Penner, Michael Aubrey, Israel Loken, and Isaiah Hoogendyk. *The Lexham English Septuagint*. Second Edition. Bellingham, WA: Lexham Press, 2020.
 
-<hr style="clear:both;">
+Curtis, Andrew, and Isaiah Hoogendyk. *The Lexham Latin-English Interlinear Vulgate*. Bellingham, WA: Lexham Press, 2016.
 
-<img src="bible-key-word-study-nasb.jpg">Hebrew Greek Key Word Study Bible.  
-New American Standard Bible 1977.  
-AMG International. 2008.  
-[Goodreads](https://www.goodreads.com/book/show/52820732-the-hebrew-greek-key-word-study-bible?from_search=true&from_srp=true&qid=P0A6P8R3yU&rank=2)
+Packer, J. I., John Piper, Mark Dever, and Bruce A. Ware, eds. *ESV Study Bible*. Crossway, 2011.
 
-<hr style="clear:both;">
+Pratt, Richard L., Jr., ed. *Spirit of the Reformation Study Bible*: NIV 1984. Grand Rapids, Mich.: Zondervan, 2003.
 
-<img src="bible-spirit-reformation-study-niv.jpg">Spirit of the Reformation Study Bible.  
-NIV 1984.  
-Zondervan. 2003.  
-[Goodreads](https://www.goodreads.com/book/show/3421584-niv-spirit-of-the-reformation-study-bible)
+Sproul, R. C., ed. *The Reformation Study Bible*: English Standard Version. Orlando, FL: Reformation Trust, 2015.
 
-<hr style="clear:both;">
+Tan, Randall K., David A. deSilva, and Isaiah Hoogendyk. *The Lexham Greek-English Interlinear Septuagint: H.B. Swete Edition*. Bellingham, WA: Lexham Press, 2012.
 
-<img src="bible-life-application-study-niv.jpg">Life Application Study Bible.  
-NIV 2011.  
-Zondervan. 2011.  
-[Goodreads](https://www.goodreads.com/book/show/14330625-niv-life-application-study-bible-second-edition)
+———. *The Lexham Greek-English Interlinear Septuagint: H.B. Swete Edition (Alternate Texts)*. Bellingham, WA: Lexham Press, 2012.
 
-<hr style="clear:both;">
+Zodhiates, Spiros, ed. *The Hebrew-Greek Key Word Study Bible*: NASB-77 Edition, Hardbound (Key Word Study Bibles). Revised Edition. Chattanooga, TN: AMG Publishers, 2008.
+
+</div>
+<hr>

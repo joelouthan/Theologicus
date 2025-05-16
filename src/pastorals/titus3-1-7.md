@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-titus.jpg">
+<img class="intro-right" src="../images/art-titus.jpg">
 
 # Titus 3:1-7 Live Like This: Christ Appeared
 

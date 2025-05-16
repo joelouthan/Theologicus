@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-1689.png">
+<img class="intro-right" src="../images/art-1689.png">
 
 <p style="font-weight: bold; font-size: 2em; margin-bottom: 0px "><a class="header" href="2lbc">The Second London Baptist Confession of Faith 1689</a></p>
 
@@ -2578,5 +2578,3 @@ Edward Man, Pastor, Houndsditch, London
 Charles Archer, Pastor, Hock-Norton, Oxon  
 
 In the name of and on the behalf of the whole assembly.
-
-## [The Resources](1689-bibliography.md)

@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-timothy.jpg">
+<img class="intro-right" src="../images/art-timothy.jpg">
 
 # 2 Timothy 3:1-12 Refined By God
 

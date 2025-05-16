@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-titus.jpg">
+<img class="intro-right" src="../images/art-titus.jpg">
 
 # Titus 2:1-5 Teach Like This: Family of Christ
 

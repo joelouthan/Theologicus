@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-titus.jpg">
+<img class="intro-right" src="../images/art-titus.jpg">
 
 # Titus 1:1-4 Minister Like This: Know God
 

@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-creation.png">
+<img class="intro-right" src="../images/art-creation.png">
 
 # Genesis 2:4-25 Our Forever Righteousness
 

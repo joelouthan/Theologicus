@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-matthew.jpg">
+<img class="intro-right" src="../images/art-matthew.jpg">
 
 # Matthew 22:15-22 Jesus Christ is Our Bridge
 

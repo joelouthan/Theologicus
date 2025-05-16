@@ -1,6 +1,6 @@
-<img class="intro-right" src="art-matthew.jpg">
+<img class="intro-right" src="../images/art-matthew.jpg">
 
-<img class="intro-right" src="art-matthew.jpg">
+<img class="intro-right" src="../images/art-matthew.jpg">
 
 # Matthew 6:13b Pray Like This: Yours is The Kingdom, O Lord
 

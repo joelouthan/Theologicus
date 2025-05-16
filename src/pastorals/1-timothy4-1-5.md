@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-timothy.jpg">
+<img class="intro-right" src="../images/art-timothy.jpg">
 
 # 1 Timothy 4:1-5 Worship Christ
 

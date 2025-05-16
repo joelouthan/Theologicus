@@ -1,6 +1,6 @@
-<img class="intro-right" src="art-matthew.jpg">
+<img class="intro-right" src="../images/art-matthew.jpg">
 
-<img class="intro-right" src="art-matthew.jpg">
+<img class="intro-right" src="../images/art-matthew.jpg">
 
 # Matthew 6:11 Pray Like This: Give Us This Day Our Daily Bread
 

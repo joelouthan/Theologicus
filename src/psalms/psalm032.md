@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-paris-psalter.jpg">
+<img class="intro-right" src="../images/art-paris-psalter.jpg">
 
 # Psalm 32
 

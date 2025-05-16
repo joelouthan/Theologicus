@@ -1,4 +1,4 @@
-<img class="intro-right" src="book-ccss-3.jpg">
+<img class="intro-right" src="../images/book-ccss-3.jpg">
 
 <p style="font-weight: bold; font-size: 2em; margin-bottom: 0px "><a class="header" href="#the-perfection-of-his-word">The Perfection of His Word</a></p>
 

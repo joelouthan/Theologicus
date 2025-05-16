@@ -1,4 +1,4 @@
-<img class="intro-right" src="art-luke.jpg">
+<img class="intro-right" src="../images/art-luke.jpg">
 
 # Luke 7 The Responses of the Children of God
 
