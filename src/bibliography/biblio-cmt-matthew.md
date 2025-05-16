@@ -83,7 +83,7 @@
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20message%20of%20the%20Sermon%20on%20the%20mount%20(Matthew%205-7)%3A%20Christian%20counter-culture&amp;rft.place=Leicester%3B%20Downers%20Grove%2C%20IL&amp;rft.publisher=InterVarsity%20Press&amp;rft.series=The%20Bible%20Speaks%20Today&amp;rft.aufirst=John%20R.%20W.&amp;rft.aulast=Stott&amp;rft.au=John%20R.%20W.%20Stott&amp;rft.au=John%20R.%20W.%20Stott&amp;rft.date=1985"></span>
   <div class="csl-entry">Weber, Stuart K. <i>Matthew</i>. Vol. 1. Holman New Testament Commentary. Nashville, TN: Broadman &amp; Holman Publishers, 2000.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Matthew&amp;rft.place=Nashville%2C%20TN&amp;rft.publisher=Broadman%20%26%20Holman%20Publishers&amp;rft.series=Holman%20New%20Testament%20Commentary&amp;rft.aufirst=Stuart%20K.&amp;rft.aulast=Weber&amp;rft.au=Stuart%20K.%20Weber&amp;rft.date=2000"></span>
-</div></body>
+</div>
 </html>
 
 <hr>

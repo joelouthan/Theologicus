@@ -61,5 +61,5 @@
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20Second%20Epistle%20of%20Paul%20to%20the%20Corinthians&amp;rft.place=New%20York%3B%20London&amp;rft.publisher=Harper%20and%20Brothers%20Publishers&amp;rft.series=The%20Moffatt%20New%20Testament%20Commentary&amp;rft.aufirst=R.%20H.&amp;rft.aulast=Strachan&amp;rft.au=R.%20H.%20Strachan&amp;rft.au=James%20Moffatt&amp;rft.date=1935"></span>
   <div class="csl-entry">Thiselton, Anthony C. <i>The First Epistle to the Corinthians: A Commentary on the Greek Text</i>. New International Greek Testament Commentary. Grand Rapids, MI: W.B. Eerdmans, 2000.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20First%20Epistle%20to%20the%20Corinthians%3A%20a%20commentary%20on%20the%20Greek%20text&amp;rft.place=Grand%20Rapids%2C%20MI&amp;rft.publisher=W.B.%20Eerdmans&amp;rft.series=New%20International%20Greek%20Testament%20Commentary&amp;rft.aufirst=Anthony%20C.&amp;rft.aulast=Thiselton&amp;rft.au=Anthony%20C.%20Thiselton&amp;rft.date=2000"></span>
-</div></body>
+</div>
 <hr>

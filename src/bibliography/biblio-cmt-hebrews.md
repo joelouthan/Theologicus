@@ -69,5 +69,5 @@
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Saint%20Chrysostom%3A%20Homilies%20on%20the%20Gospel%20of%20St.%20John%20and%20Epistle%20to%20the%20Hebrews&amp;rft.place=New%20York&amp;rft.publisher=Christian%20Literature%20Company&amp;rft.series=A%20Select%20Library%20of%20the%20Nicene%20and%20Post-Nicene%20Fathers%20of%20the%20Christian%20Church%2C%20First%20Series&amp;rft.date=1889"></span>
   <div class="csl-entry">Spurgeon, Charles. <i>Spurgeon Commentary: Hebrews</i>. Edited by Elliot Ritzema and Jessi Strong. Spurgeon Commentary Series. Bellingham, WA: Lexham Press, 2014.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Spurgeon%20Commentary%3A%20Hebrews&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Lexham%20Press&amp;rft.series=Spurgeon%20Commentary%20Series&amp;rft.aufirst=Charles&amp;rft.aulast=Spurgeon&amp;rft.au=Charles%20Spurgeon&amp;rft.au=Elliot%20Ritzema&amp;rft.au=Jessi%20Strong&amp;rft.date=2014"></span>
-</div></body>
+</div>
 <hr>

@@ -81,5 +81,5 @@
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=The%20message%20of%20Revelation%3A%20I%20saw%20heaven%20opened&amp;rft.place=Leicester%2C%20England%3B%20Downers%20Grove%2C%20IL&amp;rft.publisher=InterVarsity%20Press&amp;rft.series=The%20Bible%20Speaks%20Today&amp;rft.aufirst=Michael&amp;rft.aulast=Wilcock&amp;rft.au=Michael%20Wilcock&amp;rft.date=1986"></span>
   <div class="csl-entry">Wilson, Mark. <i>Victory through the Lamb: A Guide to Revelation in Plain Language</i>. Bellingham, WA: Lexham Press, 2019.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Victory%20through%20the%20Lamb%3A%20A%20Guide%20to%20Revelation%20in%20Plain%20Language&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Lexham%20Press&amp;rft.aufirst=Mark&amp;rft.aulast=Wilson&amp;rft.au=Mark%20Wilson&amp;rft.date=2019"></span>
-</div></body>
+</div>
 <hr>

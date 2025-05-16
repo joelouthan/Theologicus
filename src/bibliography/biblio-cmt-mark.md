@@ -55,7 +55,7 @@
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Expository%20Thoughts%20on%20Mark&amp;rft.place=London&amp;rft.publisher=William%20Hunt&amp;rft.aufirst=J.%20C.&amp;rft.aulast=Ryle&amp;rft.au=J.%20C.%20Ryle&amp;rft.date=1859"></span>
   <div class="csl-entry">Tan, Kim Huat. <i>Mark: A New Covenant Commentary</i>. Edited by Michael F. Bird and Craig Keener. New Covenant Commentary Series. Eugene, OR: Cascade Books, 2015.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Mark%3A%20A%20New%20Covenant%20Commentary&amp;rft.place=Eugene%2C%20OR&amp;rft.publisher=Cascade%20Books&amp;rft.series=New%20Covenant%20Commentary%20Series&amp;rft.aufirst=Kim%20Huat&amp;rft.aulast=Tan&amp;rft.au=Kim%20Huat%20Tan&amp;rft.au=Michael%20F.%20Bird&amp;rft.au=Craig%20Keener&amp;rft.date=2015"></span>
-</div></body>
+</div>
 </html>
 
 <hr>

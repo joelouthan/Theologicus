@@ -47,5 +47,5 @@
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=Invitation%20to%20Philippians%3A%20Building%20a%20Great%20Church%20Through%20Humility&amp;rft.place=Bellingham%2C%20WA&amp;rft.publisher=Lexham%20Press&amp;rft.series=Biblical%20Preaching%20for%20the%20Contemporary%20Church&amp;rft.aufirst=Donald%20R.&amp;rft.aulast=Sunukjian&amp;rft.au=Donald%20R.%20Sunukjian&amp;rft.date=2018"></span>
   <div class="csl-entry">Vincent, Marvin Richardson. <i>A Critical and Exegetical Commentary on the Epistles to the Philippians and to Philemon</i>. International Critical Commentary. New York: C. Scribner’s Sons, 1897.</div>
   <span class="Z3988" title="url_ver=Z39.88-2004&amp;ctx_ver=Z39.88-2004&amp;rfr_id=info%3Asid%2Fzotero.org%3A2&amp;rft_val_fmt=info%3Aofi%2Ffmt%3Akev%3Amtx%3Abook&amp;rft.genre=book&amp;rft.btitle=A%20critical%20and%20exegetical%20commentary%20on%20the%20Epistles%20to%20the%20Philippians%20and%20to%20Philemon&amp;rft.place=New%20York&amp;rft.publisher=C.%20Scribner%E2%80%99s%20Sons&amp;rft.series=International%20Critical%20Commentary&amp;rft.aufirst=Marvin%20Richardson&amp;rft.aulast=Vincent&amp;rft.au=Marvin%20Richardson%20Vincent&amp;rft.date=1897"></span>
-</div></body>
+</div>
 <hr>
