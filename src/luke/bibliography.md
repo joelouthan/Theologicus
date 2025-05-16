@@ -4,8 +4,6 @@
 
 ## Bibliography
 
-## Commentaries
-
 {{#include ../bibliography/biblio-cmt-luke.md}}
 
 {{#include ../bibliography/biblio-bibles.md}}
