@@ -1,0 +1,18 @@
+{
+  "name": "html-to-markdown-converter",
+  "version": "1.0.0",
+  "description": "A project to convert HTML files to Markdown format.",
+  "main": "src/convert.js",
+  "scripts": {
+    "convert": "node src/convert.js"
+  },
+  "dependencies": {},
+  "devDependencies": {},
+  "keywords": [
+    "html",
+    "markdown",
+    "converter"
+  ],
+  "author": "",
+  "license": "ISC"
+}
