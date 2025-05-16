@@ -306,15 +306,9 @@
 
 <hr>
 
-### 1 Corinthians
+### 1 & 2 Corinthians
 
-{{#include biblio-cmt-1-corinthians.md}}
-
-<hr>
-
-### 2 Corinthians
-
-{{#include biblio-cmt-2-corinthians.md}}
+{{#include biblio-cmt-corinthians.md}}
 
 <hr>
 
@@ -348,9 +342,7 @@
 
 <hr>
 
-### Pastorals - Letters to Timothy & Titus
-
-{{#include biblio-cmt-pastorals-letters.md}}
+### Pastoral Epistles to Timothy & Titus
 
 {{#include biblio-cmt-pastorals.md}}
 
@@ -374,21 +366,19 @@
 
 <hr>
 
-### 1 & Peter
+### 1 Peter
 
-{{#include biblio-cmt-epistles-peter.md}}
+{{#include biblio-cmt-1-peter.md}}
 
 <hr>
+
+### 2 Peter & Jude
+
+{{#include biblio-cmt-2-peter-jude.md}}
 
 ### 1, 2 & 3 John
 
 {{#include biblio-cmt-epistles-john.md}}
-
-<hr>
-
-### Jude
-
-{{#include biblio-cmt-jude.md}}
 
 <hr>
 
