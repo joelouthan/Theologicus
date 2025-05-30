@@ -3,7 +3,9 @@
 ## About
 
 <img class="profile-pic" style="width:179px" src="jlouthan-ai-starry-back-500-01.png">
-Trying to waste my time with God. Preacher of the Gospel. Writing at Theologicus. StarCraft 2 Elderly.
+Proclaimer of the Gospel ⏵  By the Triune God alone, I will kiss the face of my Savior a million times—for my beloved is mine, and I am his forevermore.
+
+Also, intensely mediocre at StarCraft 2.
 
 >No pen, no words, no image can express to you the loveliness of my only, only Lord Jesus.
 >
