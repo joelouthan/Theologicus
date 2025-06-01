@@ -18,7 +18,7 @@ And if I have fifteen minutes to spare in my day, I'm intensely mediocre at [Sta
 
 <div class="contact-info">
 
-  [![Cell](https://img.shields.io/badge/SMS-joseph-437790?style=for-the-badge&logo=Apple)](sms:8177071486)[![Email](https://img.shields.io/badge/Email-joseph-success?style=for-the-badge&logo=Minutemailer)](mailto:joe@theologic.us)[![GitHub](https://img.shields.io/badge/GitHub-joseph-171515?style=for-the-badge&logo=GitHub)](https://github.com/joelouthan)[![StarCraft 2](https://img.shields.io/badge/StarCraft%202-Nachoz%2311728-80A6C6?style=for-the-badge)](https://starcraft2.com/)
+  [![Cell](https://img.shields.io/badge/SMS-joseph-437790?style=for-the-badge&logo=Apple)](sms:8177071486)[![Email](https://img.shields.io/badge/Email-joseph-success?style=for-the-badge&logo=Minutemailer)](mailto:joe@theologic.us)[![GitHub](https://img.shields.io/badge/GitHub-joelouthan-171515?style=for-the-badge&logo=GitHub)](https://github.com/joelouthan)![Discord](https://img.shields.io/badge/Discord-nachoz4k-5a66f2?style=for-the-badge&logo=Discord)[![StarCraft 2](https://img.shields.io/badge/StarCraft%202-Nachoz-80A6C6?style=for-the-badge)](https://liquipedia.net/starcraft2/User:Nachoz)![Battlenet](https://img.shields.io/badge/Battlenet-Nachoz%2311728-0074e0?style=for-the-badge)
 
 </div>
 
