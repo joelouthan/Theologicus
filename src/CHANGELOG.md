@@ -6,8 +6,6 @@ The format is based on [Keep a Changelog](https://keepachangelog.com/en/1.0.0/),
 
 ## 3.5.1 (2025 May 16) Conversion of Resources to [Bibliography](https://theologic.us/bibliography/)
 - standardized to using [mdbook's include syntax](https://rust-lang.github.io/mdBook/format/mdbook.html#including-files)
-  - `{{#include biblio-bibles.md}}`
-  - `{{#include ../bibliography/biblio-books.md}}`
   - See this repo's [src/bibliography](https://github.com/joelouthan/Theologicus/tree/main/src/bibliography) for my examples
 - [Turbian 9th edition](https://www.chicagomanualofstyle.org/turabian/about/about-new.html)
 - ![Word Count](https://img.shields.io/badge/Word%20Count-565211-brightgreen)
