@@ -12,29 +12,29 @@
 
 What is sin?
 
-The Oxford Dictionary defines sin as “An act which is regarded as a transgression of the divine law and an offence against God; a violation (esp. wilful or deliberate) of some religious or moral principle.”[^1]
+The Oxford Dictionary defines sin as "An act which is regarded as a transgression of the divine law and an offense against God; a violation (esp. wilful or deliberate) of some religious or moral principle." [^1]
 
 God defines sin as "falling short of the glory of God" (Romans 3:23).
 
-In other words, God is most glorious--that is, *most perfect* amd *maxed out perfection* in his glory. To lest we confused actual perfection that can only be found in God alone and the local coffee diner that makes the "most perfect" cinnamon rolls ever. Humans, especially English speakers, have run out of superlatives akin to good/better/best to describe the good things in our world--never mind what the actual right definition of "perfect" is in the standard of who God is.
+In other words, God is most glorious--that is, *most perfect* and *maxed out perfection* in his glory. Let us not confuse actual perfection, which can only be found in God alone, with the local coffee diner that makes the "most perfect" cinnamon rolls ever. Humans, especially English speakers, have run out of superlatives akin to good/better/best to describe the good things in our world--never mind what the actual proper definition of "perfect" is in the standard of who God is.
 
-You know what what the effects of sin is on our world? Even the good things from God in our world are not as good as what they could be in the presence of God.
+Do you know what the effects of sin are on our world? Even the good things from God in our world are not as good as what they could be in the presence of God.
 
-And it was never suppose to be this way. Sexual immorality, idol worship, hatred, foolishness, pride, and every other abomination was not the intention of God. God is the source of good and not evil. He can only do what is good and not sin. He did not make the world full of sickness, disease, cancer, betrayal, grief, mental illness, and death. He made the world *actually* perfect and *actually* good.
+And it was never supposed to be this way. Sexual immorality, idol worship, hatred, foolishness, pride, and every other abomination was not the intention of God. God is the source of good and not evil. He can only do what is good and not sin. He did not make the world full of sickness, disease, cancer, betrayal, grief, mental illness, and death. He made the world *actually* perfect and *actually* good.
 
-Sin entered in through one man, our original father, Adam. Adam was made good, perfect, and right-standing with God. God gave Adam all the ability to obey God perfectly. Not only with morality but with one commandment: don't eat from this tree. If Adam obeyed God, and grew and matured in wisdom and stature, he would have not only been given eternal, perfect, good life but for his descendants as well. 
+Sin entered through one man, our original father, Adam. Adam was made good, perfect, and right-standing with God. God gave Adam the ability to obey God perfectly. Not only with morality but with one commandment: don't eat from this tree. If Adam obeyed God and grew and matured in wisdom and stature, he would have not only been given an eternal, perfect, good life but for his descendants as well. 
 
-But we know that did not happen. Adam fell into temptation. Adam did not struggle with sin. Adam sinned against God. Therefore, famine, poverty, lack, war, sadness, and anger have entered in. We know this because we live this. We are feeling the affects of people trying desperately to grab whatever power they can for their own ill-gotten gains--and if some people are broken or killed along the way, it is no concern to them.
+But we know that did not happen. Adam fell into temptation. Adam did not struggle with sin. Adam sinned against God. Therefore, famine, poverty, lack, war, sadness, and anger have entered. We know this because we experience it firsthand. We are feeling the effects of people trying desperately to grab whatever power they can for their ill-gotten gains--and if some people are broken or killed along the way, it is no concern to them.
 
-This is sin. And because of sin, even my pithy little pitiful explanation of sin falls way, way short. Because I was born in sin, I cannot properly define sin and give it is fullest explanation. My own brokenness and sinfulness prevents me from uncovering any of my potential sin-masking blindspots in my life. That is why this chapter will fall short of giving you the best definition of sin.
+This is a sin. And because of sin, even my pithy little pitiful explanation of sin falls way, way short. Because I was born in sin, I cannot correctly define sin and give it its whole explanation. My brokenness and sinfulness prevent me from uncovering any of my potential sin-masking blind spots in my life. That is why this chapter will fall short of giving you the best definition of sin.
 
-This sin is not just a brokenness I was born into but it was an offense that I have committed time and time again throughout my life. And to even think I might have a good moment in time without sin:
+This sin is not just a brokenness I was born into, but it was an offense that I have committed time and time again throughout my life. And to even think I might have a good moment in time without sin:
 
 >James 2:10 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
 
 >Galatians 3:10 (CSB) For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
 
-God has set the standard of righteousness which is his law. Keeping the law does not just mean keeping it from the moment you have known about it but rather keeping it from birth. For:
+God has set the standard of righteousness, which is his law. Keeping the law does not just mean keeping it from the moment you have known about it but instead keeping it from birth. For:
 
 >Psalm 58:3-5 (CSB) The wicked go astray from the womb;  
 >liars wander about from birth.  
@@ -43,7 +43,7 @@ God has set the standard of righteousness which is his law. Keeping the law does
 >that does not listen to the sound of the charmers  
 >who skillfully weave spells.
 
-Too many people read these passages and they think, "Oh that is them--that is not me." Yes the same man who wrote this passage also wrote:
+Too many people read these passages, and they think, "Oh, that is them--that is not me." Yes, the same man who wrote this passage also wrote:
 
 >Psalm 51:3-5 (CSB) For I am conscious of my rebellion,  
 >and my sin is always before me.  
@@ -70,8 +70,8 @@ For the psalmist who wrote:
 >and their tongues strut across the earth.  
 >Therefore his people turn to them  
 >and drink in their overflowing words.  
->The wicked say, “How can God know?  
->Does the Most High know everything? ”  
+>The wicked say, "How can God know?  
+>Does the Most High know everything?"  
 >Look at them — the wicked!  
 >They are always at ease,  
 >and they increase their wealth.
@@ -80,12 +80,12 @@ Is the same psalmist realized just a few quick moments later:
 
 >Psalm 73:21-22 (CSB) When I became embittered  
 >and my innermost being was wounded,  
->I was stupid and didn’t understand;  
+>I was stupid and didn't understand;  
 >I was an unthinking animal toward you.
 
-The ESV reads as "I was brutish and ignorant; I was like a beast toward you." This is not unlike when God turned Nebuchadnezzar into a beast that "was driven away from people, ate grass like cattle, and drenched with dew from the sky, until his hair grew like eagles’ feathers and his nails like birds’ claws." (Daniel 4:33)
+The ESV reads, "I was brutish and ignorant; I was like a beast toward you." This is not unlike when God turned Nebuchadnezzar into a beast that "was driven away from people, ate grass like cattle, and drenched with dew from the sky until his hair grew like eagles' feathers and his nails like birds' claws." (Daniel 4:33)
 
-What we see on the outside of King Nebuchadnezzar is a glimpse, a facet of the heart of the man on the inside.
+What we see on the outside of King Nebuchadnezzar is a glimpse, a facet of the heart of the man within.
 
 All because of sin.
 
