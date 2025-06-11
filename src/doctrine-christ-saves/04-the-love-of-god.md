@@ -31,7 +31,7 @@
 
 No one could assume that the adulteress then lived a perfect life from this point. No one would speculate that she never sinned again. Yet, in God the Father's eyes, not only forgiven, but rather, she had never sinned because she trusted in the whom the Father had sent.
 
-We could easily write a fictional piece on the adulteress. We want to write that she lived a holy life in Shekinah glory for all of her days on earth. But any person born again longer than a day knows full well that the adulteress sinned. Her own addictions. Her own trauma keeps repeating the cycle of sin. She does not struggle with sin. She does sin. You do not struggle with sin. You do sin. I do not struggle with sin. I do sin. We all do. We have all fallen short of the glory of God. We are not going to be graded on a curve. For:
+We could easily write a fictional piece on the adulteress. We want to write that she lived a holy life in Shekinah glory for all of her days on earth. But any person born again longer than a day knows full well that the adulteress sinned. Her addictions and her trauma keep repeating the cycle of sin. She does not struggle with sin. She does sin. You do not struggle with sin. You do sin. I do not struggle with sin. I do sin. We all do. We have all fallen short of the glory of God. We will not be graded on a curve. For:
 
 >Romans 3:23 (CSB) For all have sinned and fall short of the glory of God.
 
@@ -41,13 +41,13 @@ We could easily write a fictional piece on the adulteress. We want to write that
 
 Wretched man that I am! A wretched woman that she was! She did sinned. I will sin. That same sin that I have been forgiven of, I will do. Will there be condemnation in my future?
 
-We cannot speculate on the adulteress--what sins she committed. But I will tell you this: I know that I know she had the Holy Spirit dwelling in her because God the Father had mercy on her, forgave her, and made his home in her. I know this because the Son of God, who is God, did not condemn her but died for her in her place for her sin.
+We cannot speculate on the adulteress — what sins she committed. But I will tell you this: I know that I know she had the Holy Spirit dwelling in her because God the Father had mercy on her, forgave her, and made his home in her. I know this because the Son of God, who is God, did not condemn her but died for her in her place for her sin.
 
 We know that the adulteress sinned. But we also know that because she had the Holy Spirit dwelling in her, the Father gave her the gift of repentance. And time and time again, no matter how deep the sin, Christ was instantly able and willing to forgive her.
 
 >1 John 1:9 (CSB) If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
 
-Turn to Christ, and you will be instantly forgiven. Not a drop of wrath is reserved for you--Christ drank the cup of wrath in full. Not a bit of condemnation is held back for you for your future sins--when Christ died, all of your sins were future sins. You are secured. You are sealed. You are set free. You are forgiven. You are loved. You are a child of God.
+Turn to Christ and be instantly forgiven. Not a drop of wrath is reserved for you, for Christ drank the cup of wrath in full. Not a bit of condemnation is held back for you for your future sins--when Christ died, all of your sins were future sins. You are secured. You are sealed. You are set free. You are forgiven. You are loved. You are a child of God.
 
 >Oh close and blessed union! Justified by God, accepted in Christ, condemnation there cannot be. I stand in the Divine presence as Joshua stood before the Lord, or as the woman stood before the Savior, charged, accused, guilty; but I am in the presence of him who, though now he sits upon the throne as my Judge, once hung upon the cross as my Savior. And, investing me with his own spotless robe, he proceeds to pronounce the sentence- "NO CONDEMNATION!"
 >
@@ -55,15 +55,15 @@ Turn to Christ, and you will be instantly forgiven. Not a drop of wrath is reser
 >
 >Octavius Winslow. No Condemnation in Christ Jesus. 191.
 
-The adulteress turned the Christ when she sinned because Christ came to save us from our sins. The adulteress was bondage to corruption and Christ the Firstborn came to make her a child of God and give her the freedom that only belongs to the children of God. The adulteress was the worst of sinners! But didn't Christ come to save even the chief of sinners?
+The adulteress turned to Christ when she sinned because Christ came to save us from our sins. The adulteress was bondage to corruption, and Christ the Firstborn came to make her a child of God and give her the freedom that only belongs to the children of God. The adulteress was the worst of sinners! But didn't Christ come to save even the chief of sinners?
 
-That's her. That's you. That's me.
+Who is the greatest sinner? That's Paul. That's her. That's you. That's me.
 
-But God loved us.
+And yet, God loved us.
 
 >Romans 5:6-8 (CSB) For while we were still helpless, at the right time, Christ died for the ungodly. For rarely will someone die for a just person — though for a good person perhaps someone might even dare to die. <span class="bgy">But God proves his own love for us in that while we were still sinners, Christ died for us.</span>
 
-But God loved us.
+God loved us.
 
 >Romans 5:10 (CSB) For if, while we were enemies, we were reconciled to God through the death of his Son, then how much more, having been reconciled, will we be saved by his life!
 
@@ -71,7 +71,7 @@ But God loved us.
 
 >1 John 4:10 (CSB) Love consists in this: not that we loved God, but that he loved us and sent his Son to be the atoning sacrifice for our sins.
 
-But God loved us.
+God loved us.
 
 >Galatians 2:20 (CSB) I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
 
