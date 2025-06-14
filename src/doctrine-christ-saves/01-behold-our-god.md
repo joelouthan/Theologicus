@@ -10,41 +10,41 @@
 
 ## The Devotion
 
-To proclaim ourselves as Christians is to proclaim that we believe and trust upon Christ as our Saviour and Lord.
+To proclaim ourselves as Christians is to declare that we believe and trust in Christ as our Savior and Lord.
 
-At that beautiful moment, when God saved us, we hope and pray that each one of us are immediately surrounded by other brothers and sisters in Christ that are willing to walk alongside with us in love, encouragement, teaching and exhortation. This is called discipleship. This is the grassroots of the Great Commission.  It is my sincere hope that no newly saved person is ever alone by themselves in trying to figure this new found faith especially when the cross of Christ has not only saved us to Himself but saved us to one another. Here at ground zero, at the precise moment when the Holy Spirit takes out our hearts of stone, we are then given a new heart and new desires by God. These new desires are to know and love God more and more each day.
+At that beautiful moment when God saved us, we hope and pray that each one of us is immediately surrounded by other brothers and sisters in Christ who are willing to walk alongside us in love, encouragement, teaching, and exhortation. This is called discipleship. This is the grassroots of the Great Commission. It is my sincere hope that no newly saved person is ever alone in trying to figure out this newfound faith, especially when the cross of Christ has not only saved us for Himself but also saved us for one another. Here at ground zero, at the precise moment when the Holy Spirit takes out our hearts of stone, we are then given a new heart and new desires by God. These new desires are to know and love God more and more each day.
 
-But how is it that we are actually saved by God?  This is the question that the idea of Ordo Salutis or "The Order of Salvation" attempts to answer.
+But how does God save us? This is the question that the concept of Ordo Salutis, or "The Order of Salvation," attempts to answer.
 
-But one we start knowing a little of the Bible, the better question might be:
+But once we start knowing a little about the Bible, the better question might be:
 
-### What did God have to do in order to save His people to Himself?
+### What did God have to do to save His people to Himself?
 
-In order to answer this, we have to fully dive into the Scriptures to see what God has revealed about what salvation is.  We cannot rely on superstition, church history or simply what "feels good”.  We must seek out what God says about salvation.
+To answer this, we must thoroughly examine the Scriptures to understand what God has revealed about salvation. We cannot rely on superstition, church history, or simply what "feels good." We must seek out what God says about salvation.
 
-So in this series, we are going to attempt answer questions such as, "Does the Bible teach about God electing us to salvation?”, "Are we predestined by God?”, "What is free will of man?” and "Can a person truly be saved without the outward appearance of a new heart?”.
+So in this series, we are going to attempt to answer questions such as, "Does the Bible teach about God electing us to salvation?", "Are we predestined by God?" "What is the free will of man?" and "Can a person truly be saved without the outward appearance of a new heart?".
 
 So in this, we begin with what some theologians call "the golden chain of salvation" found in this passage:
 
->Romans 8:27-30 And he who searches hearts knows what is the mind of the Spirit, because the Spirit intercedes for the saints according to the will of God. And we know that for those who love God all things work together for good, for those who are called according to his purpose. For those whom he foreknew he also predestined to be conformed to the image of his Son, in order that he might be the firstborn among many brothers. **And those whom he predestined he also called, and those whom he called he also justified, and those whom he justified he also glorified**.
+>Romans 8:27-30 And he who searches hearts knows what is the mind of the Spirit because the Spirit intercedes for the saints according to the will of God. And we know that for those who love God, all things work together for good, for those who are called according to his purpose. For those whom he foreknew he also predestined to be conformed to the image of his Son, in order that he might be the firstborn among many brothers. **And those whom he predestined he also called, and those whom he called he also justified, and those whom he justified he also glorified**.
 
-In verse 30, Paul did not simply throw the words "predestined”, "called”, "justified” and "glorified” at us as though their order did not matter.  Paul was very careful in ordering those words in the way that to show what were the steps that God took in order to bring you and me all the way home back to him.
+In verse 30, Paul did not simply throw the words "predestined," "called," "justified," and "glorified" at us as though their order did not matter. Paul was cautious in ordering those words to show the steps that God took to bring you and me all the way home back to Him.
 
-God has not simply created Creation to wind up up like a grand cosmic clock, set it in motion and then let it run its course. God has not looked down the passages of time, seen where we have chosen him and proceeds to choose that timeline. God has not left it up to you or me to save ourselves.
+God has not simply created Creation to wind up like a grand cosmic clock, set it in motion, and then let it run its course. God has not looked down the passages of time, seen where we have chosen him, and proceeded to select that timeline. God has not left it up to you or me to save ourselves.
 
-What it is so difficult for people to get is that you and I are born weak, depraved, far from God and without divine help, you and I will die and fall under the wrath of Jesus Christ, God Almighty, Who was, and Is, and Is to Come.
+What it is so difficult for people to get is that you and I are born weak, depraved, and far from God, and without divine help, you and I will die and fall under the wrath of Jesus Christ, God Almighty, Who was, and Is, and Is to Come.
 
-Christ did not come to give us a better life than our unbelieving neighbors. Christ did not come so that our favorite politician can be elected as president. Christ did not come so that a good job, nice home, money in the bank, and good long lives.
+Christ did not come to give us a better life than our unbelieving neighbors. Christ did not come so that our favorite politician could be elected as president. Christ did not come so that we would have a good job, a lovely home, money in the bank, and long lives.
 
->John 10:10 (CSB) A thief comes only to steal and kill and destroy. I have come so that they may have life and have it in abundance.
+>John 10:10 (CSB): A thief comes only to steal and kill and destroy. I have come so that they may have life and have it in abundance.
 
->Luke 5:31–32 (CSB) Jesus replied to them, “It is not those who are healthy who need a doctor, but those who are sick. I have not come to call the righteous, but sinners to repentance.”
+>Luke 5:31–32 (CSB) Jesus replied to them, "It is not those who are healthy who need a doctor, but those who are sick. I have not come to call the righteous, but sinners to repentance."
 
->Luke 4:18–19 (CSB) The Spirit of the Lord is on me, because he has anointed me to preach good news to the poor. He has sent me to proclaim release to the captives and recovery of sight to the blind, to set free the oppressed, to proclaim the year of the Lord’s favor.
+>Luke 4:18–19 (CSB) The Spirit of the Lord is on me, because he has anointed me to preach good news to the poor. He has sent me to proclaim release to the captives and recovery of sight to the blind, to set free the oppressed, to proclaim the year of the Lord's favor.
 
 >John 3:16 (CSB) For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life.
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins."
 
 Christ came to save his people from their sins.
 

@@ -17,33 +17,33 @@
 
 ## The Devotion
 
-This in the perfection of God in his perfect word declaring his perfect glory.
+This is in the perfection of God in his perfect word, declaring his perfect glory.
 
-The word of God speaks perfectly to the four corners of the earth: that there is one Holy God and he is the creator of the heavens, the earth, and hell. And within those realms, he created all things--including mankind, male and female, the only beings created in his image. To that, we were created to reflect his glory. In essence, we were created to worship.
+The word of God speaks perfectly to the four corners of the earth: that there is one Holy God, and he is the creator of the heavens, the earth, and hell. And within those realms, he created all things--including mankind, male and female, the only beings made in his image. To that, we were created to reflect his glory. In essence, we were created to worship.
 
-But mankind has fallen--we have sinned against this one Holy God. But God, in his righteousness and just, did not come to destroy us and slay us because we were now dead in our trespasses and sins. Instead, he came to us and he preached to us that he will send a savior, born of the woman, and to Satan, the deceiver that has deceived us and caused us to sin, this savior will crush his head.
+But mankind has fallen--we have sinned against this one Holy God. But God, in his righteousness and just, did not come to destroy us and slay us because we were now dead in our trespasses and sins. Instead, he came to us, and he preached to us that he would send a savior, born of the woman, and to Satan, the deceiver that has deceived us and caused us to sin, this savior will crush his head.
 
 And continuously, God sent his prophets to continue to preach that this savior will come--believe and repent of your sins and turn your eyes upon God.
 
-What we did not know but we know truly is that he sent his only begotten Son. He is the Son of God who is truly God. And we call him Jesus because of his perfect life, action, and obedience to God's perfect law, and because of his death, Jesus has saved his people from their sins--flawlessly, perfectly, definitively, forever.
+What we did not know, but what we truly know, is that He sent His only begotten Son. He is the Son of God, who is truly God. We call him Jesus because of his perfect life, action, and obedience to God's perfect law, and because of his death, Jesus has saved his people from their sins--flawlessly, perfectly, and definitively forever.
 
-Jesus Christ was born, did live, did died but because he was altogether righteous, he did not stay dead. Because of the Holy Spirit of God who dwelled in Christ and was with Christ, God raised him from the dead in the three days.
+Jesus Christ was born, lived, and died, but because he was altogether righteous, he did not stay dead. Because of the Holy Spirit of God who dwelled in Christ and was with Christ, God raised him from the dead in the three days.
 
-To that, because Christ was finished, he ascended to be at the right hand of God the Father Almighty. Christ will one day come again to judge the living and the dead.
+That, because Christ finished his ministry, he ascended to be at the right hand of God the Father Almighty. And one day, Christ come again to judge the living and the dead.
 
-To that, his people, you and me, believers in the Lord Jesus Christ, have been saved and cleansed from our sins forever, we have all been given new hearts forever. Our minds have been renewed forever. Our eyes opened. Our ears hear. Our tongues un-dumbfounded. Forever and ever. Because we have the same Spirit dwelling in us that raised Christ from the dead and has given us life. We are born again! We have the Christ. The Father has adopted us and made his in home in us!
+To that, his people, you and me, believers in the Lord Jesus Christ, have been saved and cleansed from our sins forever; we have all been given new hearts forever. Our minds have been renewed forever. Our eyes opened. Our ears hear. Our tongues un-dumbfounded. Forever and ever. Because we have the same Spirit dwelling in us that raised Christ from the dead and has given us life, we are born again! We have the Christ. The Father has adopted us and made his in-home in us!
 
-To that end, since we have been chosen, we are called to life, we are justified in his sight and because God is perfect, we are glorified to him forever.
+To that end, since we have been chosen, we are called to live; we are justified in His sight, and because God is perfect, we are glorified by Him forever.
 
-And we, his people? We are the holy and royal priesthood--the holy catholic and apostolic, hellgate breaking church of the Lord Jesus Christ. We are his Bride and he is our Bridegroom. We are his body and he is our head. 
+And we, his people? We are the holy and royal priesthood — the holy, catholic, and apostolic church of the Lord Jesus Christ, breaking the gates of hell. We are His Bride, and He is our Bridegroom. We are His body, and He is our head. 
 
-We are his people and he is our God.
+We are his people, and he is our God.
 
 Forever.
 
 And his perfect word perfectly declares this:
 
-Believe on the Lord Jesus Christ and you shall be saved.
+Believe in the Lord Jesus Christ, and you shall be saved!
 
 >John 3:14–17 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life. For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
 

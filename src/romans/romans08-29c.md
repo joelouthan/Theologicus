@@ -91,7 +91,7 @@ And upon that declarative state, Christ descends from his rightful throne, lifts
 
 NO CONDEMNATION! Come and enter in the joy of your master.
 
-It is then and only then that I will have a chance to hold my lovely Saviour’s face, look deeply into his eyes and kiss him a thousand kisses all because of what He has done for me.
+It is then and only then that I will have a chance to hold my lovely Savior’s face, look deeply into his eyes and kiss him a thousand kisses all because of what He has done for me.
 
 [^1]: Luke 18:13
 [^2]: 1 Corinthians 2:12
