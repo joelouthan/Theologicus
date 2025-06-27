@@ -1,4 +1,5 @@
 {
+<<<<<<< HEAD
 	"folders": [
 		{
 			"path": "."
@@ -25,5 +26,8 @@
       "titleBar.inactiveForeground": "#e7e7e799"
     },
     "peacock.color": "#dd0531"
+=======
+  "settings": {
+>>>>>>> 6751f03a (Add initial mark.code-workspace configuration file)
   }
 }
