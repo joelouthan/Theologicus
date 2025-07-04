@@ -49,6 +49,12 @@ Believe in the Lord Jesus Christ, and you shall be saved!
 
 ## The Scriptures
 
+>Deuteronomy 4:2 You must not add anything to what I command you or take anything away from it, so that you may keep the commands of the LORD your God I am giving you.
+
+>Psalm 25:11 LORD, for the sake of your name, forgive my iniquity, for it is immense.
+
+>Psalm 16:1 Protect me, God, for I take refuge in you.
+
 >Psalm 19 (CSB)  
 ><sup></sup> For the choir director. A psalm of David. 
 >
@@ -79,6 +85,8 @@ Believe in the Lord Jesus Christ, and you shall be saved!
 ><sup>13</sup> Moreover, keep your servant from willful sins; do not let them rule me. Then I will be blameless and cleansed from blatant rebellion. 
 >
 ><sup>14</sup> May the words of my mouth and the meditation of my heart be acceptable to you, LORD, my rock and my Redeemer.
+
+>Psalm 57:11 God, be exalted above the heavens; let your glory be over the whole earth.
 
 >Psalm 119 (CSB)  
 ><sup>1</sup> How happy are those whose way is blameless, who walk according to the LORD’s instruction! 
@@ -432,3 +440,44 @@ Believe in the Lord Jesus Christ, and you shall be saved!
 ><sup>175</sup> Let me live, and I will praise you; may your judgments help me. 
 >
 ><sup>176</sup> I wander like a lost sheep; seek your servant, for I do not forget your commands.
+
+>Psalm 143:10–12 Teach me to do your will, for you are my God. May your gracious Spirit lead me on level ground. For your name’s sake, LORD, let me live. In your righteousness deliver me from trouble, and in your faithful love destroy my enemies. Wipe out all those who attack me, for I am your servant.
+
+>Proverbs 30:8 Keep falsehood and deceitful words far from me. Give me neither poverty nor wealth; feed me with the food I need.
+
+>Isaiah 63:16 Yet you are our Father, even though Abraham does not know us and Israel doesn’t recognize us. You, LORD, are our Father; your name is Our Redeemer from Ancient Times.
+
+>Matthew 5:18 For truly I tell you, until heaven and earth pass away, not the smallest letter or one stroke of a letter will pass away from the law until all things are accomplished.
+
+>Matthew 5:21–48 “You have heard that it was said to our ancestors, Do not murder, and whoever murders will be subject to judgment. But I tell you, everyone who is angry with his brother or sister will be subject to judgment. Whoever insults his brother or sister, will be subject to the court. Whoever says, ‘You fool!’ will be subject to hellfire. So if you are offering your gift on the altar, and there you remember that your brother or sister has something against you, leave your gift there in front of the altar. First go and be reconciled with your brother or sister, and then come and offer your gift. Reach a settlement quickly with your adversary while you’re on the way with him to the court, or your adversary will hand you over to the judge, and the judge to the officer, and you will be thrown into prison. Truly I tell you, you will never get out of there until you have paid the last penny. “You have heard that it was said, Do not commit adultery. But I tell you, everyone who looks at a woman lustfully has already committed adultery with her in his heart. If your right eye causes you to sin, gouge it out and throw it away. For it is better that you lose one of the parts of your body than for your whole body to be thrown into hell. And if your right hand causes you to sin, cut it off and throw it away. For it is better that you lose one of the parts of your body than for your whole body to go into hell. “It was also said, Whoever divorces his wife must give her a written notice of divorce. But I tell you, everyone who divorces his wife, except in a case of sexual immorality, causes her to commit adultery. And whoever marries a divorced woman commits adultery. “Again, you have heard that it was said to our ancestors, You must not break your oath, but you must keep your oaths to the Lord. But I tell you, don’t take an oath at all: either by heaven, because it is God’s throne; or by the earth, because it is his footstool; or by Jerusalem, because it is the city of the great King. Do not swear by your head, because you cannot make a single hair white or black. But let your ‘yes’ mean ‘yes,’ and your ‘no’ mean ‘no.’ Anything more than this is from the evil one. “You have heard that it was said, An eye for an eye and a tooth for a tooth. But I tell you, don’t resist an evildoer. On the contrary, if anyone slaps you on your right cheek, turn the other to him also. As for the one who wants to sue you and take away your shirt, let him have your coat as well. And if anyone forces you to go one mile, go with him two. Give to the one who asks you, and don’t turn away from the one who wants to borrow from you. “You have heard that it was said, Love your neighbor and hate your enemy. But I tell you, love your enemies and pray for those who persecute you, so that you may be children of your Father in heaven. For he causes his sun to rise on the evil and the good, and sends rain on the righteous and the unrighteous. For if you love those who love you, what reward will you have? Don’t even the tax collectors do the same? And if you greet only your brothers and sisters, what are you doing out of the ordinary? Don’t even the Gentiles do the same? Be perfect, therefore, as your heavenly Father is perfect.
+
+>Matthew 7:12 Therefore, whatever you want others to do for you, do also the same for them, for this is the Law and the Prophets.
+
+>Matthew 22:37–39 He said to him, “Love the Lord your God with all your heart, with all your soul, and with all your mind. This is the greatest and most important command. The second is like it: Love your neighbor as yourself.
+
+>Luke 16:17 But it is easier for heaven and earth to pass away than for one stroke of a letter in the law to drop out.
+
+>John 13:34 “I give you a new command: Love one another. Just as I have loved you, you are also to love one another.
+
+>Acts 26:22 To this very day, I have had help from God, and I stand and testify to both small and great, saying nothing other than what the prophets and Moses said would take place—
+
+>Romans 2:12–16 For all who sin without the law will also perish without the law, and all who sin under the law will be judged by the law. For the hearers of the law are not righteous before God, but the doers of the law will be justified. So, when Gentiles, who do not by nature have the law, do what the law demands, they are a law to themselves even though they do not have the law. They show that the work of the law is written on their hearts. Their consciences confirm this. Their competing thoughts either accuse or even excuse them on the day when God judges what people have kept secret,
+according to my gospel through Christ Jesus.
+
+>Romans 7:7 What should we say then? Is the law sin? Absolutely not! But, I would not have known sin if it were not for the law. For example, I would not have known what it is to covet if the law had not said, Do not covet.
+
+>Romans 7:12 So then, the law is holy, and the commandment is holy and just and good.
+
+>Romans 8:5 For those who live according to the flesh have their minds set on the things of the flesh, but those who live according to the Spirit have their minds set on the things of the Spirit.
+
+>Galatians 5:16 I say, then, walk by the Spirit and you will certainly not carry out the desire of the flesh.
+
+>1 Timothy 1:8 But we know that the law is good, provided one uses it legitimately.
+
+>Hebrews 4:12 For the word of God is living and effective and sharper than any double-edged sword, penetrating as far as the separation of soul and spirit, joints and marrow. It is able to judge the thoughts and intentions of the heart.
+
+>Hebrews 8:10 For this is the covenant that I will make with the house of Israel after those days, says the Lord: I will put my laws into their minds and write them on their hearts. I will be their God, and they will be my people.
+
+>James 2:10 For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
+
+>1 John 2:7 Dear friends, I am not writing you a new command but an old command that you have had from the beginning. The old command is the word you have heard.
