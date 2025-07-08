@@ -8,12 +8,14 @@
 
 Once upon a time, my kids were curious about the books in my office and asked, "Papa, what are all these books about?" I told them, "Mostly, they all say the same thing--that Jesus loves me, this I know, for the Bible tells me so."
 
-Theologicus is my humble attempt to be a part of that same set of books.
+I once wrote that this site was "my humble attempt to be a part of that same set of books." Now, I care less about my work being published. Now I am just focusing on writing about Christ and him crucified.
+
+What I have grown to realize: **[Theologicus](https://theologic.us/) is my personal confession of faith.**
 
 >No pen, no words, no image can express to you the loveliness of my only, only Lord Jesus.  
 >\- Samuel Rutherford
 
-I know that is absolutely true. I don't have enough time left to write all the words. Still, I must try. I must spend all my breaths and life writing all my words expressing Christ's love and beauty because I love him so much. He is my Lord and my God. I am my Beloved's, and he is mine forever.
+This site will always be my confession of faith in the only begotten Son of God. I don't have enough time left on this earth to write all the words. Still, I must try to write all the words. I must spend all my breaths and life writing all my words expressing Christ's love and beauty because I love him so much. He is my Lord and my God. I am my Beloved's, and he is mine forever.
 
 Suppose the Bible is a love letter from God to me. In that case, then Theologicus is my love letter right back to the Christ who loved me and gave himself up for me (Galatians 2:20). This is my little way of telling my Christ, "When I finally see you, I will hold your face and kiss your face with a thousand kisses because you are so beautiful to me, and you have loved me the best."
 
