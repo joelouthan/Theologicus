@@ -21,5 +21,6 @@
     "titleBar.inactiveBackground": "#0f141a99",
     "titleBar.inactiveForeground": "#e7e7e799"
   },
-  "peacock.color": "#0f141a"
+  "peacock.color": "#0f141a",
+  "editor.wordWrap": "wordWrapColumn"
 }
