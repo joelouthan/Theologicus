@@ -11,6 +11,49 @@
 
 ## The Devotion
 
+This is the power of God. That God is the only being in the universe who wants to save us, can save us, has the power to save us, and actually saves us.
+
+For the sinner, the wretched, the sick, and the broken-hearted, God is the only one who can save us. He is the only one. Mankind tries its very best to save itself. It can help a little but it does not solve the root issue. Namely, the eternal hole in our hearts. For:
+
+> Eccelesiastes 3:11 He has made everything appropriate in its time. He has also put eternity in their hearts, but no one can discover the work God has done from beginning to end.
+
+That eternity in our hearts is longing for anything to worship because we are made to worship. But what do we turn to instead? Work, marriages, children, church, religion, money, achievements, new car, new toys, more likes, more followers--what is the end of that? You and I keep seeking out more and more temporal things to fill the eternal hole in our hearts. That is idolatry and it doesn't make sense. Yet, we keep trying.
+
+This is the essence of idolatry:
+
+>Matthew 12:43-45 “When an unclean spirit comes out of a person, it roams through waterless places looking for rest but doesn’t find any. Then it says, ‘I’ll go back to my house that I came from.’ Returning, it finds the house vacant, swept, and put in order. Then it goes and brings with it seven other spirits more evil than itself, and they enter and settle down there. As a result, that person’s last condition is worse than the first. That’s how it will also be with this evil generation.”
+
+What makes the most sense? We need an eternal and infinite God to fill that hole and make his home in us.
+
+Does God want to save us? Yes!
+
+>1 Timothy 2:1–4 First of all, then, I urge that petitions, prayers, intercessions, and thanksgivings be made for everyone, for kings and all those who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity. This is good, and it pleases God our Savior, who wants everyone to be saved and to come to the knowledge of the truth.
+
+Can God save us? Yes!
+
+>1 Timothy 2:5–6 For there is one God and one mediator between God and mankind, the man Christ Jesus, who gave himself as a ransom for all, a testimony at the proper time.
+
+Does God save his people from their sins? Yes!
+
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+
+Does God have the power to save us? Yes!
+
+>Romans 1:15–17 So I am eager to preach the gospel to you also who are in Rome. For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek. For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
+
+How do you know that you are his people? That you are the one he came to save?
+
+>John 3:14–15 “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
+
+Do you look upon the Christ and believe in him? That means you have been born again.
+
+>1 John 5:1 Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father also loves the one born of him.
+
+You are infinitely saved by the Infinite God who has the infinity power to save you from your sins--all of your sins, past, present, and future.
+
+The power to create. The power to destroy. The power raise the dead. The power to heal. The power to save.
+
+That is the Almighty God.
 ## The Scriptures
 
 >Genesis 3:15 I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
