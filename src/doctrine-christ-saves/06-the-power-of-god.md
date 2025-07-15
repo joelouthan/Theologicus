@@ -6,54 +6,58 @@
 
 ## The Text
 
->Romans 1:15–17 So I am eager to preach the gospel to you also who are in Rome. For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek. For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
-
+>Romans 6:6–11 For we know that our old self was crucified with him so that the body ruled by sin might be rendered powerless so that we may no longer be enslaved to sin, since a person who has died is freed from sin. Now if we died with Christ, we believe that we will also live with him, because **we know that Christ, having been raised from the dead, will not die again. Death no longer rules over him. For the death he died, he died to sin once for all time; but the life he lives, he lives to God. So, you too consider yourselves dead to sin and alive to God in Christ Jesus.**
 
 ## The Devotion
 
-This is the power of God. That God is the only being in the universe who wants to save us, can save us, has the power to save us, and actually saves us.
+This is the power of God in salvation--the gospel of Jesus Christ. He has called us to eternal life. But how can this be since we are sinners--dead in our trespasses and sins. (Ephesians 2:1) How can dead men look upon the risen Christ and be saved into eternal life? (John 3:14-15) How can the dead look into their dead, sinful hearts and twisted minds and choose to follow the Christ?
 
-For the sinner, the wretched, the sick, and the broken-hearted, God is the only one who can save us. He is the only one. Mankind tries its very best to save itself. It can help a little but it does not solve the root issue. Namely, the eternal hole in our hearts. For:
+> John 11:32–37 As soon as Mary came to where Jesus was and saw him, she fell at his feet and told him, “Lord, if you had been here, my brother wouldn’t have died!” When Jesus saw her crying, and the Jews who had come with her crying, he was deeply moved in his spirit and troubled. “Where have you put him?” he asked. “Lord,” they told him, “come and see.” Jesus wept. So the Jews said, “See how he loved him!” But some of them said, “Couldn’t he who opened the blind man’s eyes also have kept this man from dying?”*  
 
-> Eccelesiastes 3:11 He has made everything appropriate in its time. He has also put eternity in their hearts, but no one can discover the work God has done from beginning to end.
+This is our Christ putting on the fullest display of what happens to dead sinners when they are dead in their trespasses and sins and cannot make themselves alive again. They cannot tilt their dead heads and look up with their dead eyes and see the risen Christ. No! They cannot stir up within themselves with their dead hearts and wicked desires, turn and follow Jesus.
 
-That eternity in our hearts is longing for anything to worship because we are made to worship. But what do we turn to instead? Work, marriages, children, church, religion, money, achievements, new car, new toys, more likes, more followers--what is the end of that? You and I keep seeking out more and more temporal things to fill the eternal hole in our hearts. That is idolatry and it doesn't make sense. Yet, we keep trying.
+He has stepped from the infinite into the finite, heaven into earth, from glory into humility--condescending to our level, taking on flesh. He has come to give us his Spirit and the Father's heart. He has come to renew our minds, open our eyes, turn on our ears, awaken our mouths, and give us life!
 
-This is the essence of idolatry:
+He has come to set the captives free!
 
->Matthew 12:43-45 “When an unclean spirit comes out of a person, it roams through waterless places looking for rest but doesn’t find any. Then it says, ‘I’ll go back to my house that I came from.’ Returning, it finds the house vacant, swept, and put in order. Then it goes and brings with it seven other spirits more evil than itself, and they enter and settle down there. As a result, that person’s last condition is worse than the first. That’s how it will also be with this evil generation.”
+He has come to heal the sick!
 
-What makes the most sense? We need an eternal and infinite God to fill that hole and make his home in us.
+He has come to raise the dead!
 
-Does God want to save us? Yes!
+Jesus came into this world to save sinners!
 
->1 Timothy 2:1–4 First of all, then, I urge that petitions, prayers, intercessions, and thanksgivings be made for everyone, for kings and all those who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity. This is good, and it pleases God our Savior, who wants everyone to be saved and to come to the knowledge of the truth.
+> John 11:38–39 Then Jesus, deeply moved again, came to the tomb. It was a cave, and a stone was lying against it. “Remove the stone,” Jesus said. Martha, the dead man’s sister, told him, “Lord, there is already a stench because he has been dead four days.”  
 
-Can God save us? Yes!
+W were born sinners as the children of God. Four days? Try since Genesis 3. Our original parents sinned against the holy God and they were cast out. But look at this wonderful calling: "I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel." (Genesis 3:15) Before God cursed Adam and Eve and the earth, he called to them to believe in the Almighty God. And the curse of sin and death of Adam doesn't even belong to Adam! How do I know? Before they were exiled from the garden, Adam and Eve believed the gospel that was called to bring them from death to life.
 
->1 Timothy 2:5–6 For there is one God and one mediator between God and mankind, the man Christ Jesus, who gave himself as a ransom for all, a testimony at the proper time.
+> Genesis 3:21 The Lord God made clothing from skins for the man and his wife, and he clothed them.  
 
-Does God save his people from their sins? Yes!
+This is the gospel, and stop me when you heard this before: God would offer the sacrifice of his only begotten Son. Because of the perfect obedience and the death of his Son, he clothes us with the righteousness of his Son.
 
->Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+God promised the snake crusher and the death destroyer. Let us see if he delivers.
 
-Does God have the power to save us? Yes!
+> John 11:40–42 Jesus said to her, “Didn’t I tell you that if you believed you would see the glory of God?” So they removed the stone. Then Jesus raised his eyes and said, “Father, I thank you that you heard me. I know that you always hear me, but because of the crowd standing here I said this, so that they may believe you sent me.”  
 
->Romans 1:15–17 So I am eager to preach the gospel to you also who are in Rome. For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek. For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
+Jesus, God who took on flesh, dwelled with us, condescended to us, and became us, and walked this earth in perfect obedience to the law of God, was always in right-standing and perfect love and affection with his wonderful Father. And the Christ, being the only begotten Son, was not going to do anything he had not seen his own Father do, turns his eyes upon the Almighty God and gives thanks for what God is about to do.
 
-How do you know that you are his people? That you are the one he came to save?
+The Christ--as human as you and me. Experiences the dreaded, scorching heat of the day. Fights off the sickness-inducing waves of the sea when he goes commercial fishing with his buds. Hungered. Thirst. Sleepy. Tired. Lonely. Homeless. Sad. Angry. Frustrated. Tender. Gentle. Grieved.
 
->John 3:14–15 “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
+And all his Godliness and his humanity stood right in front of death. Chances are, if you stare down Death, Death is going to win. Yet, in this instance, Death is staring down the Son of Man. "What would Christ dare to do?" Death thinks as he perches over his most recent trophy--Christ's best friend's dead, rotting corpse. What does the Christ think he is going to do now?
 
-Do you look upon the Christ and believe in him? That means you have been born again.
+Christ, whose face still hot from weeping, turns his eyes down from the heavens and stares straight through Death. For to defeat Death here, Christ is so Almighty that he doesn't even have to acknowledge Death. He calls with a thunderous voice...
 
->1 John 5:1 Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father also loves the one born of him.
+> "LAZARUS, COME FORTH!"  
 
-You are infinitely saved by the Infinite God who has the infinity power to save you from your sins--all of your sins, past, present, and future.
+What do you think happens when you are born again? What do you think happened when you arose from death into life? What do you think happened when you first believe?
 
-The power to create. The power to destroy. The power raise the dead. The power to heal. The power to save.
+You were called by the Almighty Triune God himself.
 
-That is the Almighty God.
+CHILD OF GOD, BELOVED ONE OF GOD, COME FORTH!
+
+For all the advances and the mere power that mankind welds, they have no power to stop death. Yet, our Christ, fully God and fully man, calls forth sinners from the dead and makes them alive to God forever and ever.
+
+This is the power of God in salvation--the gospel of the Lord Jesus Christ our Savior.
+
 ## The Scriptures
 
 >Genesis 3:15 I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
@@ -244,6 +248,8 @@ That is the Almighty God.
 >Luke 1:52 he has toppled the mighty from their thrones and exalted the lowly. 
 
 >Acts 13:17 The God of this people Israel chose our ancestors, made the people prosper during their stay in the land of Egypt, and led them out of it with a mighty arm.
+
+>Romans 1:15–17 So I am eager to preach the gospel to you also who are in Rome. For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek. For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
 
 >Ephesians 1:19 and what is the immeasurable greatness of his power toward us who believe, according to the mighty working of his strength. 
 
