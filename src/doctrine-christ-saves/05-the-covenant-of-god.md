@@ -352,16 +352,56 @@ Praise his holy name forevermore!
 >James 1:1–4 (CSB) James, a servant of God and of the Lord Jesus Christ: To the twelve tribes dispersed abroad. Greetings. Consider it a great joy, my brothers and sisters, whenever you experience various trials, because you know that the testing of your faith produces endurance. And let endurance have its full effect, so that you may be mature and complete, lacking nothing.
 
 >James 2:5 (CSB) Listen, my dear brothers and sisters: Didn’t God choose the poor in this world to be rich in faith and heirs of the kingdom that he has promised to those who love him?
-
->1 Peter 1:3–5 (CSB) Blessed be the God and Father of our Lord Jesus Christ. Because of his great mercy he has given us new birth into a living hope through the resurrection of Jesus Christ from the dead and into an inheritance that is imperishable, undefiled, and unfading, kept in heaven for you. You are being guarded by God’s power through faith for a salvation that is ready to be revealed in the last time.
-
->1 Peter 1:6–9 (CSB) You rejoice in this, even though now for a short time, if necessary, you suffer grief in various trials so that the proven character of your faith—more valuable than gold which, though perishable, is refined by fire—may result in praise, glory, and honor at the revelation of Jesus Christ. Though you have not seen him, you love him; though not seeing him now, you believe in him, and you rejoice with inexpressible and glorious joy, because you are receiving the goal of your faith, the salvation of your souls.
-
->1 Peter 1:13–16 (CSB) Therefore, with your minds ready for action, be sober-minded and set your hope completely on the grace to be brought to you at the revelation of Jesus Christ. As obedient children, do not be conformed to the desires of your former ignorance. But as the one who called you is holy, you also are to be holy in all your conduct; for it is written, Be holy, because I am holy.
-
->1 Peter 1:17–21 (CSB) If you appeal to the Father who judges impartially according to each one’s work, you are to conduct yourselves in reverence during your time living as strangers. For you know that you were redeemed from your empty way of life inherited from your ancestors, not with perishable things like silver or gold, but with the precious blood of Christ, like that of an unblemished and spotless lamb. He was foreknown before the foundation of the world but was revealed in these last times for you. Through him you believe in God, who raised him from the dead and gave him glory, so that your faith and hope are in God.
-
->1 Peter 1:22–25 (CSB) Since you have purified yourselves by your obedience to the truth, so that you show sincere brotherly love for each other, from a pure heart love one another constantly, because you have been born again—not of perishable seed but of imperishable—through the living and enduring word of God. For All flesh is like grass, and all its glory like a flower of the grass. The grass withers, and the flower falls, but the word of the Lord endures forever. And this word is the gospel that was proclaimed to you.
+>1 Peter 1 (CSB)  
+><sup>1</sup> Peter, an apostle of Jesus Christ: To those chosen, living as exiles dispersed abroad in Pontus, Galatia, Cappadocia, Asia, and Bithynia, chosen 
+>
+><sup>2</sup> according to the foreknowledge of God the Father, through the sanctifying work of the Spirit, to be obedient and to be sprinkled with the blood of Jesus Christ. May grace and peace be multiplied to you. 
+>
+><sup>3</sup> Blessed be the God and Father of our Lord Jesus Christ. Because of his great mercy he has given us new birth into a living hope through the resurrection of Jesus Christ from the dead 
+>
+><sup>4</sup> and into an inheritance that is imperishable, undefiled, and unfading, kept in heaven for you. 
+>
+><sup>5</sup> You are being guarded by God’s power through faith for a salvation that is ready to be revealed in the last time. 
+>
+><sup>6</sup> You rejoice in this, even though now for a short time, if necessary, you suffer grief in various trials 
+>
+><sup>7</sup> so that the proven character of your faith—more valuable than gold which, though perishable, is refined by fire—may result in praise, glory, and honor at the revelation of Jesus Christ. 
+>
+><sup>8</sup> Though you have not seen him, you love him; though not seeing him now, you believe in him, and you rejoice with inexpressible and glorious joy, 
+>
+><sup>9</sup> because you are receiving the goal of your faith, the salvation of your souls. 
+>
+><sup>10</sup> Concerning this salvation, the prophets, who prophesied about the grace that would come to you, searched and carefully investigated. 
+>
+><sup>11</sup> They inquired into what time or what circumstances the Spirit of Christ within them was indicating when he testified in advance to the sufferings of Christ and the glories that would follow. 
+>
+><sup>12</sup> It was revealed to them that they were not serving themselves but you. These things have now been announced to you through those who preached the gospel to you by the Holy Spirit sent from heaven—angels long to catch a glimpse of these things. 
+>
+><sup>13</sup> Therefore, with your minds ready for action, be sober-minded and set your hope completely on the grace to be brought to you at the revelation of Jesus Christ. 
+>
+><sup>14</sup> As obedient children, do not be conformed to the desires of your former ignorance. 
+>
+><sup>15</sup> But as the one who called you is holy, you also are to be holy in all your conduct; 
+>
+><sup>16</sup> for it is written, Be holy, because I am holy. 
+>
+><sup>17</sup> If you appeal to the Father who judges impartially according to each one’s work, you are to conduct yourselves in reverence during your time living as strangers. 
+>
+><sup>18</sup> For you know that you were redeemed from your empty way of life inherited from your ancestors, not with perishable things like silver or gold, 
+>
+><sup>19</sup> but with the precious blood of Christ, like that of an unblemished and spotless lamb. 
+>
+><sup>20</sup> He was foreknown before the foundation of the world but was revealed in these last times for you. 
+>
+><sup>21</sup> Through him you believe in God, who raised him from the dead and gave him glory, so that your faith and hope are in God. 
+>
+><sup>22</sup> Since you have purified yourselves by your obedience to the truth, so that you show sincere brotherly love for each other, from a pure heart love one another constantly, 
+>
+><sup>23</sup> because you have been born again—not of perishable seed but of imperishable—through the living and enduring word of God. 
+>
+><sup>24</sup> For All flesh is like grass, and all its glory like a flower of the grass. The grass withers, and the flower falls, 
+>
+><sup>25</sup> but the word of the Lord endures forever. And this word is the gospel that was proclaimed to you.
 
 >1 Peter 2:4–10 (CSB) As you come to him, a living stone—rejected by people but chosen and honored by God—you yourselves, as living stones, a spiritual house, are being built to be a holy priesthood to offer spiritual sacrifices acceptable to God through Jesus Christ. For it stands in Scripture: See, I lay a stone in Zion, a chosen and honored cornerstone, and the one who believes in him will never be put to shame. So honor will come to you who believe; but for the unbelieving, The stone that the builders rejected— this one has become the cornerstone, and A stone to stumble over, and a rock to trip over. They stumble because they disobey the word; they were destined for this. But you are a chosen race, a royal priesthood, a holy nation, a people for his possession, so that you may proclaim the praises of the one who called you out of darkness into his marvelous light. Once you were not a people, but now you are God’s people; you had not received mercy, but now you have received mercy.
 
