@@ -2,110 +2,165 @@
 
 <p style="font-weight: bold; font-size: 2em; margin-bottom: 0px "><a class="header" href="#perfect-work-of-Christ">The Perfect Work of Christ</a></p>
 
-<p style="font-style: italic; font-size: 1.6rem; margin-top: 0px">The Supremacy of Christ</p>
+<p style="font-style: italic; font-size: 1.6rem; margin-top: 0px">We Are Justified</p>
 
 ## The Text
 
->Psalm 103 (CSB)  
-><sup></sup> Of David. 
->
-><sup>1</sup> My soul, bless the LORD, and all that is within me, bless his holy name. 
->
-><sup>2</sup> My soul, bless the LORD, and do not forget all his benefits. 
->
-><sup>3</sup> He forgives all your iniquity; he heals all your diseases. 
->
-><sup>4</sup> He redeems your life from the Pit; he crowns you with faithful love and compassion. 
->
-><sup>5</sup> He satisfies you with good things; your youth is renewed like the eagle. 
->
-><sup>6</sup> The LORD executes acts of righteousness and justice for all the oppressed. 
->
-><sup>7</sup> He revealed his ways to Moses, his deeds to the people of Israel. 
->
-><sup>8</sup> The LORD is compassionate and gracious, slow to anger and abounding in faithful love. 
->
-><sup>9</sup> He will not always accuse us or be angry forever. 
->
-><sup>10</sup> He has not dealt with us as our sins deserve or repaid us according to our iniquities. 
->
-><sup>11</sup> For as high as the heavens are above the earth, so great is his faithful love toward those who fear him. 
->
-><sup>12</sup> As far as the east is from the west, so far has he removed our transgressions from us. 
->
-><sup>13</sup> As a father has compassion on his children, so the LORD has compassion on those who fear him. 
->
-><sup>14</sup> For he knows what we are made of, remembering that we are dust. 
->
-><sup>15</sup> As for man, his days are like grass— he blooms like a flower of the field; 
->
-><sup>16</sup> when the wind passes over it, it vanishes, and its place is no longer known. 
->
-><sup>17</sup> But from eternity to eternity the LORD’s faithful love is toward those who fear him, and his righteousness toward the grandchildren 
->
-><sup>18</sup> of those who keep his covenant, who remember to observe his precepts. 
->
-><sup>19</sup> The LORD has established his throne in heaven, and his kingdom rules over all. 
->
-><sup>20</sup> Bless the LORD, all his angels of great strength, who do his word, obedient to his command. 
->
-><sup>21</sup> Bless the LORD, all his armies, his servants who do his will. 
->
-><sup>22</sup> Bless the LORD, all his works in all the places where he rules. My soul, bless the LORD!
+>Titus 3:3–7 For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior so that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
 ## The Devotion
 
-This is the Almighty Triune God whom has set his loving affections upon you before the creation of heaven and earth. God will never stop loving you because he never started loving you.[^vos]
+Many people have argued that the God of the Old Testament and the God of the New Testament are two completely different entities. 
 
->Jeremiah 31:3 the LORD appeared to him from far away. I have loved you with an everlasting love; therefore, I have continued to extend faithful love to you.*
+Have you heard this argument?
 
-He is the everlasting to everlasting God who loves from everlasting to everlasting. For his people, for the ones he has always loved, he makes a holy and blessed covenant: to send his only begotten Son, Jesus Christ, God in the flesh, to live and die for his people, whom he has always loved, and bring them all the way home- if only by the Holy Spirit.
+- Why was God so angry? 
+- Why is Jesus so loving and kind? 
+- Was God in the Old Testament the Father, and then his Son took over in the New Testament? 
+- I don’t understand a god that would punish people. 
+- I can only understand a god that loves.
 
-And this is the Christ, the Worthy Lamb Who Was Slain, the blessed sacrifice, whose life, death, and blood cleanse you perfectly from all unrighteousness and sin. God saw you not in your goodness, not in your choosing him, not in your repeating the sinner's prayer, but in fact, he saw you in sin and death--a treasonous rebel! He did not pronounce death for you but life. You had to be saved from your sins. You must be born again. But he did not merely say the proclamation. He backed it up with action. He alone came to save us. He alone executed the grand plan of salvation. From Genesis to Revelation, it would be all him: creating us, even when  we sinned, he preaches good news that he will make all things right with him.
+Interestingly, the Holy Spirit would kill a husband and his wife for lying to God about selling land and the giving of proceeds from that sale.
 
-The Christ was sent to take on flesh--to be born of the Virgin Mary. He grew like any other person — in wisdom, understanding, and stature. But unlike everybody else, he was perfect. Not super good. Not talented. Not never got in trouble. No! He obeyed the holy law of God perfectly and completely. The first Adam--our original father--failed. This second Adam did not fail. And if you think he was just a super-legalistic Pharisee who was good and white-knuckling his way through 33 years of his life, this is where it becomes perfect: he did it with complete joyful communion with the Father.
+It is even more interesting to note that the Apostle John wrote in his Gospel in chapter 3:
 
-He was the only human who did not deserve death.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
-He was the only human who died a perfect man.
+ Did not finish that statement without further claiming and clarifying:
 
-His blood was shed to cleanse you from your sins.
+>John 3:36 The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 
-That work, the blood sacrifice of the Lamb, was perfect. He perfectly cleansed you and me from our sins. Once and for all.
+So, quite simply, by seeing the wrath of God in both Testaments, we know that God is eternally God past, present, and future.
 
-And here is the good news: to lest you worry and doubt, dear Christian, that he covered your sins when you were born again. But you have sinned. You and I have sinned since we been set free. Why am I sinning more? I confess! I repent! But I keep doing the things I don't want to do.
+But what about His love, mercy, and grace? What about His Gospel, which Paul utterly declares to be "… the power of God in salvation for those who believe, to the Jew first and also the Greek," to which he was not ashamed of? (Romans 1:16-17)
 
-Dear child, don't you see? The cross of Christ was over 2000 years ago. All of your sins since the cross have always been *future* sins.
+To try to speak of God’s grace upon constant grace, His daily renewed mercies, and His steadfast love throughout the Bible, I believe we have to also look at his righteousness throughout the Bible.
 
-Christ has grace for you when he saved you. Christ has grace and forgiveness for all of your life. Christ has rescued you. Christ has you covered perfectly. Christ is in you. Christ is with you. Christ will bring you all the way home.
+But what is righteousness? Webster defines it as "the quality of being morally right or justifiable.” When God defines it, he takes it to that next proverbial level: "To stand upright in the presence of God.” That is to say: to be without sin, to be perfect.
 
+Here’s the reality: we don’t know a time or place ever in our lives or in our souls that was without the effects and consequences of sin. We cannot fully comprehend what it truly means to be perfect. 
+
+Can we? Even saying something like "That dress is perfect!” or "This gift is so perfect” really doesn’t mean the same thing.
+
+And yet, the Creator God of the universe requires us to be perfect, never to perish, and more so than that, to be with Him forever. To be with God now and forever requires you to be free from sin, never have known sin, committed any sin, or failed to do the thing you were supposed to do.
+
+God requires you to be perfect. And in my experience, when people realize that, there are usually three reactions.
+
+One, hubris. "Well, I guess I'd better roll up my sleeves and get to work. I know I can do this if I maintain perfect control of myself, but more so, if I can also control those people around me and the world around me. If everyone acts right, I can be right and my life will be perfect.”
+
+Two, despair. "Oh my God! I cannot possibly obey God! What can I even do?”
+
+Three, apathy. "Why even bother? This impossible. Screw God, his people, and his made-up laws. They are not real and made up anyway.”
+
+And all three lead not to joy and pleasures but to destruction and death.
+
+That monster, Satan, came to kill, steal, and destroy. And Satan successfully came and did that. Think about this: Adam and Eve had it all. Not because they had all their needs met, but even more, they had it all because they had God. But in the original parents’ fatal mistake, God doesn’t respond with instant judgment. Instead, God lovingly and calmly comes into our world, evident by simply strolling through the coolness of the garden, looking for His two lost children.
+
+God calls out, "Adam, where are you? Why are you wearing those ridiculous things? Who said you were naked?”
+
+In other words, "What’s wrong? Tell me, Son. Tell me, daughter. What is wrong?”
+
+God doesn’t respond out of judgment alone, although he alone rightfully judges. He doesn’t react out of his holiness by shunning his kids instantly away, because we know that His holiness does not tolerate sin in His presence. God doesn’t just respond out of righteousness. No, God reacts fully and truly out of everything he is, perfectly and fully.
+
+It is out of the perfection and fullness of God’s love, desires, affections, mercy, grace, justice, righteousness, patience, peace, holiness, aseity, omnipotence, omniscience, and omnipresence that we can fully see in God’s response.:
+
+>Genesis 3:15 I will put hostility between you and the woman,
+and between your offspring and her offspring.
+He will strike your head,
+And you will strike his heel.
+
+From the moment we sinned against him, God has not eradicated us. Instead, with his two dying children bearing witness, he promises to make all things right--starting with the death of Satan.
+
+God doesn’t chastise or even condemn. (Bear with me: I will get to that in a moment.)  Instead, God responds with, "Satan, I will send Someone to make this right. You might think you have hurt him, but he will crush your skull underneath his bare foot once and for all.”
+
+God promises the monster his death. God makes this threat-promise in front of his half-naked, scared, frightened, sin-filled kids. With Adam and Eve as his first witnesses, God promises He alone will fix what they did. Step one: God was sending Someone to be born of a woman. Step two: This Someone would suffer. And yet, step number three, this sent one smash the enemy's head to smithereens.
+
+And when God turns to Adam and Eve, I believe that God doesn’t just instantly judge them. Why would I say this? Because after this encounter, they are still standing on the earth. What I see is that God is simply laying out the consequences of sin in their lives and the world.
+
+Do not miss this next part. When you teach a Sunday school lesson, preach the word, or read from the Bible on this passage, pay special attention to this verse:
+
+>Genesis 3:21 The LORD God made clothing from skins for the man and his wife, and he clothed them.
+
+Now, if you had only read the Bible for the first time in your life, and chapter 3, verse 21 was the first time you had ever heard of that, that might not mean anything to you. I mean, it’s nice that God covered their naked bodies. But as the days and lives continue after this moment, God continues to interact, guide, speak to, and reveal His glory to his people; we can go back and see what God was doing in that instance. It is only when I read through the law and the gospels that I can reread that verse in actual truth.
+
+That Adam and Eve sinned, and they tried covering up their sins with their self-righteousness, which are as dirty garments before God. But God responds by preaching the Gospel of his Son. Adam and Eve react by believing the Gospel. And because they believed in God, God takes away their sin and self-righteousness and clothes them with His righteousness.
+
+Don’t believe me?
+
+Consider the following:
+
+>Luke 15:17-24 When he came to his senses, he said, ‘How many of my father’s hired workers have more than enough food, and here I am dying of hunger! 18 I’ll get up, go to my father, and say to him, “Father, I have sinned against heaven and in your sight. 19 I’m no longer worthy to be called your Son. Make me like one of your hired workers.”’ 20 So he got up and went to his father. But while the Son was still a long way off, his father saw him and was filled with compassion. He ran, threw his arms around his neck, and kissed him. 21 The Son said to him, ‘Father, I have sinned against heaven and in your sight. I’m no longer worthy to be called your Son.’
+>
+>22 “But the father told his servants, ‘Quick! Bring out the best robe and put it on him; put a ring on his finger and sandals on his feet. 23 Then bring the fattened calf and slaughter it, and let’s celebrate with a feast, 24 because this Son of mine was dead and is alive again; he was lost and is found!’ So they began to celebrate.
+
+What did the father do? He quickly covered his son’s mess, shame, and guilt with the best robe; ordained his son with his seal, and covered his kids’ dirt and poop-covered feet with peace. And then he ordered the fattened calf to be barbecued because his son was once lost but now was found.
+
+The father in the parable had all the means to restore his son to his own family. But how much more is the Good Father in heaven able to restore and bring the very worst and vilest sinners into his own family?
+
+God knows everything about you. He determines when you were born and where you will live. On top of that, He knows when you were far from him, running away from him, and committing treason against Him. He sees all of that. He knows all of that. God also knows when you appear to do good things, but your heart is not in the right place. Namely, your heart is not about God. But when God saw you in your unrighteousness, he decided not to judge you to instant condemnation. But even before the creation of the world, God had chosen to save you.
+
+Just as God slew an animal to clothe his kids, the slaying of that animal did save them. Just as God proclaims his law to His people, that law could not and did not save them—it was too weak to do so. Even when God laid out the instructions to spill the blood of perfect, spotless animals to show his people what God must do to save them, not even the animals’ dried blood that completely stained the bronze altar would save his people!
+
+No! God demanded the Perfect Sacrifice, and that sacrifice had to be Man. But here’s the dilemma: no one ever born of man is perfect. No one! All who were born of Adam inherited Adam’s wicked and depraved heart. No one is righteous. No, not one. All of us have fallen way short of the glory of God. But under the law of God, the shedding of blood purified everything, and without the shedding of blood, there is no removal of sin. Man has fallen into sin, committed sin even when they thought they were obeying the law of God (they were not), and only man can atone for sin. You cannot atone for sin when you are born in sin and have always sinned. God has a perfect requirement for atonement: it is a perfect man who lives perfectly, and can never know sin. This man could even be tempted as we are, but still freed from sin. From the moment I was stitched together by God in my mother’s womb, I am disqualified from atoning for my sin. My very birth was into sin, and my continuous disobedience condemns me before the righteous and just God. And don’t get hung up on the word ‘continuous’ as if I could somehow stop sinning on my own. If I had broken one of God's laws, I would have broken all of God's laws.
+
+With every single verse, chapter, and book in the Old Testament, God continuously, lovingly, and graciously preached His Gospel to his people, both Jew and Gentile: "I know you have sinned. I have specific laws that you must perfectly obey to be with me forever. They are but the standard by which to live with me forever. Oh, I know you were going to fail. All of you will fail. And your sins will have consequences--sometimes even dire and mortal. But trust in me. No matter how many times you fail, trust me. Maybe not in your lifetime, or your kids’ lifetime, or your kids’ kids' lifetime, but I promise you that one day I will fix everything that you have broken."
+
+That fix is His only begotten Son, Jesus Christ. God the Father sent God the Son to be born as a baby to live his life perfectly and obey every single law that God gave his people. His Son was tempted in every way that we are, but never fell short of the glory of God. But in perfect obedience to His Father by the power of His Spirit, the God and man, Jesus Christ, made a beeline to the cross in perfect obedience and with joy and gladness because what Christ was about to do was to save His people from their sins. It was upon the last step on that hill of the skull where Jesus Christ would gladly give up his perfect life once and for all, so that we would have the perfect life once and for all.
+
+>2 Corinthians 5:21 He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+
+What is the response to this righteousness?
+
+>Romans 5:1-2 Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. 2 We have also obtained access through him by faith into this grace in which we stand, and we boast in the hope of the glory of God.
+
+We have peace with God.
+
+We have grace in which we stand.
+
+We get to boast and worship God.
+
+We get to hope in God.
+
+We get to see the glory of God.
+
+## Pray
+
+<div style='font-variant: small-caps;'>
+Living Christ
+</div>
+
+Take away my sin  
+and give me your righteousness  
+so I can live with you forever.
+
+Amen.
 
 ## The Scriptures
 
->Leviticus 6:28 A clay pot in which the sin offering is boiled is to be broken; if it is boiled in a bronze vessel, it is to be scoured and rinsed with water.
+>Psalm 51:4 Against you—you alone—I have sinned and done this evil in your sight. So you are right when you pass sentence; you are blameless when you judge.
 
->Leviticus 16:21–22 Aaron will lay both his hands on the head of the live goat and confess over it all the Israelites’ iniquities and rebellious acts—all their sins. He is to put them on the goat’s head and send it away into the wilderness by the man appointed for the task. The goat will carry all their iniquities into a desolate land, and the man will release it there.
+>Habakkuk 2:2–4 The LORD answered me: Write down this vision; clearly inscribe it on tablets so one may easily read it. For the vision is yet for the appointed time; it testifies about the end and will not lie. Though it delays, wait for it, since it will certainly come and not be late. Look, his ego is inflated; he is without integrity. But the righteous one will live by his faith.
 
->Jeremiah 31:34 No longer will one teach his neighbor or his brother, saying, ‘Know the LORD,’ for they will all know me, from the least to the greatest of them” —this is the LORD’s declaration. “For I will forgive their iniquity and never again remember their sin.
+>Luke 8:9–14 Then his disciples asked him, “What does this parable mean?” So he said, “The secrets of the kingdom of God have been given for you to know, but to the rest it is in parables, so that Looking they may not see, and hearing they may not understand. “This is the meaning of the parable: The seed is the word of God. The seed along the path are those who have heard and then the devil comes and takes away the word from their hearts, so that they may not believe and be saved. And the seed on the rock are those who, when they hear, receive the word with joy. Having no root, these believe for a while and fall away in a time of testing. As for the seed that fell among thorns, these are the ones who, when they have heard, go on their way and are choked with worries, riches, and pleasures of life, and produce no mature fruit.
 
->Ezekiel 36:25 I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols.
+>Romans 1:16–17 For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek. For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
 
->Matthew 27:20–23 The chief priests and the elders, however, persuaded the crowds to ask for Barabbas and to execute Jesus. The governor asked them, “Which of the two do you want me to release for you?” “Barabbas!” they answered. Pilate asked them, “What should I do then with Jesus, who is called Christ?” They all answered, “Crucify him!” Then he said, “Why? What has he done wrong?” But they kept shouting all the more, “Crucify him!”
+>Romans 3:20–30 For no one will be justified in his sight by the works of the law, because the knowledge of sin comes through the law. But now, apart from the law, the righteousness of God has been revealed, attested by the Law and the Prophets. The righteousness of God is through faith in Jesus Christ to all who believe, since there is no distinction. For all have sinned and fall short of the glory of God; they are justified freely by his grace through the redemption that is in Christ Jesus. God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus. Where, then, is boasting? It is excluded. By what kind of law? By one of works? No, on the contrary, by a law of faith. For we conclude that a person is justified by faith apart from the works of the law. Or is God the God of Jews only? Is he not the God of Gentiles too? Yes, of Gentiles too, since there is one God who will justify the circumcised by faith and the uncircumcised through faith.
 
->Romans 8:3–4 For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering, in order that the law’s requirement would be fulfilled in us who do not walk according to the flesh but according to the Spirit.
+>Romans 4:2–8 If Abraham was justified by works, he has something to boast about—but not before God. For what does the Scripture say? Abraham believed God, and it was credited to him for righteousness. Now to the one who works, pay is not credited as a gift, but as something owed. But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness. Likewise, David also speaks of the blessing of the person to whom God credits righteousness apart from works: Blessed are those whose lawless acts are forgiven and whose sins are covered. Blessed is the person the Lord will never charge with sin.
 
->Romans 15:3 For even Christ did not please himself. On the contrary, as it is written, The insults of those who insult you have fallen on me.
+>Romans 5:1–11 Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. We have also obtained access through him by faith into this grace in which we stand, and we boast in the hope of the glory of God. And not only that, but we also boast in our afflictions, because we know that affliction produces endurance, endurance produces proven character, and proven character produces hope. This hope will not disappoint us, because God’s love has been poured out in our hearts through the Holy Spirit who was given to us. For while we were still helpless, at the right time, Christ died for the ungodly. For rarely will someone die for a just person—though for a good person perhaps someone might even dare to die. But God proves his own love for us in that while we were still sinners, Christ died for us. How much more then, since we have now been justified by his blood, will we be saved through him from wrath. For if, while we were enemies, we were reconciled to God through the death of his Son, then how much more, having been reconciled, will we be saved by his life. And not only that, but we also boast in God through our Lord Jesus Christ, through whom we have now received this reconciliation.
 
->Titus 3:3–7 For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior so that, having been justified by his grace, we may become heirs with the hope of eternal life.
+>Romans 8:30 And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
 
->Hebrews 9:22 According to the law almost everything is purified with blood, and without the shedding of blood there is no forgiveness.
+>Romans 10:8–13 On the contrary, what does it say? The message is near you, in your mouth and in your heart. This is the message of faith that we proclaim: If you confess with your mouth, “Jesus is Lord,” and believe in your heart that God raised him from the dead, you will be saved. One believes with the heart, resulting in righteousness, and one confesses with the mouth, resulting in salvation. For the Scripture says, Everyone who believes on him will not be put to shame, since there is no distinction between Jew and Greek, because the same Lord of all richly blesses all who call on him. For everyone who calls on the name of the Lord will be saved.
+
+>1 Corinthians 6:9–11 Don’t you know that the unrighteous will not inherit God’s kingdom? Do not be deceived: No sexually immoral people, idolaters, adulterers, or males who have sex with males, no thieves, greedy people, drunkards, verbally abusive people, or swindlers will inherit God’s kingdom. And some of you used to be like this. But you were washed, you were sanctified, you were justified in the name of the Lord Jesus Christ and by the Spirit of our God.
+
+>Galatians 2:15–21 We are Jews by birth and not “Gentile sinners,” and yet because we know that a person is not justified by the works of the law but by faith in Jesus Christ, even we ourselves have believed in Christ Jesus. This was so that we might be justified by faith in Christ and not by the works of the law, because by the works of the law no human being will be justified. But if we ourselves are also found to be “sinners” while seeking to be justified by Christ, is Christ then a promoter of sin? Absolutely not! If I rebuild those things that I tore down, I show myself to be a lawbreaker. For through the law I died to the law, so that I might live for God. I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me. I do not set aside the grace of God, for if righteousness comes through the law, then Christ died for nothing.
+
+>Galatians 3:10–14 For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed. Now it is clear that no one is justified before God by the law, because the righteous will live by faith. But the law is not based on faith; instead, the one who does these things will live by them. Christ redeemed us from the curse of the law by becoming a curse for us, because it is written, Cursed is everyone who is hung on a tree. The purpose was that the blessing of Abraham would come to the Gentiles by Christ Jesus, so that we could receive the promised Spirit through faith.
+
+>Hebrews 10:35–39 So don’t throw away your confidence, which has a great reward. For you need endurance, so that after you have done God’s will, you may receive what was promised. For yet in a very little while, the Coming One will come and not delay. But my righteous one will live by faith; and if he draws back, I have no pleasure in him. But we are not those who draw back and are destroyed, but those who have faith and are saved.
 
 >1 John 1:9 If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
-
->Revelation 1:5 and from Jesus Christ, the faithful witness, the firstborn from the dead and the ruler of the kings of the earth. To him who loves us and has set us free from our sins by his blood,
-
->Revelation 5:9–10 And they sang a new song: You are worthy to take the scroll and to open its seals, because you were slaughtered, and you purchased people for God by your blood from every tribe and language and people and nation. You made them a kingdom and priests to our God, and they will reign on the earth.
-
->Revelation 7:9–17 After this I looked, and there was a vast multitude from every nation, tribe, people, and language, which no one could number, standing before the throne and before the Lamb. They were clothed in white robes with palm branches in their hands. And they cried out in a loud voice: Salvation belongs to our God, who is seated on the throne, and to the Lamb! All the angels stood around the throne, and along with the elders and the four living creatures they fell facedown before the throne and worshiped God, saying, Amen! Blessing and glory and wisdom and thanksgiving and honor and power and strength be to our God forever and ever. Amen. Then one of the elders asked me, “Who are these people in white robes, and where did they come from?” I said to him, “Sir, you know.” Then he told me: These are the ones coming out of the great tribulation. They washed their robes and made them white in the blood of the Lamb. For this reason they are before the throne of God, and they serve him day and night in his temple. The one seated on the throne will shelter them: They will no longer hunger; they will no longer thirst; the sun will no longer strike them, nor will any scorching heat. For the Lamb who is at the center of the throne will shepherd them; he will guide them to springs of the waters of life, and God will wipe away every tear from their eyes.
-
-[^vos]: Geerhardus Vos on Jeremiah 31:3
