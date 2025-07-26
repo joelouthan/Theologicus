@@ -2,7 +2,7 @@
 
 <p style="font-weight: bold; font-size: 2em; margin-bottom: 0px "><a class="header" href="#the-power-of-god">The Power of God</a></p>
 
-<p style="font-style: italic; font-size: 1.6rem; margin-top: 0px">Our Almighty God</p>
+<p style="font-style: italic; font-size: 1.6rem; margin-top: 0px">We Are Called</p>
 
 ## The Text
 
