@@ -6,7 +6,7 @@
 
 ## The Text
 
->1 Timothy 1:12–17 (CSB) I give thanks to Christ Jesus our Lord who has strengthened me, because he considered me faithful, appointing me to the ministry—even though I was formerly a blasphemer, a persecutor, and an arrogant man. But I received mercy because I acted out of ignorance in unbelief, and the grace of our Lord overflowed, along with the faith and love that are in Christ Jesus. This saying is trustworthy and deserving of full acceptance:
+>1 Timothy 1:12–17 I give thanks to Christ Jesus our Lord who has strengthened me, because he considered me faithful, appointing me to the ministry—even though I was formerly a blasphemer, a persecutor, and an arrogant man. But I received mercy because I acted out of ignorance in unbelief, and the grace of our Lord overflowed, along with the faith and love that are in Christ Jesus. This saying is trustworthy and deserving of full acceptance:
 >
 ><span class="bgyc">“Christ Jesus came into the world to save sinners” —and I am the worst of them.</span>
 >
@@ -14,24 +14,24 @@
 
 ## The Introduction
 
-What is Ordo Salatis? It is a Latin term used by the Lutherans in mid 1720s which simply means, "The Order of Salvation". [^1][^2]
+What is *ordo salutis*? It is a Latin term used by Lutherans in the mid-1720s, which means "The Order of Salvation."
 
-Why is that so important? Yes, we do know that God is sovereign and exists and operates outside of time. He is not constrained by it because he is the creator of time. But his creation is bound by time and we, his imagebearers, are not the exception. (We feel this every day of our lives.)
+Why is that so important? Yes, we do know that God is sovereign and exists and operates outside of time. He is not constrained by it because he is the creator of time. Creation is bounded by time, and we, his imagebearers, are not the exception. (We feel this every day of our lives.)
 
-But when God saves, he does save in a logical, particular order. And again, it is not that God constrained by logic. But make it make sense. If we were predestined by God, does that mean we get to live a life of unrestrained sin with zero repentance? No! There is an order in what God does in order to save his people from their sins.[^3]
+But when God saves, he does save in a logical, particular order. I am not suggesting that God is constrained by logic. He is in the heavens--he can do as he pleases. Yet, we, as his creation, do not get to do as we please. We, as mankind, are called to love God and obey him.
 
-So what does *Ordo Salutis* have anything to do with 1 Timothy 1:15?
+So what does *ordo salutis* have anything to do with 1 Timothy 1:15?
 
-In the early days of my Christian life--early days of pre-Theologicus blogging and way too much social media presence, I came up an idea to give thanks to God every day in the month of November. I would take what God has done and list every bit of Scripture I could find that would show who God is and what he has done for us. It started with his attributes--his holiness, goodness, love, mercies, etc--and give Scriptural prooftext for those things. Further still, in what God did for us, give the same thanks for all of he has done in us. God thought of us--all the Scriptures. God saved us--all the Scriptures. And so forth. This was used to essentially to expound essentially *Ordo Salutis* or *the Order of Salvation*, which is this:
+In the early days of my Christian life — in my WordPress days — I came up with the idea to give thanks to God every day in November. I would take what God has done and list every bit of Scripture I could find that shows who God is and what He has done for us. It started with his attributes — his holiness, goodness, love, mercy, etc. — and provided Scriptural proof texts for those things. Further still, in what God did for us, give the same thanks for all that he has done for us. I called this series *Thanksgiving*.
 
->Romans 8:30 (CSB) And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
+What I learned, after creating such a worshipful reference guide, was the term *ordo salutis*. So I began writing a devotional series on *ordo salutis*, continuously using *Thanksgiving* as a reference guide.
 
-For me to even fathom such a thing was God's grace alone. This was before I knew what exposition, expounding, prooftext or even *Ordo Salutis* was.
+Then I migrated from WordPress to the current format, *Theologicus*.
 
-The posts on *Thanksgiving* morphed and expanded into what I consider to be my own reference source on the Order of Salvation and most of theology proper. With that reference in hand, I then wrote an exposition on *Ordo Salutis* to help me understand God's salvation of his people.
+Of all the series that I migrated, I held off on Thanksgiving and Ordo Salutis. I wanted to add devotions to the Thanksgiving series. And it has been over a decade since Ordo Salutis, so I wanted to go back and rewrite it *better*.
 
-Since, I have moved on to the new current blogging format but held off migrating both previous series, *Thanksgiving* and *Ordo Salutis* to the new format--mostly because I wanted to improve and expound on it. On *Ordo Salutis*, just to clean and tighten up the writing and exposition (since it has been over a decade since starting that series). But with *Thanksgiving*, it was purely reference material and I wanted to insert something devotional or expositional into each chapter before spilling over into Scriptural prooftext.
+But if one series begat the other, why not merge them both and make it complete?
 
-Then I thought, as the meme goes, "Why not both?"
+Hence, what you are reading may be a published book. For now, a new worshipful series. God has saved us — so let us give thanks to Him, for He alone is good, and His steadfast love is forever.
 
-This is that new series. Lots of work and a little bit of writing and re-writing. But I think it is worth it. I hope you do too.
+Amen. 
