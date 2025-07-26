@@ -2,11 +2,11 @@
 
 <p style="font-weight: bold; font-size: 2em; margin-bottom: 0px "><a class="header" href="#the-weight-of-our-sin">The Weight of Our Sin</a></p>
 
-<p style="font-style: italic; font-size: 1.6rem; margin-top: 0px">The Depravity of Mankind</p>
+<p style="font-style: italic; font-size: 1.6rem; margin-top: 0px">We Are Sinners</p>
 
 ## The Text
 
->Judges 21:25b (CSB) [. . .] <span class="bgy">Everyone did what was right in his own eyes.</span>
+>Judges 21:25b [. . .] <span class="bgy">Everyone did what was right in his own eyes.</span>
 
 ## The Devotion
 
@@ -30,13 +30,13 @@ This is a sin. And because of sin, even my pithy little pitiful explanation of s
 
 This sin is not just a brokenness I was born into, but it was an offense that I have committed time and time again throughout my life. And to even think I might have a good moment in time without sin:
 
->James 2:10 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
+>James 2:10 For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
 
->Galatians 3:10 (CSB) For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
+>Galatians 3:10 For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
 
 God has set the standard of righteousness, which is his law. Keeping the law does not just mean keeping it from the moment you have known about it but instead keeping it from birth. For:
 
->Psalm 58:3-5 (CSB) The wicked go astray from the womb;  
+>Psalm 58:3-5 The wicked go astray from the womb;  
 >liars wander about from birth.  
 >They have venom like the venom of a snake,  
 >like the deaf cobra that stops up its ears,  
@@ -45,7 +45,7 @@ God has set the standard of righteousness, which is his law. Keeping the law doe
 
 Too many people read these passages, and they think, "Oh, that is them--that is not me." Yes, the same man who wrote this passage also wrote:
 
->Psalm 51:3-5 (CSB) For I am conscious of my rebellion,  
+>Psalm 51:3-5 For I am conscious of my rebellion,  
 >and my sin is always before me.  
 >Against you — you alone — I have sinned  
 >and done this evil in your sight.  
@@ -56,7 +56,7 @@ Too many people read these passages, and they think, "Oh, that is them--that is 
 
 For the psalmist who wrote:
 
->Psalm 73:4-12 (CSB) They have an easy time until they die,  
+>Psalm 73:4-12 They have an easy time until they die,  
 >and their bodies are well fed.  
 >They are not in trouble like others;  
 >they are not afflicted like most people.  
@@ -78,7 +78,7 @@ For the psalmist who wrote:
 
 Is the same psalmist realized just a few quick moments later:
 
->Psalm 73:21-22 (CSB) When I became embittered  
+>Psalm 73:21-22 When I became embittered  
 >and my innermost being was wounded,  
 >I was stupid and didn't understand;  
 >I was an unthinking animal toward you.
@@ -91,18 +91,18 @@ All because of sin.
 
 ## The Scriptures
 
->Genesis 3:4-7 (CSB) “No! You will certainly not die,” the serpent said to the woman. “In fact, God knows that when you eat it your eyes will be opened and you will be like God, knowing good and evil.” The woman saw that the tree was good for food and delightful to look at, and that it was desirable for obtaining wisdom. So she took some of its fruit and ate it; she also gave some to her husband, who was with her, and he ate it. Then the eyes of both of them were opened, and they knew they were naked; so they sewed fig leaves together and made coverings for themselves.
+>Genesis 3:4-7 “No! You will certainly not die,” the serpent said to the woman. “In fact, God knows that when you eat it your eyes will be opened and you will be like God, knowing good and evil.” The woman saw that the tree was good for food and delightful to look at, and that it was desirable for obtaining wisdom. So she took some of its fruit and ate it; she also gave some to her husband, who was with her, and he ate it. Then the eyes of both of them were opened, and they knew they were naked; so they sewed fig leaves together and made coverings for themselves.
 
->Genesis 3:14 (CSB) So the LORD God said to the serpent:  
+>Genesis 3:14 So the LORD God said to the serpent:  
 >Because you have done this,  
 >you are cursed more than any livestock  
 >and more than any wild animal.  
 >You will move on your belly  
 >and eat dust all the days of your life.
 
->Genesis 3:22-24 (CSB) The LORD God said, “Since the man has become like one of us, knowing good and evil, he must not reach out, take from the tree of life, eat, and live forever.” So the LORD God sent him away from the garden of Eden to work the ground from which he was taken. He drove the man out and stationed the cherubim and the flaming, whirling sword east of the garden of Eden to guard the way to the tree of life.
+>Genesis 3:22-24 The LORD God said, “Since the man has become like one of us, knowing good and evil, he must not reach out, take from the tree of life, eat, and live forever.” So the LORD God sent him away from the garden of Eden to work the ground from which he was taken. He drove the man out and stationed the cherubim and the flaming, whirling sword east of the garden of Eden to guard the way to the tree of life.
 
->Genesis 3:16–19 (CSB)  
+>Genesis 3:16–19  
 ><sup>16</sup> He said to the woman: I will intensify your labor pains; you will bear children with painful effort. Your desire will be for your husband, yet he will rule over you. 
 >
 ><sup>17</sup> And he said to the man, “Because you listened to your wife and ate from the tree about which I commanded you, ‘Do not eat from it’: The ground is cursed because of you. You will eat from it by means of painful labor all the days of your life. 
@@ -111,7 +111,7 @@ All because of sin.
 >
 ><sup>19</sup> You will eat bread by the sweat of your brow until you return to the ground, since you were taken from it. For you are dust, and you will return to dust.”
 
->Romans 3:10–19 (CSB)  
+>Romans 3:10–19  
 ><sup>10</sup> as it is written: There is no one righteous, not even one. 
 >
 ><sup>11</sup> There is no one who understands; there is no one who seeks God. 
@@ -132,9 +132,9 @@ All because of sin.
 >
 ><sup>19</sup> Now we know that whatever the law says, it speaks to those who are subject to the law, so that every mouth may be shut and the whole world may become subject to God’s judgment.
 
->Romans 3:23 (CSB) For all have sinned and fall short of the glory of God.
+>Romans 3:23 For all have sinned and fall short of the glory of God.
 
->Leviticus 18:24–22:31 (CSB)  
+>Leviticus 18:24–22:31  
 ><sup>24</sup> “Do not defile yourselves by any of these practices, for the nations I am driving out before you have defiled themselves by all these things. 
 >
 ><sup>25</sup> The land has become defiled, so I am punishing it for its iniquity, and the land will vomit out its inhabitants. 
@@ -387,7 +387,7 @@ All because of sin.
 >
 ><sup>31</sup> “You are to keep my commands and do them; I am the LORD.
 
->Psalm 51 (CSB)  
+>Psalm 51  
 ><sup></sup> For the choir director. A psalm of David, when the prophet Nathan came to him after he had gone to Bathsheba. 
 >
 ><sup>1</sup> Be gracious to me, God, according to your faithful love; according to your abundant compassion, blot out my rebellion. 
@@ -428,7 +428,7 @@ All because of sin.
 >
 ><sup>19</sup> Then you will delight in righteous sacrifices, whole burnt offerings; then bulls will be offered on your altar.
 
->1 Peter 1:13–2:12 (CSB)  
+>1 Peter 1:13–2:12  
 ><sup>13</sup> Therefore, with your minds ready for action, be sober-minded and set your hope completely on the grace to be brought to you at the revelation of Jesus Christ. 
 >
 ><sup>14</sup> As obedient children, do not be conformed to the desires of your former ignorance. 
@@ -479,6 +479,6 @@ All because of sin.
 >
 ><sup>12</sup> Conduct yourselves honorably among the Gentiles, so that when they slander you as evildoers, they will observe your good works and will glorify God on the day he visits.
 
->Psalm 51:4 (CSB) <span class="bgy">Against you—you alone—I have sinned and done this evil in your sight. So you are right when you pass sentence; you are blameless when you judge.
+>Psalm 51:4 <span class="bgy">Against you—you alone—I have sinned and done this evil in your sight. So you are right when you pass sentence; you are blameless when you judge.
 
 [^1]: Oxford English Dictionary, "sin," accessed February 22, 2025, <https://www.oed.com/view/Entry/180176>.
