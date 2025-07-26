@@ -28,7 +28,7 @@ What I learned, after creating such a worshipful reference guide, was the term *
 
 Then I migrated from WordPress to the current format, *Theologicus*.
 
-Of all the series that I migrated, I held off on Thanksgiving and Ordo Salutis. I wanted to add devotions to the Thanksgiving series. And it has been over a decade since Ordo Salutis, so I wanted to go back and rewrite it *better*.
+Of all the series that I migrated, I held off on *Thanksgiving* and *Ordo Salutis*. I wanted to add devotions to the Thanksgiving series. And it has been over a decade since *Ordo Salutis*, so I wanted to go back and rewrite it *better*.
 
 But if one series begat the other, why not merge them both and make it complete?
 
