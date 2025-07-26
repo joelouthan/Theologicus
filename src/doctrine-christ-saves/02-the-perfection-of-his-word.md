@@ -7,13 +7,13 @@
 ## The Text
 
 >Psalm 19:7-10 (CSB)  
-><sup>7</sup> The instruction of the LORD is perfect, renewing one’s life; the testimony of the LORD is trustworthy, making the inexperienced wise. 
+>The instruction of the LORD is perfect, renewing one’s life; the testimony of the LORD is trustworthy, making the inexperienced wise. 
 >
-><sup>8</sup> The precepts of the LORD are right, making the heart glad; the command of the LORD is radiant, making the eyes light up. 
+>The precepts of the LORD are right, making the heart glad; the command of the LORD is radiant, making the eyes light up. 
 >
-><sup>9</sup> The fear of the LORD is pure, enduring forever; the ordinances of the LORD are reliable and altogether righteous. 
+>The fear of the LORD is pure, enduring forever; the ordinances of the LORD are reliable and altogether righteous. 
 >
-><sup>10</sup> <span class="bgy">They are more desirable than gold— than an abundance of pure gold; and sweeter than honey dripping from a honeycomb.</span> 
+><span class="bgy">They are more desirable than gold— than an abundance of pure gold; and sweeter than honey dripping from a honeycomb.</span> 
 
 ## The Devotion
 
