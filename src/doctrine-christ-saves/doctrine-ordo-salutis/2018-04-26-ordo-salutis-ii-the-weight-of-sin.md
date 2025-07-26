@@ -1,22 +1,4 @@
----
-title: "Doctrine: Ordo Salutis II: The Weight of Sin"
-author: Joseph Louthan
-date: 2018-04-26T12:00:23+00:00
-categories:
-  - Theology
-tags:
-  - Theology
-  - Soteriology
-series:
-  - 'Ordo Salutis'
-cover:
-  image: '/images/banners/ordo.png'
-showtoc: false
-css: "prayers"
-draft: true
-
----
-Before we can even try to understand what God has done in Salvation, we must first truly understand our condition as human beings born on this earth. I feel compelled to at least touch on this doctrine for I believe that many Christians sometimes either forget their natural state before God saved them or they simply don't remember being that 'bad' of a person before being saved. It is not that we have to dwell on our depravity, our flesh, our sin nature but to ignore or forget about it would absolutely rob our heart of joy and worship before the Lord.
+Before we can even try to understand what God has done in salvation, we must first truly understand our condition as human beings born on this earth. I feel compelled to at least touch on this doctrine for I believe that many Christians sometimes either forget their natural state before God saved them or they simply don't remember being that 'bad' of a person before being saved. It is not that we have to dwell on our depravity, our flesh, our sin nature but to ignore or forget about it would absolutely rob our heart of joy and worship before the Lord.
 
 To see how this all started, we have to go back to the book of beginnings, Genesis.
 
@@ -30,7 +12,7 @@ We all know the story of the disobedience of Adam and Eve: Eve was tempted by Sa
 
 But let us have the Apostle Paul explain what our original parents did and because of that, what every human has been born into doing automatically:
 
->Romans 1:18-25 (CSB) For God’s wrath is revealed from heaven against all godlessness and unrighteousness of people who by their unrighteousness suppress the truth, 19 since what can be known about God is evident among them, because God has shown it to them. 20 For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse. 21 For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. 22 Claiming to be wise, they became fools 23 and exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles.
+>Romans 1:18-25 For God’s wrath is revealed from heaven against all godlessness and unrighteousness of people who by their unrighteousness suppress the truth, 19 since what can be known about God is evident among them, because God has shown it to them. 20 For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse. 21 For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. 22 Claiming to be wise, they became fools 23 and exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles.
 >
 >24 Therefore God delivered them over in the desires of their hearts to sexual impurity, so that their bodies were degraded among themselves. 25 They exchanged the truth of God for a lie, and worshiped and served what has been created instead of the Creator, who is praised forever. Amen.
 
@@ -70,17 +52,17 @@ It is by nature we are idol factories.
 
 It is by nature we are children of God's wrath.
 
->Ephesians 2:1-3 (CSB) And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
+>Ephesians 2:1-3 And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
 
 It is by nature and choice that we war against God and continuously blaspheme his holy name.
 
 Every single person born of a man has fallen way short of the glory of God.
 
->Romans 3:23 (CSB) For all have sinned and fall short of the glory of God;
+>Romans 3:23 For all have sinned and fall short of the glory of God;
 
 Because of our sin nature, we cannot do good in the sight of God but we only have the 'free will' to continue to do sinful things.
 
->Romans 3:10-12 (CSB) as it is written:  
+>Romans 3:10-12 as it is written:  
 >There is no one righteous, not even one.  
 >There is no one who understands;  
 >there is no one who seeks God.  
@@ -91,7 +73,7 @@ Because of our sin nature, we cannot do good in the sight of God but we only hav
 
 For our sin nature, it is quite just for our righteous, holy, and blameless God to rightfully condemn us and rightfully take our lives and we would not be in the right for us as creation to demand from the Creator, "Why!"
 
->Daniel 4:35 (CSB) All the inhabitants of the earth are counted as nothing,  
+>Daniel 4:35 All the inhabitants of the earth are counted as nothing,  
 >and he does what he wants with the army of heaven  
 >and the inhabitants of the earth.  
 >There is no one who can block his hand  
@@ -106,4 +88,3 @@ For us being born, we are destined to die.
 Is there any hope for our weight of sin? Who can be so powerful enough, yet able and willing enough to save me? The world cannot. It has failed and constantly fails within itself. People cannot because they’re infected with sin as well. Inanimate objects? Are we even asking that question?
 
 Then who can save me from this body of death? Christ Jesus is his name!
-
