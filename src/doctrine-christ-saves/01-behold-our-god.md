@@ -6,7 +6,7 @@
 
 ## The Text
 
->Romans 8:27–30 (CSB) And he who searches our hearts knows the mind of the Spirit, because he intercedes for the saints according to the will of God. We know that all things work together for the good of those who love God, who are called according to his purpose. For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. <span class="bgy">And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.</span>
+>Romans 8:27-30 And he who searches hearts knows what is the mind of the Spirit because the Spirit intercedes for the saints according to the will of God. And we know that for those who love God, all things work together for good, for those who are called according to his purpose. For those whom he foreknew he also predestined to be conformed to the image of his Son, in order that he might be the firstborn among many brothers. <span class="bgy">And those whom he predestined he also called, and those whom he called he also justified, and those whom he justified he also glorified.</span>
 
 ## The Devotion
 
@@ -26,7 +26,7 @@ So in this series, we are going to attempt to answer questions such as, "Does th
 
 So in this, we begin with what some theologians call "the golden chain of salvation" found in this passage:
 
->Romans 8:27-30 And he who searches hearts knows what is the mind of the Spirit because the Spirit intercedes for the saints according to the will of God. And we know that for those who love God, all things work together for good, for those who are called according to his purpose. For those whom he foreknew he also predestined to be conformed to the image of his Son, in order that he might be the firstborn among many brothers. **And those whom he predestined he also called, and those whom he called he also justified, and those whom he justified he also glorified**.
+>Romans 8:30 And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
 
 In verse 30, Paul did not simply throw the words "predestined," "called," "justified," and "glorified" at us as though their order did not matter. Paul was cautious in ordering those words to show the steps that God took to bring you and me all the way home back to Him.
 
