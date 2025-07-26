@@ -131,18 +131,6 @@ We have the Christ. Therefore, we have his righteousness as our own.
 
 Praise be to God!
 
-## Pray
-
-<div style='font-variant: small-caps;'>
-Living Christ
-</div>
-
-Take away my sin  
-and give me your righteousness  
-so I can live with you forever.
-
-Amen.
-
 ## The Scriptures
 
 >Psalm 51:4 Against you—you alone—I have sinned and done this evil in your sight. So you are right when you pass sentence; you are blameless when you judge.
