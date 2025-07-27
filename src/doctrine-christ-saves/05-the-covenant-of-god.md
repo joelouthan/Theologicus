@@ -33,15 +33,15 @@
 
 ## The Devotion
 
-Here's the summation of the personal Christian faith: God is not a liar and I believe what he says. Full stop.
+Here's the summation of the Christian faith: God is not a liar, and we believe what he says. Full stop.
 
 If he says it in his word, the same word that "God spoke to our ancestors by the prophets at different times and in different ways." And, "in these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him." (Heb 1:1-2), then it will come to pass.
 
 Every promise of God is always yes and amen (2 Cor 1:20).
 
-Think of this way: God is not a liar, God chose you and set his affections and love on you before the foundations of the world, sent his only begotten Son to live and die to save you before you were even born, gave his Almighty Spirit to dwell in you, Christ dwells in you and the Father has made his home in you, and he promises he would bring you all the way home to him, dear Christian, won't he not do it.
+God is not a liar. God chose you and set his affections and love on you before the foundations of the world, sent his only begotten Son to live and die to save you before you were even born, gave his Almighty Spirit to dwell in you, Christ dwells in you, and the Father has made his home in you. He promises he will bring you all the way home to him, dear Christian, won't he do it?
 
-God makes no promises for an easy life. He promises that since you are a child of God and co-heir with his Son, you will suffered as he suffered. (Rom 8:14-17)
+God makes no promises for an easy life. God promises that, since you are a child of God and a co-heir with His Son, you will suffer as his only begotten Son, Christ Jesus, suffered. (Rom 8:14-17)
 
 > Fear not, then, the darkest cloud, nor the proudest waves, nor the deepest needs- in these very things you shall, through Christ, prove triumphant.
 >
@@ -51,9 +51,9 @@ He will bring you all the way home.
 
 How do you know you are elect?
 
->John 3:14–15 “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
+>John 3:14–15 "Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
 
-Do you look upon the Son lifted up in resurrection and believe? Count yourself elected because you believe. Count yourself a child of God because you have turned to the Christ. Count yourself to be his people and he is your God because you know that God is not a liar and you believe him!
+Do you look upon the Son lifted in resurrection and believe? Count yourself elected because you believe. Count yourself a child of God because you have turned to the Christ. Count yourself among his people, and he is your God, because you know that God is not a liar and you believe Him.
 
 Count yourself!
 
@@ -63,7 +63,7 @@ Consider this:
 
 Who else but God could not simply 'glorify' or 'glorifying' but yet 'glorified' his people already? How can someone already have done something in the past that has not yet happened?
 
-That is God. He has made a promise, and nothing can ever break that promise. If he predestined you, then he glorified you.
+Only God can do that. He has made a promise, and nothing can ever break that promise. If he predestined you, then he glorified you.
 
 You are as good as saved.
 
