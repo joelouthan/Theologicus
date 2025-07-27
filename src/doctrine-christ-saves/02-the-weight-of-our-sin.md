@@ -10,23 +10,102 @@
 
 ## The Devotion
 
+Before we can even try to understand what God has done in salvation, we must first truly understand our condition as human beings born on this earth. I feel compelled to at least touch on this doctrine, for I believe that many Christians sometimes either forget their natural state before God saved them, or they don't remember being that 'bad' a person before being saved. It is not that we have to dwell on our depravity, our flesh, our sin nature, but to ignore or forget about it would rob our hearts of joy and worship before the Lord.
+
 What is sin?
 
 The Oxford Dictionary defines sin as "An act which is regarded as a transgression of the divine law and an offense against God; a violation (esp. wilful or deliberate) of some religious or moral principle." [^1]
 
 God defines sin as "falling short of the glory of God" (Romans 3:23).
 
-In other words, God is most glorious--that is, *most perfect* and *maxed out perfection* in his glory. Let us not confuse actual perfection, which can only be found in God alone, with the local coffee diner that makes the "most perfect" cinnamon rolls ever. Humans, especially English speakers, have run out of superlatives akin to good/better/best to describe the good things in our world--never mind what the actual proper definition of "perfect" is in the standard of who God is.
+In other words, God is most glorious--that is, *most perfect* and *maxed out perfection* in his glory. Let us not confuse actual perfection, which can only be found in God alone, with the local coffee diner that makes the "most perfect" cinnamon rolls ever. Humans, especially English speakers, have run out of superlatives akin to good/better/best to describe the good things in our world--never mind what the actual proper definition of "perfect" is in terms of the standard of who God is.
 
-Do you know what the effects of sin are on our world? Even the good things from God in our world are not as good as what they could be in the presence of God.
+To understand how this all began, we must go back to the book of beginnings, Genesis.
 
-And it was never supposed to be this way. Sexual immorality, idol worship, hatred, foolishness, pride, and every other abomination was not the intention of God. God is the source of good and not evil. He can only do what is good and not sin. He did not make the world full of sickness, disease, cancer, betrayal, grief, mental illness, and death. He made the world *actually* perfect and *actually* good.
+In Genesis 1 & 2, God reveals to us how He intended and declared all of creation to be: good. But what is good? Good is not simply in terms of good, better, or best, as Christ pointed out to the rich young ruler in Luke 18:18-30, although everyone would agree that a world without bad things happening, such as death, murder, or disease, would be a better place. However, the word 'good' implies something richer and more meaningful. When God declares creation to be good, he declares it to be right-standing with Himself. Since all of creation, including Adam & Eve, was declared good in his sight, there was no separation between God and man. At this point, man was created in a relationship with God. God's intention is that man and woman would then be born, and by the very nature of being born, we would have been born into a perfect relationship with our parents, with all humans, and with God. In creating Adam & Eve, our original parents, God gave all humans a heart that continually worships nonstop. Ecclesiastes 3:11 declares that God set eternity into our hearts so that we would always long to worship and that we would seek out that worship in an ever-filling, ever-loving, ever-glorious, everlasting God that would fill our bottomless hearts forever and ever.
 
-Sin entered through one man, our original father, Adam. Adam was made good, perfect, and right-standing with God. God gave Adam the ability to obey God perfectly. Not only with morality but with one commandment: don't eat from this tree. If Adam obeyed God and grew and matured in wisdom and stature, he would have not only been given an eternal, perfect, good life but for his descendants as well. 
+Sounds great.
+
+So what happened?
+
+Sin entered through one man, our original father, Adam. Adam was made good, perfect, and right-standing with God. God gave Adam the ability to obey God perfectly. Not only with morality, but with one commandment: don't eat from this tree. If Adam had obeyed God, grown and matured in wisdom and stature, he would have not only been given an eternal, perfect, good life but also for his descendants as well. 
 
 But we know that did not happen. Adam fell into temptation. Adam did not struggle with sin. Adam sinned against God. Therefore, famine, poverty, lack, war, sadness, and anger have entered. We know this because we experience it firsthand. We are feeling the effects of people trying desperately to grab whatever power they can for their ill-gotten gains--and if some people are broken or killed along the way, it is no concern to them.
 
-This is a sin. And because of sin, even my pithy little pitiful explanation of sin falls way, way short. Because I was born in sin, I cannot correctly define sin and give it its whole explanation. My brokenness and sinfulness prevent me from uncovering any of my potential sin-masking blind spots in my life. That is why this chapter will fall short of giving you the best definition of sin.
+But let us have the Apostle Paul explain what our original parents did, and because of that, what every human has been born into doing automatically:
+
+>Romans 1:18–25 For God's wrath is revealed from heaven against all godlessness and unrighteousness of people who by their unrighteousness suppress the truth, since what can be known about God is evident among them, because God has shown it to them. For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse. For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. Claiming to be wise, they became fools and exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles.
+>
+>Therefore God delivered them over in the desires of their hearts to sexual impurity, so that their bodies were degraded among themselves. They exchanged the truth of God for a lie, and worshiped and served what has been created instead of the Creator, who is praised forever. Amen.
+
+We have all exchanged the truth:
+
+* All love comes from God
+* All good things come from God
+* God is our provision
+* God is all sufficient
+* The fullness of joy is in God alone
+* The path of eternal life is in God alone
+* True peace is in God
+* There is no one greater than God
+
+For a lie:
+
+* Love can be fulfilled in created things
+* Good things can come from created things
+* Created things can provide for me
+* Created things will sustain me
+* The fullness of joy comes from created things
+* The path of eternal life is in created things
+* Peace can be found in what we do or in our situation
+* That God cannot be the greatest
+
+Adam & Eve exchanged the truth of God for something else. In turn, we have all exchanged God's plan of perfect peace and righteousness for our definition of peace and self-righteousness.
+
+With that horrific exchange, our universe is now broken. Sin, death, disease, suffering, torment, pain, anguish, and hurt were introduced into our world through just one man.
+
+And because our God is right-standing, holy, and blameless, there is a cataclysmic divide between God and man because of sin.
+
+It is not that God cannot stand the sight of sin and doesn't want to deal with it. Instead, God does not allow and has to tolerate any sin. God is good, holy, just, and loving. Why should he tolerate sin?
+
+We were born in sin. We have to deal with sin all the time. We have never not known the presence of sin. We live in sin. And even unbelievers hate sin when they experience the consequences of sin--disease, carnage, war, wickedness, and death.
+
+>Ephesians 2:1-3 And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath, as the others were also.
+
+It is by nature and choice that we war against God and continuously blaspheme his holy name.
+
+Every single person born of a man has fallen way short of the glory of God.
+
+>Romans 3:23 For all have sinned and fall short of the glory of God;
+
+Because of our sin nature, we cannot do good in the sight of God, but we only possess a will that is free to continue to do sinful things.
+
+>Romans 3:10-12 as it is written:  
+>There is no one righteous, not even one.  
+>There is no one who understands;  
+>there is no one who seeks God.  
+>All have turned away;  
+>all alike have become worthless.  
+>There is no one who does what is good,  
+>not even one.
+
+For our sin nature, it is quite just for the righteous, holy, and blameless God to condemn us and rightfully take our lives, and we would not be in the right for us as creation to demand from the Creator, "Why!"
+
+>Daniel 4:35 All the inhabitants of the earth are counted as nothing,  
+>and he does what he wants with the army of heaven  
+>and the inhabitants of the earth.  
+>There is no one who can block his hand  
+>or say to him, "What have you done?"
+
+Furthermore:
+
+>Romans 6:23 For the wages of sin is death
+
+Do you know what the effects of sin are on our world? Even the good things from God in our world are not as good as what they could be in the presence of God.
+
+And it was never supposed to be this way. Sexual immorality, idol worship, hatred, foolishness, pride, and every other abomination were not the intention of God. God is the source of good and not evil. He can only do what is good and not sin. He did not make the world full of sickness, disease, cancer, betrayal, grief, mental illness, and death. He made the world *actually* perfect and *actually* good.
+
+Because of Adam's disobedience against the Holy God, sin entered the world. And realize the full effect of sin: even my pithy little pitiful explanation of sin falls way, way short. Because I was born in sin, I cannot correctly define sin and give it its whole explanation. My brokenness and sinfulness prevent me from uncovering any potential blind spots in my life that might mask my sins. That is why this chapter will fall short of giving you the best definition of sin.
 
 This sin is not just a brokenness I was born into, but it was an offense that I have committed time and time again throughout my life. And to even think I might have a good moment in time without sin:
 
@@ -34,7 +113,7 @@ This sin is not just a brokenness I was born into, but it was an offense that I 
 
 >Galatians 3:10 For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
 
-God has set the standard of righteousness, which is his law. Keeping the law does not just mean keeping it from the moment you have known about it but instead keeping it from birth. For:
+God has set the standard of righteousness, which is his law. Keeping the law does not just mean keeping it from the moment you have known about it, but instead keeping it from birth. For:
 
 >Psalm 58:3-5 The wicked go astray from the womb;  
 >liars wander about from birth.  
@@ -76,7 +155,7 @@ For the psalmist who wrote:
 >They are always at ease,  
 >and they increase their wealth.
 
-Is the same psalmist realized just a few quick moments later:
+Is the same psalmist who realized just a few quick moments later:
 
 >Psalm 73:21-22 When I became embittered  
 >and my innermost being was wounded,  
@@ -88,6 +167,10 @@ The ESV reads, "I was brutish and ignorant; I was like a beast toward you." This
 What we see on the outside of King Nebuchadnezzar is a glimpse, a facet of the heart of the man within.
 
 All because of sin.
+
+Is there any hope for the weight of sin? Who can be so powerful yet able and willing enough to save me? The world cannot. It has failed and continues to fail within itself. People cannot because they're infected with sin as well. Inanimate objects? Are we even asking that question?
+
+Then who can save me from this body of death? Christ Jesus is his name!
 
 ## The Scriptures
 
