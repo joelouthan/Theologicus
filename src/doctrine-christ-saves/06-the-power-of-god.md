@@ -10,11 +10,13 @@
 
 ## The Devotion
 
-This is the power of God in salvation--the gospel of Jesus Christ. He has called us to eternal life. But how can this be since we are sinners--dead in our trespasses and sins. (Ephesians 2:1) How can dead men look upon the risen Christ and be saved into eternal life? (John 3:14-15) How can the dead look into their dead, sinful hearts and twisted minds and choose to follow the Christ?
+This is the power of God in salvation: the gospel of Jesus Christ. He has called us to eternal life. But how can this be since we are sinners--dead in our trespasses and sins. (Ephesians 2:1) How can dead men look upon the risen Christ and be saved into eternal life? (John 3:14-15) How can the dead look into their dead, sinful hearts and twisted minds and choose to follow the Christ?
 
->John 11:32–37 As soon as Mary came to where Jesus was and saw him, she fell at his feet and told him, “Lord, if you had been here, my brother wouldn’t have died!” When Jesus saw her crying, and the Jews who had come with her crying, he was deeply moved in his spirit and troubled. “Where have you put him?” he asked. “Lord,” they told him, “come and see.” Jesus wept. So the Jews said, “See how he loved him!” But some of them said, “Couldn’t he who opened the blind man’s eyes also have kept this man from dying?”*  
+>John 11:32–37 As soon as Mary came to where Jesus was and saw him, she fell at his feet and told him, "Lord, if you had been here, my brother wouldn't have died!" When Jesus saw her crying, and the Jews who had come with her crying, he was deeply moved in his spirit and troubled. "Where have you put him?" he asked. "Lord," they told him, "come and see." Jesus wept. So the Jews said, "See how he loved him!" But some of them said, "Couldn't he who opened the blind man's eyes also have kept this man from dying?"*  
 
-This is our Christ putting on the fullest display of what happens to dead sinners when they are dead in their trespasses and sins and cannot make themselves alive again. They cannot tilt their dead heads and look up with their dead eyes and see the risen Christ. No! They cannot stir up within themselves with their dead hearts and wicked desires, turn and follow Jesus.
+Our Christ putting on the most whole display of what happens to dead sinners when they are dead in their trespasses and sins and cannot make themselves alive again. They cannot tilt their dead heads and look up with their dead eyes and see the risen Christ. No! They cannot stir up within themselves with their dead hearts and wicked desires, turn and follow Jesus.
+
+We cannot, in our very best efforts, unalive ourselves.
 
 He has stepped from the infinite into the finite, heaven into earth, from glory into humility--condescending to our level, taking on flesh. He has come to give us his Spirit and the Father's heart. He has come to renew our minds, open our eyes, turn on our ears, awaken our mouths, and give us life!
 
@@ -26,37 +28,37 @@ He has come to raise the dead!
 
 Jesus came into this world to save sinners!
 
-> John 11:38–39 Then Jesus, deeply moved again, came to the tomb. It was a cave, and a stone was lying against it. “Remove the stone,” Jesus said. Martha, the dead man’s sister, told him, “Lord, there is already a stench because he has been dead four days.”  
+> John 11:38–39 Then Jesus, deeply moved again, came to the tomb. It was a cave, and a stone was lying against it. "Remove the stone," Jesus said. Martha, the dead man's sister, told him, "Lord, there is already a stench because he has been dead four days."  
 
-W were born sinners as the children of God. Four days? Try since Genesis 3. Our original parents sinned against the holy God and they were cast out. But look at this wonderful calling: "I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel." (Genesis 3:15) Before God cursed Adam and Eve and the earth, he called to them to believe in the Almighty God. And the curse of sin and death of Adam doesn't even belong to Adam! How do I know? Before they were exiled from the garden, Adam and Eve believed the gospel that was called to bring them from death to life.
+We were born sinners as the children of God. Four days? Try since Genesis 3. Our original parents sinned against the holy God, and they were cast out. But look at this incredible calling: "I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel." (Genesis 3:15) Before God cursed Adam and Eve and the earth, he called to them to believe in the Almighty God. And the curse of sin and death of Adam doesn't even belong to Adam! How do I know? Before they were exiled from the garden, Adam and Eve believed the gospel that was called to bring them from death to life.
 
 > Genesis 3:21 The Lord God made clothing from skins for the man and his wife, and he clothed them.  
 
-This is the gospel, and stop me when you heard this before: God would offer the sacrifice of his only begotten Son. Because of the perfect obedience and the death of his Son, he clothes us with the righteousness of his Son.
+This is the gospel, and stop me when you have heard this before: God would offer the sacrifice of his only begotten Son. Because of the perfect obedience and the death of his Son, he clothes us with the righteousness of his Son.
 
 God promised the snake crusher and the death destroyer. Let us see if he delivers.
 
-> John 11:40–42 Jesus said to her, “Didn’t I tell you that if you believed you would see the glory of God?” So they removed the stone. Then Jesus raised his eyes and said, “Father, I thank you that you heard me. I know that you always hear me, but because of the crowd standing here I said this, so that they may believe you sent me.”  
+> John 11:40–42 Jesus said to her, "Didn't I tell you that if you believed you would see the glory of God?" So they removed the stone. Then Jesus raised his eyes and said, "Father, I thank you that you heard me. I know that you always hear me, but because of the crowd standing here I said this, so that they may believe you sent me."  
 
 Jesus, God who took on flesh, dwelled with us, condescended to us, and became us, and walked this earth in perfect obedience to the law of God, was always in right-standing and perfect love and affection with his wonderful Father. And the Christ, being the only begotten Son, was not going to do anything he had not seen his own Father do, turns his eyes upon the Almighty God and gives thanks for what God is about to do.
 
 The Christ--as human as you and me. Experiences the dreaded, scorching heat of the day. Fights off the sickness-inducing waves of the sea when he goes commercial fishing with his buds. Hungered. Thirst. Sleepy. Tired. Lonely. Homeless. Sad. Angry. Frustrated. Tender. Gentle. Grieved.
 
-And all his Godliness and his humanity stood right in front of death. Chances are, if you stare down Death, Death is going to win. Yet, in this instance, Death is staring down the Son of Man. "What would Christ dare to do?" Death thinks as he perches over his most recent trophy--Christ's best friend's dead, rotting corpse. What does the Christ think he is going to do now?
+And all his Godliness and his humanity stood right in front of death. Chances are, if you stare down Death, Death is going to win. Yet, in this instance, death is staring down the Son of Man. "What would Christ dare to do?" Death thinks as he perches over his most recent trophy--Christ's best friend's dead, rotting corpse. What does the Christ think he is going to do now?
 
-Christ, whose face still hot from weeping, turns his eyes down from the heavens and stares straight through Death. For to defeat Death here, Christ is so Almighty that he doesn't even have to acknowledge Death. He calls with a thunderous voice...
+Christ, whose face is still hot from weeping, turns his eyes down from the heavens and stares straight through Death. To defeat Death here, Christ is so mighty, powerful, good, and holy that he doesn't even have to acknowledge Death. He calls with a thunderous voice:
 
-> "LAZARUS, COME FORTH!"  
+> **"LAZARUS, COME FORTH!"**  
 
-What do you think happens when you are born again? What do you think happened when you arose from death into life? What do you think happened when you first believe?
+What do you think happened when you were born again? What do you think happened when you arose from death into life? What do you think happened when you first believed?
 
 You were called by the Almighty Triune God himself.
 
-CHILD OF GOD, BELOVED ONE OF GOD, COME FORTH!
+**CHILD OF GOD, BELOVED ONE OF GOD, COME FORTH!**
 
-For all the advances and the mere power that mankind welds, they have no power to stop death. Yet, our Christ, fully God and fully man, calls forth sinners from the dead and makes them alive to God forever and ever.
+For all the advances and the mere power that mankind wields, they have no power to stop death. Yet, our Christ, fully God and fully man, calls forth sinners from the dead and makes them alive to God forever and ever.
 
-This is the power of God in salvation--the gospel of the Lord Jesus Christ our Savior.
+This is the power of God in salvation--the gospel of the Lord Jesus Christ, our Savior.
 
 ## The Scriptures
 
