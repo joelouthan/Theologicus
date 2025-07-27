@@ -33,6 +33,133 @@
 
 ## The Devotion
 
+If you ever discuss the doctrines of election and predestination, you are sure to get asked this question:
+
+*Why would God choose to save some and not others?*
+
+Taking God at face value, he replies: for his glory.
+
+>Isaiah 48:11 I will act for my own sake, indeed, my own,
+>for how can I be defiled?
+>I will not give my glory to another.
+
+>Proverbs 25:2 It is the glory of God to conceal a matter
+>and the glory of kings to investigate a matter.
+
+And also, his pleasure:
+
+>Philippians 2:13 For it is God who is working in you both to will and to work according to his good purpose.
+
+When discussing such lofty things, that "the secret things belong to the LORD" (Deuteronomy 29:29), the pushback you will get from most people is that it is simply a copout.
+
+Fair enough.
+
+Perhaps none of us can ever answer why God saves some and damn others.
+
+However, when God does reveal some of the reasons why he does what He does, as in Romans 9, 10, & 11, we must take him at his word.
+
+>Romans 9:14–16 What should we say then? Is there injustice with God? Absolutely not! For he tells Moses, **I will show mercy to whom I will show mercy, and I will have compassion on whom I will have compassion.** So then, it does not depend on human will or effort but on God who shows mercy.
+
+We must resist the temptation to explain away the mystery of God's compassion and mercy.
+
+I can sit and pour out every single passage where the elect, election, and predestination were spoken about in the New Testament. I can point out in all the Old Testament and New Testament stories where there was not a single person who was out looking for God, but instead, God found them (Rom 3:10-12). Yet, when the Bible speaks of specific individuals whom God saved, it continuously shows one thing to be true: we were apart from God, we were not seeking after him, and yet God saves.
+
+>Romans 3:10–12 as it is written: **There is no one righteous, not even one. There is no one who understands; there is no one who seeks God. All have turned away; all alike have become worthless. There is no one who does what is good, not even one.**
+
+Even if this were true, you could resist and say, "The Bible doesn't explicitly say such things." Fair enough.
+
+So, perhaps it is my American upbringing that has taught me (and rightfully so) that everyone should be treated equally. Therefore, God, being a loving God, should save us all, even though every single one of us has waged war against the Almighty and we have all blasphemed his holy name.
+
+Let me explain what the doctrine of predestination teaches. If it is too difficult to see from a big-picture level, let me do my best to explain it here on a ground-level basis.
+
+The path of humankind leads to destruction.
+
+>Exodus 22:20 "Whoever sacrifices to any gods, except the LORD alone, is to be set apart for destruction.
+
+As opposed to:
+
+>Exodus 20:3 Do not have other gods besides me.
+
+>Deuteronomy 6:4-5 "Listen, Israel: The LORD our God, the LORD is one. 5 Love the LORD your God with all your heart, with all your soul, and with all your strength.
+
+Jesus speaks of two paths: one chasing after things not God, and the other pursuing the One True God. That is, one doorway leading to life everlasting, or the highway to hell:
+
+>Matthew 7:13-14 "Enter through the narrow gate. For the gate is wide and the road broad that leads to destruction, and there are many who go through it. 14 How narrow is the gate and difficult the road that leads to life, and few find it.
+
+Paul expounds this proclamation of Christ in Romans 8:3-8.
+
+>Romans 8:3–8 For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering, in order that the law's requirement would be fulfilled in us who do not walk according to the flesh but according to the Spirit. For those who live according to the flesh have their minds set on the things of the flesh, but those who live according to the Spirit have their minds set on the things of the Spirit. Now the mindset of the flesh is death, but the mindset of the Spirit is life and peace. The mindset of the flesh is hostile to God because it does not submit to God's law. Indeed, it is unable to do so. Those who are in the flesh cannot please God.
+
+In other words, you cannot serve two masters. You cannot go down two paths at the same time. And contrary to some popular beliefs and theologies, there is no third option.
+
+And Exodus 22:20 speaks of it clearly: If you love and worship something other than the Creator God, you are destined for destruction.
+
+To put it bluntly, we are all destined to die.
+
+Let us continue to move through the Old Testament. When we get to Deuteronomy and Joshua, we see that God has commanded the Israelites to devote entire cities to utter destruction due to God's righteous judgment. Again, while "innocent before proven guilty" is just and merciful among mortals, limited in knowledge and wisdom, in the eyes of God we all have sinned and fallen short of his glory (Romans 3:23). The wages we earn for falling short of his glory--for our sin--are death (Romans 6:23 cf. Genesis 2:16).
+
+>Romans 3:23 For all have sinned and fall short of the glory of God;
+
+>Romans 6:23a For the wages of sin is death [. . .]
+
+>Genesis 2:16-17 And the LORD God commanded the man, "You are free to eat from any tree of the garden, but you must not eat from the tree of the knowledge of good and evil, for on the day you eat from it, you will certainly die."
+
+It is hard for us to imagine or understand how every single man, woman, and child can be condemned to death when we have no way of knowing if they lived good and decent lives. What if they were helpful, kind, and understanding? What if they lived in peace and love? What if they were good? 
+
+We might think we are good, and the Lord gets to the heart of the matter:
+
+>Proverbs 16:2 All a person's ways seem right to him, but the LORD weighs motives.
+
+Yet, those who believe in God know that none of us is good, no, not even one:
+
+>Romans 3:10-12 as it is written:
+There is no one righteous, not even one.
+There is no one who understands;
+there is no one who seeks God.
+All have turned away;
+all alike have become worthless.
+There is no one who does what is good,
+not even one.
+
+We may have to reconsider our upbringing when we approach the throne of God and begin to study the nature of God — that God is good, holy, perfect, righteous, just, loving, kind, gracious, and merciful. Always, every time, with no exception. 
+
+In light of his glory and grace, this is the life we live apart from God:
+
+>Matthew 7:13 Enter through the narrow gate. For the gate is wide and the road broad that leads to destruction, and there are many who go through it.
+
+God is omniscient in that He is all-knowing and sees the heart:
+
+>1 Samuel 16:7 But the LORD said to Samuel, "Do not look at his appearance or his stature because I have rejected him. Humans do not see what the LORD sees, for humans see what is visible, but the LORD sees the heart."
+
+>Romans 8:27 And he who searches our hearts knows the mind of the Spirit, because he intercedes for the saints according to the will of God.
+
+God is holy, for he does not have to tolerate sin. God is omnipotent in that He alone has the power to make all things righteous with Him.  And to make everything right with Him, God is perfectly willing to remove our lives from the face of the earth and judge us to live apart from Him forever.
+
+But God, who is rich in grace, abundant in mercy, and pours out his loving kindness as a flood, predestines his people not to destruction and not to die but to peace, joy, hope, and love, and to live finally!
+
+>Matthew 7:14 How narrow is the gate and difficult the road that leads to life, and few find it.
+
+Our destiny lies in destruction. To try to control our destiny is to forsake and forget the Lord your God:
+
+>Isaiah 65:11-12 But you who abandon the LORD,  
+>who forget my holy mountain,  
+>who prepare a table for Fortune  
+>and fill bowls of mixed wine for Destiny,  
+>I will destine you for the sword,  
+>and all of you will kneel down to be slaughtered,  
+>because I called and you did not answer,  
+>I spoke and you did not hear;  
+>you did what was evil in my sight  
+>and chose what I did not delight in."
+
+But God saves those whom he foreknew and loved before the beginning of time and before the foundations of the earth were laid, and he will do everything to make them like him. For those who heed his call and listen to his voice when he says, "Come to me," he will give rest for your weary souls. 
+
+>Matthew 11:28–30 "Come to me, all of you who are weary and burdened, and I will give you rest. Take my yoke upon you and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light."
+
+We may be heading toward destruction, but God will call those whom he has set his affection and love upon and, in turn, justify them before himself and raise them to be with him forever.
+
+>Romans 8:28–30 We know that all things work together for the good of those who love God, who are called according to his purpose. For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
+
 Here's the summation of the Christian faith: God is not a liar, and we believe what he says. Full stop.
 
 If he says it in his word, the same word that "God spoke to our ancestors by the prophets at different times and in different ways." And, "in these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him." (Heb 1:1-2), then it will come to pass.
