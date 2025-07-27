@@ -29,7 +29,7 @@
 
 ## The Devotion
 
-No one could assume that the adulteress then lived a perfect life from this point. No one would speculate that she never sinned again. Yet, in God the Father's eyes, not only forgiven, but rather, she had never sinned because she trusted in the whom the Father had sent.
+No one could assume that the adulteress then lived a perfect life from this point. No one would speculate that she never sinned again. Yet, in God the Father's eyes, not only forgiven, but rather, she had never sinned because she trusted in the one whom the Father had sent.
 
 We could easily write a fictional piece on the adulteress. We want to write that she lived a holy life in Shekinah glory for all of her days on earth. But any person born again longer than a day knows full well that the adulteress sinned. Her addictions and her trauma keep repeating the cycle of sin. She does not struggle with sin. She does sin. You do not struggle with sin. You do sin. I do not struggle with sin. I do sin. We all do. We have all fallen short of the glory of God. We will not be graded on a curve. For:
 
@@ -39,7 +39,7 @@ We could easily write a fictional piece on the adulteress. We want to write that
 
 >Galatians 3:10 For all who rely on the works of the law are under a curse, because it is written: Everyone who does not do everything written in the book of the law is cursed.
 
-Wretched man that I am! A wretched woman that she was! She did sinned. I will sin. That same sin that I have been forgiven of, I will do. Will there be condemnation in my future?
+Wretched man that I am! A wretched woman that she was! She did sin. I will sin. That same sin that I have been forgiven of, I will do. Will there be condemnation in my future?
 
 We cannot speculate on the adulteress — what sins she committed. But I will tell you this: I know that I know she had the Holy Spirit dwelling in her because God the Father had mercy on her, forgave her, and made his home in her. I know this because the Son of God, who is God, did not condemn her but died for her in her place for her sin.
 
@@ -47,21 +47,21 @@ We know that the adulteress sinned. But we also know that because she had the Ho
 
 >1 John 1:9 If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
 
-Turn to Christ and be instantly forgiven. Not a drop of wrath is reserved for you, for Christ drank the cup of wrath in full. Not a bit of condemnation is held back for you for your future sins--when Christ died, all of your sins were future sins. You are secured. You are sealed. You are set free. You are forgiven. You are loved. You are a child of God.
+Turn to Christ and be instantly forgiven. Not a drop of wrath is reserved for you, for Christ drank the cup of wrath in full. Not a bit of condemnation reserved for you and your future sins. Because when Christ died, all of your sins were future sins. If the death of Christ is perfect in saving you from your sins, then rest assured. The Almighty God secures you. The Holy Spirit seals you to God. Christ has set you free indeed. God has completely forgiven. God will forever love you. You are an adopted child of God.
 
->Oh close and blessed union! Justified by God, accepted in Christ, condemnation there cannot be. I stand in the Divine presence as Joshua stood before the Lord, or as the woman stood before the Savior, charged, accused, guilty; but I am in the presence of him who, though now he sits upon the throne as my Judge, once hung upon the cross as my Savior. And, investing me with his own spotless robe, he proceeds to pronounce the sentence- "NO CONDEMNATION!"
+>Oh, close and blessed union! Justified by God, accepted in Christ, condemnation there cannot be. I stand in the Divine presence as Joshua stood before the Lord, or as the woman stood before the Savior, charged, accused, guilty; but I am in the presence of him who, though now he sits upon the throne as my Judge, once hung upon the cross as my Savior. And, investing me with his own spotless robe, he proceeds to pronounce the sentence- "NO CONDEMNATION!"
 >
->"These things write I unto you that your joy may be full."
+> "These things write I unto you that your joy may be full."
 >
 >Octavius Winslow. No Condemnation in Christ Jesus. 191.
 
-The adulteress turned to Christ when she sinned because Christ came to save us from our sins. The adulteress was bondage to corruption, and Christ the Firstborn came to make her a child of God and give her the freedom that only belongs to the children of God. The adulteress was the worst of sinners! But didn't Christ come to save even the chief of sinners?
+The adulteress turned to Christ when she sinned because Christ came to save us from our sins. The adulteress was bound to corruption, and Christ the Firstborn came to make her a child of God and give her the freedom that only belongs to the children of God. The adulteress was the worst of sinners! But didn't Christ come to save even the chief of sinners?
 
 Who is the greatest sinner? That's Paul. That's her. That's you. That's me.
 
 And yet, God loved us.
 
->Romans 5:6-8 For while we were still helpless, at the right time, Christ died for the ungodly. For rarely will someone die for a just person — though for a good person perhaps someone might even dare to die. <span class="bgy">But God proves his own love for us in that while we were still sinners, Christ died for us.</span>
+>Romans 5:6-8 For while we were still helpless, at the right time, Christ died for the ungodly. For rarely will someone die for a just person — though for a good person perhaps someone might even dare to die. <span class= "bgy">But God proves his own love for us in that while we were still sinners, Christ died for us.</span>
 
 God loved us.
 
@@ -75,7 +75,7 @@ God loved us.
 
 >Galatians 2:20 I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
 
-We sinned but God loved us.
+We sinned, but God loved us.
 
 >Psalm 103:8-14  
 >The LORD is compassionate and gracious,  
@@ -95,23 +95,23 @@ We sinned but God loved us.
 >For he knows what we are made of,  
 >remembering that we are dust.
 
-We keep sinning, but God keeps loving us.
+We continue to sin, but God continues to love us.
 
 >Titus 3:3–7 For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior so that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
-We have forever broken the law of God but God will forever love us.
+We have forever broken God's law, but God will forever love us.
 
->Ephesians 2:1–10 And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. But God, who is rich in mercy, because of his great love that he had for us, made us alive with Christ even though we were dead in trespasses. You are saved by grace! He also raised us up with him and seated us with him in the heavens in Christ Jesus, so that in the coming ages he might display the immeasurable riches of his grace through his kindness to us in Christ Jesus. For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—not from works, so that no one can boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
+>Ephesians 2:1–10 And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. But God, who is rich in mercy, because of his great love that he had for us, made us alive with Christ even though we were dead in trespasses. You are saved by grace! He also raised us up with him and seated us with him in the heavens in Christ Jesus, so that in the coming ages he might display the immeasurable riches of his grace through his kindness to us in Christ Jesus. For you are saved by grace through faith, and this is not from yourselves; it is God's gift—not from works, so that no one can boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
 
 My child, God will never stop loving you because he never started loving you. 
 
 >Ephesians 1:3–14 Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One. In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace that he richly poured out on us with all wisdom and understanding. He made known to us the mystery of his will, according to his good pleasure that he purposed in Christ as a plan for the right time—to bring everything together in Christ, both things in heaven and things on earth in him. In him we have also received an inheritance, because we were predestined according to the plan of the one who works out everything in agreement with the purpose of his will, so that we who had already put our hope in Christ might bring praise to his glory. In him you also were sealed with the promised Holy Spirit when you heard the word of truth, the gospel of your salvation, and when you believed. The Holy Spirit is the down payment of our inheritance, until the redemption of the possession, to the praise of his glory.
 
-This is the great love of God.
+The gospel of God is the great love of God.
 
->John 3:14–17 “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life. For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
+>John 3:14–17 "Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life. For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
 
-And there is nothing that will come between you and the Triune God.
+And there is nothing that will come between you and God forever.
 
 >Romans 8:36–39 As it is written: Because of you we are being put to death all day long; we are counted as sheep to be slaughtered. No, in all these things we are more than conquerors through him who loved us. For I am persuaded that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
 
