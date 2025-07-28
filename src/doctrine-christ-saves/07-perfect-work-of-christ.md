@@ -10,7 +10,7 @@
 
 ## The Devotion
 
-Many people have argued that the God of the Old Testament and the God of the New Testament are two completely different entities. 
+Many people argue that the God of the Old Testament and the God of the New Testament are two distinct entities. 
 
 Have you heard this argument?
 
@@ -30,37 +30,37 @@ And did not finish that statement without further proclaiming and clarifying:
 
 >John 3:36 The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 
-So, quite simply, by seeing the wrath of God in both Testaments, we know that God is eternally God past, present, and future.
+So, quite simply, by seeing the wrath of God in both Testaments, we know that God is eternally God, past, present, and future.
 
-But what about His love, mercy, and grace? What about gospel of God, which Paul rightly declares to be "the power of God in salvation for those who believe, to the Jew first and also the Greek," to which he was not ashamed of? (Romans 1:16-17)
+But what about his love, mercy, and grace? What about gospel of God, which Paul rightly declares to be "the power of God in salvation for those who believe, to the Jew first and also the Greek," to which he was not ashamed of? (Romans 1:16-17)
 
-To try to speak of God’s grace upon constant grace, His daily renewed mercies, and His steadfast love throughout the Bible, I believe we have to also look at his righteousness throughout the Bible.
+To try to speak of God’s grace upon constant grace, his daily renewed mercies, and his steadfast love throughout the Bible, I believe we have to also look at his righteousness throughout the Bible.
 
 But what is righteousness? Oxford defines it as "Of a person: acting or disposed to act rightly or justly; conforming to the precepts of divine law or accepted standards of morality; upright, virtuous.”[^righteous] When God defines it, he takes it to that next proverbial level: "To stand upright in the presence of God.” That is to say: to be without sin, to be perfect.
 
 Here’s the reality: we don’t know a time or place ever in our lives or in our souls that was without the effects and consequences of sin. We cannot fully comprehend what it truly means to be perfect and righteous. 
 
-Can we? Even saying something like "That dress is perfect!” or "This gift is so perfect” really doesn’t mean the same thing as to call a person perfect or righteous.
+Can we? Even saying something like "That dress is perfect!” or "This gift is so perfect” really doesn’t mean the same thing as calling a person perfect or righteous.
 
 And yet, the Creator God of the universe requires us to be perfect, never to perish, and more so than that, to be with Him forever. To be with God now and forever requires you to be free from sin, never have known sin, committed any sin, or failed to do the thing you were supposed to do.
 
-And when we are face with the objective truth that God requires perfection in order be declared righteous, there are usually three reactions.
+And when faced with the objective truth that God requires perfection to be declared righteous, people usually respond in three ways.
 
-One is hubris. "Well, I guess I'd better roll up my sleeves and get to work. I know I can do this if I maintain perfect control of myself, but more so, if I can also control those people around me and the world around me. If everyone acts right, I can be right and my life will be perfect.”
+One reaction is hubris. "Well, I guess I'd better roll up my sleeves and get to work. I know I can do this if I maintain perfect control of myself, but more so, if I can also control those people around me and the world around me. If everyone acts right, I can be right and my life will be perfect.”
 
-Two is despair. "Oh my God! I cannot possibly obey God! What can I even do?”
+The second response is despair. "Oh my God! I cannot possibly obey God! What can I even do?”
 
-Three is apathy. "Why even bother? This impossible. Screw God, his people, and his made-up laws. They are not real and made up anyway.”
+Last response is apathy. "Why even bother? This impossible. Screw God, his people, and his made-up laws. They are not real and made up anyway.”
 
 And all three lead not to joy and pleasures but to destruction and death.
 
-That monster, Satan, came to kill, steal, and destroy. And Satan has already come into our world and did just that. Think about this: Adam and Eve had it all. Not because they had all their needs met, but even more, they had it all because they had God. They were already righteous with their God our Father. But in the original parents’ fatal mistake, God doesn’t respond with instant judgment. Instead, God lovingly and calmly comes into our world, evident by simply strolling through the coolness of the garden, looking for His two lost children.
+That monster, Satan, came to kill, steal, and destroy. And Satan has already come into our world and did just that. Think about this: Adam and Eve had it all. Not because they had all their needs met, but even more, they had it all because they had God. They were already righteous in their dealings with their God, our Father. But in the original parents’ fatal mistake, God doesn’t respond with instant judgment. Instead, God lovingly and calmly comes into our world, evident by simply strolling through the coolness of the garden, looking for His two lost children.
 
 God calls out, "Adam, where are you? Why are you wearing those ridiculous things? Who said you were naked?”
 
 In other words, "What’s wrong? Tell me, Son. Tell me, daughter. What is wrong?”
 
-God doesn’t respond out of judgment alone, although he alone rightfully judges. He did not instantly cause them to drop dead--although their bodies along with the rest of creation began. their decay unto death. God doesn’t just respond out of righteousness. No, God reacts fully and truly out of everything he is, perfectly and fully.
+God doesn’t respond out of judgment alone, although he alone rightfully judges. He did not instantly cause them to drop dead--although their bodies, along with the rest of creation, began their decay unto death. God doesn’t just respond out of righteousness. No, God reacts fully and truly out of everything he is, perfectly and fully.
 
 It is out of the perfection and fullness of God’s love, desires, affections, mercy, grace, justice, righteousness, patience, peace, holiness, aseity, omnipotence, omniscience, and omnipresence that we can fully see in God’s response.:
 
@@ -73,7 +73,7 @@ From the moment we sinned against him, God has not eradicated us. Instead, with 
 
 God doesn’t chastise or even condemn. (Bear with me: I will get to that in a moment.)  Instead, God responds with, "Satan, I will send Someone to make this right. You might think you have hurt him, but he will crush your skull underneath his bare foot once and for all.”
 
-God promises the monster his death. God makes this threat-promise in front of his naked, scared, frightened, sin-filled kids. With Adam and Eve as his first witnesses, God promises He alone will fix what they did--sin against him. And in this verse, we see the three steps he will take to make all things right with him. Step one: God was sending Someone to be born of a woman. Step two: This Someone would suffer. And yet, step number three, this sent one smash the enemy's head to smithereens.
+God promises the monster his death. God makes this threat-promise in front of his naked, scared, frightened, sin-filled kids. With Adam and Eve as his first witnesses, God promises that He alone will rectify what they did — sin against Him. And in this verse, we see the three steps he will take to make all things right with him. Step one: God was sending Someone to be born of a woman. Step two: This Someone would suffer. And yet, step number three, this sent one smashing the enemy's head to smithereens.
 
 And when God turns to Adam and Eve, I believe that God doesn’t just instantly judge them. Why would I say this? Because after this encounter, they are still standing on the earth. What I see is that God is simply laying out the consequences and curses of sin in their lives and the world.
 
@@ -81,9 +81,9 @@ Do not miss this next part. When you teach a Sunday school lesson, preach the wo
 
 >Genesis 3:21 The LORD God made clothing from skins for the man and his wife, and he clothed them.
 
-Now, if you had only read the Bible for the first time in your life, and chapter 3, verse 21 was the first time you had ever heard of that, that might not mean anything to you. I mean, it’s nice that God covered their naked bodies. But as the days and lives continue after this moment, God continues to interact, guide, speak to, and reveal His glory to his people; we can go back and see what God was doing in that instance. It is only when I read through the law and the gospel that I can reread that verse in actual truth. God gives them his righteousness because they heard his gospel and believed.
+Now, if you had only read the Bible for the first time in your life, and chapter 3, verse 21 was the first time you had ever heard of that, that might not mean anything to you. I mean, it’s nice that God covered their naked bodies. But as the days and lives continue after this moment, God continues to interact, guide, speak to, and reveal His glory to his people; we can go back and see what God was doing in that instance. It is only when I read through the law and the gospel that I can reread that verse in actual truth. God gives them His righteousness because they have heard His gospel and believed.
 
-That Adam and Eve sinned, and they tried covering up their sins with their self-righteousness, which are as dirty garments before God. But God responds by preaching the Gospel of his Son. Adam and Eve react by believing the Gospel. And because they believed in God, God takes away their sin and self-righteousness and clothes them with His righteousness.
+That Adam and Eve sinned, and they tried covering up their sins with their self-righteousness, which is as dirty garments before God. But God responds by preaching the Gospel of his Son. Adam and Eve react by believing the Gospel. And because they believed in God, God takes away their sin and self-righteousness and clothes them with His righteousness.
 
 Don’t believe me?
 
@@ -95,11 +95,11 @@ What did the father do? He quickly covered his son’s mess, shame, and guilt wi
 
 The father in the parable had all the means to restore his son to his own family. But how much more is the Good Father in heaven able to restore and bring the very worst and vilest sinners into his own family?
 
-God knows everything about you. He determines when you were born and where you will live. On top of that, He knows when you were far from him, running away from him, and sinning treasonously against Him. He sees all of that. He knows all of that. God also knows when you appear to do good things, but your heart is not in the right place and you only do good things to serve yourself. Namely, your heart is not perfectly about God. But when God saw you in your unrighteousness, he decided not to judge you to an instant condemnation. But even before the creation of the world, God had chosen to save you.
+God knows everything about you. He determines when you were born and where you will live. On top of that, He knows when you were far from him, running away from him, and sinning treasonously against Him. He sees all of that. He knows all of that. God also knows when you appear to do good things, but your heart is not in the right place, and you only do good things to serve yourself. Namely, your heart is not perfectly about God. But when God saw you in your unrighteousness, he decided not to judge you to instant condemnation. But even before the creation of the world, God had chosen to save you.
 
-Just as God slew an animal to clothe his kids, the slaying of that animal did not save them. Just as God proclaims his law to His people, that law could not and did not save them--it was too weak to do so. Even when God laid out the instructions to spill the blood of perfect, spotless animals to show his people what God must do to save them, not even the animals’ dried blood that completely stained the bronze altar would save his people! (Hebrews 10:4)
+Just as God slew an animal to clothe his kids, the slaying of that animal did not save them. Just as God proclaims His law to His people, that law could not and did not save them —it was too weak to do so. Even when God laid out the instructions to spill the blood of perfect, spotless animals to show his people what God must do to save them, not even the animals’ dried blood that completely stained the bronze altar would save his people! (Hebrews 10:4)
 
-No! God demanded the Perfect Sacrifice, and that sacrifice had to be Man. But here’s the dilemma: no one ever born of man is perfect. No one! All who were born of Adam inherited Adam’s wicked and depraved heart. No one is righteous. No, not one. All of us have fallen way short of the glory of God. But under the law of God, the shedding of blood purified everything, and without the shedding of blood, there is no removal of sin. (Hebrews 9:22) Man has fallen into sin, committed sin even when they thought they were obeying the law of God (they were not), and only man can atone for sin. You cannot atone for sin when you are born in sin and have always sinned. God has a perfect requirement for atonement: it is a perfect man who lives perfectly, and can never know sin. This man could even be tempted as we are, but still freed from sin. From the moment I was stitched together by God in my mother’s womb, I am disqualified from atoning for my sin. My very birth was into sin, and my continuous disobedience condemns me before the righteous and just God. And don’t get hung up on the word ‘continuous’ as if I could somehow stop sinning on my own. If I had broken one of God's laws, I am guilty of breaking all of the laws of God. (James 2:10)
+No! God demanded the Perfect Sacrifice, and that sacrifice had to be Man. But here’s the dilemma: no one ever born of man is perfect. No one! All who were born of Adam inherited Adam’s wicked and depraved heart. No one is righteous. No, not one. All of us have fallen way short of the glory of God. But under the law of God, the shedding of blood purified everything, and without the shedding of blood, there is no removal of sin. (Hebrews 9:22) Man has fallen into sin, committed sin even when they thought they were obeying the law of God (they were not), and only man can atone for sin. You cannot atone for sin when you are born in sin and have always sinned. God has a perfect requirement for atonement: it is a perfect man who lives perfectly, and can never know sin. This man could even be tempted as we are, but still be freed from sin. From the moment I was stitched together by God in my mother’s womb, I am disqualified from atoning for my sin. My very birth was into sin, and my continuous disobedience condemns me before the righteous and just God. And don’t get hung up on the word ‘continuous’ as if I could somehow stop sinning on my own. If I had broken one of God's laws, I would be guilty of breaking all of God's laws. (James 2:10)
 
 With every single verse, chapter, and book in the Old Testament, God continuously, lovingly, and graciously preached His Gospel to his people, both Jew and Gentile: "I know you have sinned. I have specific laws that you must perfectly obey to be with me forever. They are but the standard by which to live with me forever. Oh, I know you were going to fail. All of you will fail. And your sins will have consequences--sometimes even dire and mortal. But trust in me. No matter how many times you fail, trust me. Maybe not in your lifetime, or your kids’ lifetime, or your kids’ kids' lifetime, but I promise you that one day I will fix everything that you have broken."
 
