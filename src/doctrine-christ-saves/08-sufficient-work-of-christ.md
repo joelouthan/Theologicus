@@ -15,29 +15,120 @@
 
 ## The Devotion
 
-This is the Almighty Triune God whom has set his loving affections upon you before the creation of heaven and earth. God will never stop loving you because he never started loving you.[^vos]
+>1 John 1:9 If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
+
+This faithfulness of God is the magnificence of the True God.
+
+The God of the Old Testament, who called down judgment on the wicked and the departed. The same God who expressed his faithfulness to his faithless people. The God whose steadfast love never ceased to those whom he promised would make all things right. The infinitely powerful God who was able always to woo and pursue the hearts of his children and bring them out of death and destruction back into life everlasting. The holy God who did not destroy our original parents when they chose themselves over him. The righteous God who redeems and restores. The Lord who resets his mercies every morning. The gracious God pours his heart out like a mighty river.
+
+What have we done? Fought against God. War against God. Blaspheme against his holy name. Sought out the destruction of all living things. We tend to think of ourselves as superior to everything. Shall we receive this glory? Shall we behold all the praises due because of all the good works we have done, the brilliant thoughts we have thought up, and how we have pushed ourselves to improve over the generation before us? How good are we! How we need to be exalted! How no harm, no foul, no evil, no bad thing should ever happen against us! If anything bad happens to us, God is not a just god, not a good god, not a great god, not a powerful god, and not a loving god. Therefore, there is no god. And in the same breath, we double down in our hypocrisy of believing there is no god, and then we choose to declare war against him as everything in this universe descends into utter chaos and our undoing. That does not make sense. But no one said that the effects of sin are reasonable and logical. The effects of sin are death--and with that comes a distorted lens to see all things. 
+
+In whatever we do and all we have done, He is mournful, sorrowful, and grieved, but he is not phased and he is not moved. His will still carries on from the beginning of time, and he is determined, nay, absolute that his people will be with him to enjoy him for his glory alone forevermore.
+
+This is the God who does not quit.
+
+This is the God who does not relent.
+
+This is the God who does not forget.
+
+This is the God who saves.
+
+This is the God who loves
+
+This is the God who bled.
+
+This is the God who died.
+
+This is the God who gave his life up for me.
+
+Jesus Christ stood before his blasphemous people—people who cried and rejoiced with their lips, "Hosanna in the highest!" just days before, now are ready to cry out in a murderous rage to crucify the Son of God who is God. 
+
+Jesus Christ, the glorious Lord, stood side-by-side a convicted murderer, Barabbas, as the governor audaciously asked the people, "Who would you rather have living with you in your neighborhoods, shopping in your shops, doing business with, passing by you on the streets? Who do you want: God or a murderer?"
+
+The rational, reasonable, and logical answer is clear: we should want the innocent man! We should want God! But we did not pick God. Our sinful hearts will choose the comforts of sin every time.
+
+>Leviticus 16:21–22 Aaron will lay both his hands on the head of the live goat and confess over it all the Israelites' iniquities and rebellious acts—all their sins. He is to put them on the goat's head and send it away into the wilderness by the man appointed for the task. The goat will carry all their iniquities into a desolate land, and the man will release it there.
+
+In the Old Testament, Aaron lists all of the sins of the people, all of their follies, all of their iniquities, and all of their transgressions. With that massive, terrible list, Aaron touches the head of the goat and pushes it through the crowds and directs the goat into the vastness of the wilderness, always lost, always running in freedom and never to be seen again.
+
+Barabbas was presented as the culmination of humanity's best qualities, yet our depravity and wickedness stared us straight in the face. We don't want better. We don't want perfection. We want more of our wicked hearts' desires. We want not his holiness, his forgiveness, and his love. We want more of what this world can offer.
+
+We pick the goat with all of our sins. We are the ones who picked Barabbas. Yet, just like the goat into the wilderness, Barabbas is forgotten from ancient history, never to be heard from again.
+
+The only thing we have done right is sin. However, by faith alone, we can place those sins on the one who would bear it all for those who have and will come to trust in him. The only thing we have done right is allow the Son of God to be crucified. The only right thing we have said is, "Crucify Him!"
+
+In his beatings, his whippings, his crowning of thorns, in the nails stabbing through his hands and the spear through his heart were all needed to drain our Savior of his life-giving blood. He had his people to save, and He must do it perfectly:
+
+>Hebrews 9:22 According to the law almost everything is purified with blood, and without the shedding of blood there is no forgiveness.
+
+There is only one way that we can be forgiven of our sins: not a mere spoken magic word but actual violent, excruciating, vomit-inducing, and sickening slaughter of the Worthy Lamb.
+
+He had to save his people.
+
+He had to change his people.
+
+He had to cleanse his people so that they could know him and dwell with him forever:
+
+>Jeremiah 31:34 No longer will one teach his neighbor or his brother, saying, 'Know the LORD,' for they will all know me, from the least to the greatest of them"—this is the LORD's declaration. "For I will forgive their iniquity and never again remember their sin.
+
+He will not be angry at his people forever because He loves them too much. He does not bestow his righteous and just wrath upon his people because his people cannot bear it, lest they be destroyed and be apart from him forever. His love is as high and as great as the distance between heaven and earth, so too is the same distance our sins, wickedness, and atrocities are removed from us.
+
+>Psalm 103:8–13 (CSB)  
+><sup>8</sup> The LORD is compassionate and gracious, slow to anger and abounding in faithful love. 
+>
+><sup>9</sup> He will not always accuse us or be angry forever. 
+>
+><sup>10</sup> He has not dealt with us as our sins deserve or repaid us according to our iniquities. 
+>
+><sup>11</sup> For as high as the heavens are above the earth, so great is his faithful love toward those who fear him. 
+>
+><sup>12</sup> As far as the east is from the west, so far has he removed our transgressions from us. 
+>
+><sup>13</sup> As a father has compassion on his children, so the LORD has compassion on those who fear him.
+
+Our God is the God of compassion, mercy, forgiveness, and grace.
+
+We know this because God sent his only begotten Son, Jesus Christ, Son of God, who is God, to be hung upon that cursed tree, to be pierced and bled out like a slaughtered lamb for all of our sins.
+
+This is the Almighty Triune God who has set his loving affections upon you before the creation of heaven and earth. God will never stop loving you because he never started loving you.[^vos]
 
 >Jeremiah 31:3 the LORD appeared to him from far away. I have loved you with an everlasting love; therefore, I have continued to extend faithful love to you.*
 
 He is the everlasting to everlasting God who loves from everlasting to everlasting. For his people, for the ones he has always loved, he makes a holy and blessed covenant: to send his only begotten Son, Jesus Christ, God in the flesh, to live and die for his people, whom he has always loved, and bring them all the way home- if only by the Holy Spirit.
 
-And this is the Christ, the Worthy Lamb Who Was Slain, the blessed sacrifice, whose life, death, and blood cleanse you perfectly from all unrighteousness and sin. God saw you not in your goodness, not in your choosing him, not in your repeating the sinner's prayer, but in fact, he saw you in sin and death--a treasonous rebel! He did not pronounce death for you but life. You had to be saved from your sins. You must be born again. But he did not merely say the proclamation. He backed it up with action. He alone came to save us. He alone executed the grand plan of salvation. From Genesis to Revelation, it would be all him: creating us, even when  we sinned, he preaches good news that he will make all things right with him.
+And this is the Christ, the Worthy Lamb Who Was Slain, the blessed sacrifice, whose life, death, and blood cleanse you perfectly from all unrighteousness and sin. God saw you not in your goodness, not in your choosing him, not in your repeating the sinner's prayer, but in fact, he saw you in sin and death--a treasonous rebel! He did not pronounce death for you but life. You had to be saved from your sins. You must be born again. But he did not merely say the proclamation. God backed it up with action. God alone came to save us. God alone executed the grand plan of salvation. From Genesis to Revelation, it is all about the Christ. Despite knowing our sinful estate, he created us, saved us, and because of the perfect work of the perfect Christ, he glorified us! He preaches good news that he will make all things right with Him.
 
-The Christ was sent to take on flesh--to be born of the Virgin Mary. He grew like any other person — in wisdom, understanding, and stature. But unlike everybody else, he was perfect. Not super good. Not talented. Not never got in trouble. No! He obeyed the holy law of God perfectly and completely. The first Adam--our original father--failed. This second Adam did not fail. And if you think he was just a super-legalistic Pharisee who was good and white-knuckling his way through 33 years of his life, this is where it becomes perfect: he did it with complete joyful communion with the Father.
+The Christ was sent to take on flesh--to be born of the Virgin Mary. He grew like any other person — in wisdom, understanding, and stature. But unlike everybody else, he was perfect. Not super good. Not talented. I never got in trouble. No! He obeyed the holy law of God perfectly and completely. The first Adam--our original father--failed. This second Adam did not fail. And if you think he was just a super-legalistic Pharisee who was good and white-knuckling his way through 33 years of his life, this is where it becomes perfect: he did it with complete joyful communion with the Father.
 
-He was the only human who did not deserve death.
+Christ was the only human who did not deserve death.
 
-He was the only human who died a perfect man.
+Christ was the only human who died a perfect man.
 
-His blood was shed to cleanse you from your sins.
+Christ shed his blood to cleanse you from your sins.
 
 That work, the blood sacrifice of the Lamb, was perfect. He perfectly cleansed you and me from our sins. Once and for all.
 
-And here is the good news: to lest you worry and doubt, dear Christian, that he covered your sins when you were born again. But you have sinned. You and I have sinned since we been set free. Why am I sinning more? I confess! I repent! But I keep doing the things I don't want to do.
+And here is the good news, lest you worry and doubt, dear Christian. That Christ covered your sins when you were born again.
 
-Dear child, don't you see? The cross of Christ was over 2000 years ago. All of your sins since the cross have always been *future* sins.
+And because you have the Triune God dwelling in you, you are keenly aware that you have sinned since being born again. "I thought I was done with sin! I keep sinning!" You and I have sinned since we have been set free. Why am I sinning more? I keep confessing! I keep repenting! But I keep doing the things I don't want to do.
+
+Then you are in excellent company with all believers, including the Apostle Paul.
+
+>Romans 7:22–24 For in my inner self I delight in God's law, but I see a different law in the parts of my body, waging war against the law of my mind and taking me prisoner to the law of sin in the parts of my body. What a wretched man I am! Who will rescue me from this body of death?
+
+Who is the one who has rescued but will continue to rescue us from our bodies of death?
+
+The same God who saved is the same God who saves.
+
+That is our one and only, only Lord Jesus Christ.
+
+Dear child, don't you see? The cross of Christ was over 2000 years ago. All of your sins since the cross have always been *future* sins. Christ's perfect life, purifying death, righteous resurrection, and holy ascension, back then, covered your sins and removed them from you as far as the east is from the west.
 
 Christ has grace for you when he saved you. Christ has grace and forgiveness for all of your life. Christ has rescued you. Christ has you covered perfectly. Christ is in you. Christ is with you. Christ will bring you all the way home.
+
+>1 John 1:9 If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
+
+We call upon him. We look towards him. We reach out and cry, "Lord, have mercy on me, a sinner." And faster than you can snap your fingers, God forgave you. God was quick to forgive you because you have his only begotten Son forever and ever.
 
 ## The Scriptures
 
