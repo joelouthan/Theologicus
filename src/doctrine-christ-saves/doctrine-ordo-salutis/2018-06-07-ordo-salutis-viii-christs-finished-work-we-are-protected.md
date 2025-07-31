@@ -18,7 +18,7 @@ css: "prayers"
 draft: true
 
 ---
-> Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+> Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 This has been one of the most difficult chapters to write because there is so much to be packed into the doctrine of propitiation. The only way I could approach this is to start at the beginning and start at the high altitude and work our way down. To understand propitiation, we must understand God, his law, his love and his holiness.
 
@@ -34,7 +34,7 @@ This is why we must understand His holiness. Yes, the holiness of God can big an
 
 In the beginning, God gives us just one command--Follow this one simple rule and God will take care it all. Let see how that unfolds:
 
->Genesis 3:1–7 (CSB)  
+>Genesis 3:1–7  
 > 1  Now the serpent was the most cunning of all the wild animals that the LORD God had made. He said to the woman, “Did God really say, ‘You can’t eat from any tree in the garden’?” 
 
 > 2  The woman said to the serpent, “We may eat the fruit from the trees in the garden. 
@@ -53,7 +53,7 @@ In other words, this is what I think Eve was thinking "Hmm, I want my way. Man, 
 
 What did God say would happen? Go back and read:
 
->Genesis 2:15-17 (CSB) The LORD God took the man and placed him in the garden of Eden to work it and watch over it. 16 And the LORD God commanded the man, “You are free to eat from any tree of the garden, 17 but you must not eat from the tree of the knowledge of good and evil, for on the day you eat from it, you will certainly die.”
+>Genesis 2:15-17 The LORD God took the man and placed him in the garden of Eden to work it and watch over it. 16 And the LORD God commanded the man, “You are free to eat from any tree of the garden, 17 but you must not eat from the tree of the knowledge of good and evil, for on the day you eat from it, you will certainly die.”
 
 Forthwith, the wages of sin is death.
 
@@ -61,7 +61,7 @@ Did God kill them right away? No. But what cannot be denied, evident by the enti
 
 Because of sin, God’s wrath and judgment fall in three ways: eventual death, sudden death and a giving over to what we want. All three ways lead to separation from God.
 
->Genesis 3:15–24 (CSB)  
+>Genesis 3:15–24  
 > 15  I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel. 
 
 > 16  He said to the woman: I will intensify your labor pains; you will bear children with painful effort. Your desire will be for your husband, yet he will rule over you. 
@@ -86,21 +86,21 @@ In other words, life is going to be hard and at the end, you are going to die.
 
 But let us take a quick look at the sudden execution of God’s judgment:
 
->Genesis 13:13 (CSB) (Now the men of Sodom were evil, sinning immensely against the LORD.)
+>Genesis 13:13 (Now the men of Sodom were evil, sinning immensely against the LORD.)
 
->Genesis 18:20-21 (CSB) Then the LORD said, “The outcry against Sodom and Gomorrah is immense, and their sin is extremely serious. 21 I will go down to see if what they have done justifies the cry that has come up to me. If not, I will find out.”
+>Genesis 18:20-21 Then the LORD said, “The outcry against Sodom and Gomorrah is immense, and their sin is extremely serious. 21 I will go down to see if what they have done justifies the cry that has come up to me. If not, I will find out.”
 
 So based on Genesis 2 and Romans 6:23, what do you think is going to happen to the Sodom and Gomorrah? The judgment here is obvious, "Well, that is easy, they were wicked and they deserve to die.”
 
 Let’s go to other places where it is not so obvious.
 
-God commands. Pharaoh disobeys. Pharaoh pretends to confess his sins but as soon as the current plague disappears, he sins and hardens his heart. {#return-note-3393-2.simple-footnote}
+God commands. Pharaoh disobeys. Pharaoh pretends to confess his sins but as soon as the current plague disappears, he sins and hardens his heart.
 
 God warned Pharaoh of his judgment and wrath. God’s own people believed.
 
 But Pharaoh did not believe.
 
->Exodus 12:29-32 (CSB) Now at midnight the LORD struck every firstborn male in the land of Egypt, from the firstborn of Pharaoh who sat on his throne to the firstborn of the prisoner who was in the dungeon, and every firstborn of the livestock. 30 During the night Pharaoh got up, he along with all his officials and all the Egyptians, and there was a loud wailing throughout Egypt because there wasn’t a house without someone dead. 31 He summoned Moses and Aaron during the night and said, “Get out immediately from among my people, both you and the Israelites, and go, worship the LORD as you have said. 32 Take even your flocks and your herds as you asked and leave, and also bless me.”
+>Exodus 12:29-32 Now at midnight the LORD struck every firstborn male in the land of Egypt, from the firstborn of Pharaoh who sat on his throne to the firstborn of the prisoner who was in the dungeon, and every firstborn of the livestock. 30 During the night Pharaoh got up, he along with all his officials and all the Egyptians, and there was a loud wailing throughout Egypt because there wasn’t a house without someone dead. 31 He summoned Moses and Aaron during the night and said, “Get out immediately from among my people, both you and the Israelites, and go, worship the LORD as you have said. 32 Take even your flocks and your herds as you asked and leave, and also bless me.”
 
 Judgment of a family who stolen from God. Joshua 7
 
@@ -114,21 +114,21 @@ I am not going to sugar coat this at all. Sometimes, the women and the children 
 
 Perhaps they were innocent in the laws of their land. But did they sin against God? Strike that—did we not all sin against God?
 
->Romans 3:23 (CSB) For all have sinned and fall short of the glory of God;
+>Romans 3:23 For all have sinned and fall short of the glory of God;
 
->Romans 5:12 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.
+>Romans 5:12 Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.
 
->James 2:10 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
+>James 2:10 For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
 
 If this is your first time hearing this or this is your millionth time hearing this, it is not easy to hear. This is not soft chew candy. This is tough, gristly meat cooked burnt to a well-done crisp that you have to chew on for days and even then, it’s painful to swallow.
 
 Let’s hammer this point and let us see how you, me, my kids, my future little babies, your babies, even my sainted grandma all were born into:
 
->Ephesians 2:1-3 (CSB) And you were dead in your trespasses and sins 2 in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. 3 We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
+>Ephesians 2:1-3 And you were dead in your trespasses and sins 2 in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. 3 We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
 
 We were all born by nature children of the wrath of God. To simply put it, we were born dead.
 
->John 3:36 (CSB) The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
+>John 3:36 The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 
 Finally, beyond sudden judgment and eventual judgment, there is a wrath that is not so obvious but it is where God simply gives us over to what we want. We keep suppressing His truth and we keep doing what we want. God simply goes, "You think your way is better, fine, go. Have it your way.”
 
@@ -144,19 +144,19 @@ His perfect obedient life, called out to us by the Father, empowered by the Holy
 
 God loves you so much. Before the creation of the world, he loved you. He looks upon all eternity and declares, "I must have you in my family. You are my son. You are my precious daughter. Yet you are running from me and you are so far from me. I cannot count on you to come back to me. You have no power to do so. Yet, I have all the power. I will send my Son and he will close that gap with his own life.”
 
->Isaiah 53:10 (CSB)  
+>Isaiah 53:10  
 > 10  Yet the LORD was pleased to crush him severely. When you make him a guilt offering, he will see his seed, he will prolong his days, and by his hand, the LORD’s pleasure will be accomplished.
 
 God the Father loved you so much that it pleased Him to send His Son to the cross.
 
 Father’s joy. Likewise, Christ loved you so much that for His glory, he saved you to Himself:
 
->Isaiah 43:25 (CSB)  
+>Isaiah 43:25  
 > 25  “I am the one, I sweep away your transgressions for my own sake and remember your sins no more
 
 And Christ did saved us with all humility and joy. 
 
->Philippians 2:5–8 (CSB)  
+>Philippians 2:5–8  
 > 5  Adopt the same attitude as that of Christ Jesus, 
 
 > 6  who, existing in the form of God, did not consider equality with God as something to be exploited. 
@@ -169,39 +169,39 @@ How do we know this? How do we know we are saved by God through the life and dea
 
 ### The Produce of the Spirit
 
->Galatians 5:22-23 (CSB) But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, 23 gentleness, and self-control. The law is not against such things.
+>Galatians 5:22-23 But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, 23 gentleness, and self-control. The law is not against such things.
 
->Matthew 7:15-20 (CSB) “Be on your guard against false prophets who come to you in sheep’s clothing but inwardly are ravaging wolves. 16 You’ll recognize them by their fruit. Are grapes gathered from thornbushes or figs from thistles? 17 In the same way, every good tree produces good fruit, but a bad tree produces bad fruit. 18 A good tree can’t produce bad fruit; neither can a bad tree produce good fruit. 19 Every tree that doesn’t produce good fruit is cut down and thrown into the fire. 20 So you’ll recognize them by their fruit.
+>Matthew 7:15-20 “Be on your guard against false prophets who come to you in sheep’s clothing but inwardly are ravaging wolves. 16 You’ll recognize them by their fruit. Are grapes gathered from thornbushes or figs from thistles? 17 In the same way, every good tree produces good fruit, but a bad tree produces bad fruit. 18 A good tree can’t produce bad fruit; neither can a bad tree produce good fruit. 19 Every tree that doesn’t produce good fruit is cut down and thrown into the fire. 20 So you’ll recognize them by their fruit.
 
 The evidence of the Spirit of God within us who produces His fruit.
 
 ### The Leadership of the Spirit
 
->Romans 8:3-7 (CSB) For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering, 4 in order that the law’s requirement would be fulfilled in us who do not walk according to the flesh but according to the Spirit. 5 For those who live according to the flesh have their minds set on the things of the flesh, but those who live according to the Spirit have their minds set on the things of the Spirit. 6 Now the mindset of the flesh is death, but the mindset of the Spirit is life and peace. 
+>Romans 8:3-7 For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering, 4 in order that the law’s requirement would be fulfilled in us who do not walk according to the flesh but according to the Spirit. 5 For those who live according to the flesh have their minds set on the things of the flesh, but those who live according to the Spirit have their minds set on the things of the Spirit. 6 Now the mindset of the flesh is death, but the mindset of the Spirit is life and peace. 
 
 The Holy Spirit leads us, guides us...
 
->Romans 8:7 The mindset of the flesh is hostile to God because it does not submit to God’s law. Indeed, it is unable to do so. 8 (CSB) Those who are in the flesh cannot please God.
+>Romans 8:7 The mindset of the flesh is hostile to God because it does not submit to God’s law. Indeed, it is unable to do so. 8 Those who are in the flesh cannot please God.
 
 The Holy Spirit enables us to obey God...
 
->Romans 8:9-10 (CSB) You, however, are not in the flesh, but in the Spirit, if indeed the Spirit of God lives in you. If anyone does not have the Spirit of Christ, he does not belong to him. 10 Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness.
+>Romans 8:9-10 You, however, are not in the flesh, but in the Spirit, if indeed the Spirit of God lives in you. If anyone does not have the Spirit of Christ, he does not belong to him. 10 Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness.
 
->1 John 5:1 (CSB) Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father also loves the one born of him.
+>1 John 5:1 Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father also loves the one born of him.
 
->John 3:6-8 (CSB) Whatever is born of the flesh is flesh, and whatever is born of the Spirit is spirit. 7 Do not be amazed that I told you that you must be born again. 8 The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.”
+>John 3:6-8 Whatever is born of the flesh is flesh, and whatever is born of the Spirit is spirit. 7 Do not be amazed that I told you that you must be born again. 8 The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.”
 
->John 10:9-10 (CSB) I am the gate. If anyone enters by me, he will be saved and will come in and go out and find pasture. 10 A thief comes only to steal and kill and destroy. I have come so that they may have life and have it in abundance.
+>John 10:9-10 I am the gate. If anyone enters by me, he will be saved and will come in and go out and find pasture. 10 A thief comes only to steal and kill and destroy. I have come so that they may have life and have it in abundance.
 
 The Holy Spirit makes us fully alive.
 
->Romans 8:12-13 (CSB) So then, brothers and sisters, we are not obligated to the flesh to live according to the flesh, 13 because if you live according to the flesh, you are going to die. But if by the Spirit you put to death the deeds of the body, you will live.
+>Romans 8:12-13 So then, brothers and sisters, we are not obligated to the flesh to live according to the flesh, 13 because if you live according to the flesh, you are going to die. But if by the Spirit you put to death the deeds of the body, you will live.
 
->Mark 9:47-49 (CSB) And if your eye causes you to fall away, gouge it out. It is better for you to enter the kingdom of God with one eye than to have two eyes and be thrown into hell, 48 where their worm does not die, and the fire is not quenched. 49 For everyone will be salted with fire.
+>Mark 9:47-49 And if your eye causes you to fall away, gouge it out. It is better for you to enter the kingdom of God with one eye than to have two eyes and be thrown into hell, 48 where their worm does not die, and the fire is not quenched. 49 For everyone will be salted with fire.
 
 The Holy Spirit gives us the grace and the actual strength to violently, relentlessly, repentantly kill off your sin.
 
->Romans 8:14-17 (CSB) For all those led by God’s Spirit are God’s sons. 15 For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” 16 The Spirit himself testifies together with our spirit that we are God’s children, 
+>Romans 8:14-17 For all those led by God’s Spirit are God’s sons. 15 For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” 16 The Spirit himself testifies together with our spirit that we are God’s children, 
 
 The Holy Spirit bears witness with our spirit that we are His children.
 
@@ -209,17 +209,17 @@ The Holy Spirit bears witness with our spirit that we are His children.
 
 The Holy Spirit does bring us to the inheritance of the Son. But get to that, the Holy Spirit carries us through the suffering and persecutions. Make no mistake: God will carry you through--but you will suffer just like your Savior.
 
->John 14:15-17 (CSB) “If you love me, you will keep my commands. 16 And I will ask the Father, and he will give you another Counselor to be with you forever. 17 He is the Spirit of truth. The world is unable to receive him because it doesn’t see him or know him. But you do know him, because he remains with you and will be in you.
+>John 14:15-17 “If you love me, you will keep my commands. 16 And I will ask the Father, and he will give you another Counselor to be with you forever. 17 He is the Spirit of truth. The world is unable to receive him because it doesn’t see him or know him. But you do know him, because he remains with you and will be in you.
 
->John 14:26 (CSB) But the Counselor, the Holy Spirit, whom the Father will send in my name, will teach you all things and remind you of everything I have told you.
+>John 14:26 But the Counselor, the Holy Spirit, whom the Father will send in my name, will teach you all things and remind you of everything I have told you.
 
->John 15:26-27 (CSB) When the Counselor comes, the one I will send to you from the Father —the Spirit of truth who proceeds from the Father—he will testify about me. 27 You also will testify, because you have been with me from the beginning.
+>John 15:26-27 When the Counselor comes, the one I will send to you from the Father —the Spirit of truth who proceeds from the Father—he will testify about me. 27 You also will testify, because you have been with me from the beginning.
 
->John 16:13-14 (CSB) When the Spirit of truth comes, he will guide you into all the truth. For he will not speak on his own, but he will speak whatever he hears. He will also declare to you what is to come. 14 He will glorify me, because he will take from what is mine and declare it to you.
+>John 16:13-14 When the Spirit of truth comes, he will guide you into all the truth. For he will not speak on his own, but he will speak whatever he hears. He will also declare to you what is to come. 14 He will glorify me, because he will take from what is mine and declare it to you.
  
 The Holy Spirit comforts us, reminds of us everything that God has taught
 
->John 16:7-11 (CSB) Nevertheless, I am telling you the truth. It is for your benefit that I go away, because if I don’t go away the Counselor will not come to you. If I go, I will send him to you. 8 When he comes, he will convict the world about sin, righteousness, and judgment: 9 About sin, because they do not believe in me; 10 about righteousness, because I am going to the Father and you will no longer see me; 11 and about judgment, because the ruler of this world has been judged.
+>John 16:7-11 Nevertheless, I am telling you the truth. It is for your benefit that I go away, because if I don’t go away the Counselor will not come to you. If I go, I will send him to you. 8 When he comes, he will convict the world about sin, righteousness, and judgment: 9 About sin, because they do not believe in me; 10 about righteousness, because I am going to the Father and you will no longer see me; 11 and about judgment, because the ruler of this world has been judged.
 
 The Holy Spirit convicts us of sin when we do not believe but reminds us of our righteousness because of everything that God has done in us. 
 
@@ -267,5 +267,14 @@ For those who are in Christ, God is not out to get you. God is not out to pour h
 
 But Christ, with his life and his love, protects and saves His people so that God can make all things right-standing with Himself.
 
->Matthew 1:21 She will bear a son, and you shall call his name Jesus, for he will save his people from their sins.”
-
+If I love thee my soul shall seek thee,
+- but can I seek thee unless my love to thee is kept alive to this end?
+- Do I love thee because thou art good,
+- and canst alone do me good?
+It is fitting thou shouldest not regard me,
+- for I am vile and selfish;
+- yet I seek thee,
+- and when I find thee there is no wrath to devour me,
+- but only sweet love.
+Thou dost stand as a rock between the scorching sun and my soul,
+- and I live under the cool lee-side as one elect.
