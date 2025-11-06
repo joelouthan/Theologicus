@@ -28,7 +28,7 @@
 If I had said it once, I will say it a million times: you want to do the most for your brothers and sisters? Pray.
 
 <figure style="text-align: center;">
-   <img src="../images/deadlift-franco-columbu.jpg" style="display: block; float: none; margin: auto; width: 600px;" alt="Franco Columbu deadlifting 657lbs">
+   <img src="deadlift-franco-columbu.jpg" style="display: block; float: none; margin: auto; width: 600px;" alt="Franco Columbu deadlifting 657lbs">
    <figcaption style="font-style: italic; text-align: center;">Grip it and rip it: Franco Columbu deadlifting 675 like it's his dang job</figcaption>
 </figure>
 
