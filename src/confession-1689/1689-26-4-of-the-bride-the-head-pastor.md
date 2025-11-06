@@ -57,7 +57,7 @@ God will gather his flock and raise up shepherds over them. He does this because
 >2 Thessalonians 2:2–9 (CSB) not to be easily upset or troubled, either by a prophecy or by a message or by a letter supposedly from us, alleging that the day of the Lord has come. Don’t let anyone deceive you in any way. For that day will not come unless the apostasy comes first and the man of lawlessness is revealed, the man doomed to destruction. He opposes and exalts himself above every so-called god or object of worship, so that he sits in God’s temple, proclaiming that he himself is God. Don’t you remember that when I was still with you I used to tell you about this? And you know what currently restrains him, so that he will be revealed in his time. For the mystery of lawlessness is already at work, but the one now restraining will do so until he is out of the way, and then the lawless one will be revealed. The Lord Jesus will destroy him with the breath of his mouth and will bring him to nothing at the appearance of his coming. The coming of the lawless one is based on Satan’s working, with every kind of miracle, both signs and wonders serving the lie,
 
 <figure style="text-align: center;">
-   <img src="peter-pope.jpg" style="display: block; float: none; margin: auto; width: 600px;" alt=""The Pope Succeeds Peter only in his denial of Christ." - Thomas Watson">
+   <img src="../images/peter-pope.jpg" style="display: block; float: none; margin: auto; width: 600px;" alt=""The Pope Succeeds Peter only in his denial of Christ." - Thomas Watson">
    <figcaption style="font-style: italic; text-align: center;">"The Pope Succeeds Peter only in his denial of Christ." - Thomas Watson</figcaption>
 </figure>
 
