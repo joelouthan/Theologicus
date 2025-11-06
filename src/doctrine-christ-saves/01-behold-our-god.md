@@ -6,11 +6,11 @@
 
 ## The Text
 
->Romans 8:27–30 (CSB) And he who searches our hearts knows the mind of the Spirit, because he intercedes for the saints according to the will of God. We know that all things work together for the good of those who love God, who are called according to his purpose. For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. <span class="bgy">And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.</span>
+>Romans 8:27-30 And he who searches hearts knows what is the mind of the Spirit because the Spirit intercedes for the saints according to the will of God. And we know that for those who love God, all things work together for good, for those who are called according to his purpose. For those whom he foreknew he also predestined to be conformed to the image of his Son, in order that he might be the firstborn among many brothers. <span class="bgyc">And those whom he predestined he also called, and those whom he called he also justified, and those whom he justified he also glorified.</span>
 
 ## The Devotion
 
-To proclaim ourselves as Christians is to declare that we believe and trust in Christ as our Savior and Lord.
+To proclaim ourselves as Christians is to declare that we believe and trust in Christ as our Saviour and Lord.
 
 At that beautiful moment when God saved us, we hope and pray that each one of us is immediately surrounded by other brothers and sisters in Christ who are willing to walk alongside us in love, encouragement, teaching, and exhortation. This is called discipleship. This is the grassroots of the Great Commission. It is my sincere hope that no newly saved person is ever alone in trying to figure out this newfound faith, especially when the cross of Christ has not only saved us for Himself but also saved us for one another. Here at ground zero, at the precise moment when the Holy Spirit takes out our hearts of stone, we are then given a new heart and new desires by God. These new desires are to know and love God more and more each day.
 
@@ -18,21 +18,21 @@ But how does God save us? This is the question that the concept of Ordo Salutis,
 
 But once we start knowing a little about the Bible, the better question might be:
 
-### What did God have to do to save His people to Himself?
+### What did God have to do to save His people for Himself?
 
 To answer this, we must thoroughly examine the Scriptures to understand what God has revealed about salvation. We cannot rely on superstition, church history, or simply what "feels good." We must seek out what God says about salvation.
 
 So in this series, we are going to attempt to answer questions such as, "Does the Bible teach about God electing us to salvation?", "Are we predestined by God?" "What is the free will of man?" and "Can a person truly be saved without the outward appearance of a new heart?".
 
-So in this, we begin with what some theologians call "the golden chain of salvation" found in this passage:
+So, in this, we begin with what some theologians call "the golden chain of salvation" found in this passage:
 
->Romans 8:27-30 And he who searches hearts knows what is the mind of the Spirit because the Spirit intercedes for the saints according to the will of God. And we know that for those who love God, all things work together for good, for those who are called according to his purpose. For those whom he foreknew he also predestined to be conformed to the image of his Son, in order that he might be the firstborn among many brothers. **And those whom he predestined he also called, and those whom he called he also justified, and those whom he justified he also glorified**.
+>Romans 8:30 **And those whom he predestined he also called, and those whom he called he also justified, and those whom he justified he also glorified**.
 
 In verse 30, Paul did not simply throw the words "predestined," "called," "justified," and "glorified" at us as though their order did not matter. Paul was cautious in ordering those words to show the steps that God took to bring you and me all the way home back to Him.
 
 God has not simply created Creation to wind up like a grand cosmic clock, set it in motion, and then let it run its course. God has not looked down the passages of time, seen where we have chosen him, and proceeded to select that timeline. God has not left it up to you or me to save ourselves.
 
-What it is so difficult for people to get is that you and I are born weak, depraved, and far from God, and without divine help, you and I will die and fall under the wrath of Jesus Christ, God Almighty, Who was, and Is, and Is to Come.
+What is so difficult for people to get is that you and I are born weak, depraved, and far from God, and without divine help, you and I will die and fall under the wrath of Jesus Christ, God Almighty, who was, is, and is to come.
 
 Christ did not come to give us a better life than our unbelieving neighbors. Christ did not come so that our favorite politician could be elected as president. Christ did not come so that we would have a good job, a lovely home, money in the bank, and long lives.
 

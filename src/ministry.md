@@ -123,7 +123,7 @@ To that end, I am a Reformed Baptist and therefore, credobaptist.
 
 ### Reforming Truth Church, Lexington, KY (2022 to Present)
 
-- Covenent Member
+- Covenant Member
 - Elder Candidate
 - Bible Study Teacher
 

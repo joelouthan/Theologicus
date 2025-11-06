@@ -24,7 +24,7 @@ If you don't have the time and like to read, highest recommendation:
 
 <hr style="clear:both;">
 
-<img src="book-consequences-of-ideas-sproul.jpg">The Consequences of Ideas: Understanding the Concepts that Shaped Our World  
+<img src="../images/book-consequences-of-ideas-sproul.jpg">The Consequences of Ideas: Understanding the Concepts that Shaped Our World  
 R.C. Sproul.  
 Crossway. 2018.  
 [Goodreads](https://www.goodreads.com/book/show/6616365-the-consequences-of-ideas)
