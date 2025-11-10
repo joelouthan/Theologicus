@@ -2,7 +2,7 @@
 
 <p style="font-size: 2em; margin-bottom: 0px "><strong><a class="header" href="#theologicus-some-expository-thoughts">Theologicus: Some Expository Thoughts</a></strong></p>
 
-<p style="font-size: 1.6rem; margin-top: 0px "><i>My Personal Confession of Faith</i><p>
+<p style="font-size: 1.6rem; margin-top: 0px "><i>A Personal Confession of Faith</i><p>
 
 ## The Text
 
