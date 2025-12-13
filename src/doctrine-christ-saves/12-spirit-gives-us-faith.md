@@ -1,12 +1,43 @@
 <img class="intro-right" src="../images/book-ccss-3.jpg">
 
+<p style="font-weight: bold; font-size: 2em; margin-bottom: 0px "><a class="header" href="#perfect-work-of-Christ">Spirit Gives Us Faith</a></p>
+
+<p style="font-style: italic; font-size: 1.6rem; margin-top: 0px">We Receive</p>
+
 # Spirit Gives Us Faith
 
 ## The Text
 
-
+>John 3:14–15 “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
 
 ## The Devotion
+
+And this is the free gift that you have received. Christians tried to rightly evangelize, "Just open your hands and you will freely receive!" as though a child hyperly awaiting to receive the biggest birthday gift of their lives. 
+
+But we were not born like that. We are born not even to open our hands. We were born never to be eager to receive God's gift. A child has to face the giver of the gift in order to receive. But we were born to face away and run away from God at all times.
+
+The power to see God, the power to turn to God, the power to lift your eyes upon God -- that power is by the Spirit alone:
+
+>Romans 8:11 And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
+
+The power to believe that if you turned your eyes upon Jesus and live comes from the same Spirit who raised Christ from the dead. The Spirit must dwell in you to give you the power to lift your eyes upon him and see him.
+
+>Numbers 21:4–9 (CSB)  
+><sup>4-5</sup> Then they set out from Mount Hor by way of the Red Sea to bypass the land of Edom, but the people became impatient because of the journey. The people spoke against God and Moses: “Why have you led us up from Egypt to die in the wilderness? There is no bread or water, and we detest this wretched food!” 
+
+We once could not face God, see God, speak to God but we will complain and groan and gripe about we are not God.
+
+><sup>6</sup> Then the LORD sent poisonous snakes among the people, and they bit them so that many Israelites died. 
+
+This is the consequences of our sin: death. Our bitterness, hatred, strife, loathing, lust, laziness, greed--all of our sin will result in our death. Perishing under the weight of the just wrath of the Almighty Holy God.
+
+><sup>7-9</sup> The people then came to Moses and said, “We have sinned by speaking against the LORD and against you. Intercede with the LORD so that he will take the snakes away from us.” And Moses interceded for the people. Then the LORD said to Moses, “Make a snake image and mount it on a pole. When anyone who is bitten looks at it, he will recover.” So Moses made a bronze snake and mounted it on a pole. Whenever someone was bitten, and he looked at the bronze snake, he recovered.
+
+Because God so loved his people, he gave the bronze serpent to those who believe and trusted in the word of God would surely not perish but have everlasting life.
+
+Because God so loved the world in this way, he gave his only begotten Son, Jesus Christ our Lord.
+
+This is faith -- it is only now you want to lift your eyes to see the Christ, and you do see the Christ and you do live.
 
 ## The Scriptures
 
