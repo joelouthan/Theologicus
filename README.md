@@ -8,10 +8,10 @@ of my only, only Lord Jesus.
 
 - [1 Samuel](https://theologic.us/samuel-1/index.html)
 - [Matthew](https://theologic.us/matthew/index.md)
-- [Christ Came to Save Sinners](https://theologic.us/doctrine-christ-saves/index.html)
 
 ## releases
 
+- v3.6 (2025 Dec 13) [Christ Came to Save Sinners](https://theologic.us/doctrine-christ-saves/index.html)
 - v3.5.1 (2025 May 16) Migrated "Resources" feature to [Bibliography](https://theologic.us/bibliography/index.md)
 - v3.5 (2025 Mar 5) [Praying Through Psalms](https://theologic.us/psalms/)
 - v3.4 (2025 Jan 19) [1689 Second London Baptist Confession](https://theologic.us/confession-1689/index.md)
