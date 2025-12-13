@@ -1,7 +1,5 @@
 <img class="intro-right" src="../images/art-matthew.jpg">
 
-<img class="intro-right" src="../images/art-matthew.jpg">
-
 # Matthew 6:9b Pray Like This--Our Father in Heaven
 
 *Trying to answer the question, "How is Jesus Christ our All-in-all?"*
