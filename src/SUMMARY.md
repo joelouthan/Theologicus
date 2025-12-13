@@ -253,12 +253,10 @@
   - [X. Rescuing Work of Christ](doctrine-christ-saves/10-rescuing-work-of-christ.md)
   - [XI. Spirit Gives Us A New Heart](doctrine-christ-saves/11-spirit-gives-us-a-new-heart.md)
   - [XII. Spirit Gives Us Faith](doctrine-christ-saves/12-spirit-gives-us-faith.md)
-  - [XIII. Spirit Gives Us A Renewed Mind](doctrine-christ-saves/13-spirit-gives-us-a-renewed-mind.md)
-  - [XIV. Spirit Gives Us Belonging](doctrine-christ-saves/14-spirit-gives-us-belonging.md)
-  - [XV. Spirit Gives Us Peace](doctrine-christ-saves/15-spirit-gives-us-peace.md)
-  - [XVI. Spirit Gives Us Growth](doctrine-christ-saves/16-spirit-gives-us-growth.md)
-  - [XVII. Spirit Gives Us Life Forever](doctrine-christ-saves/17-spirit-gives-us-life-forever.md)
-  - [XVIII. What Shall We Say to These Things?](doctrine-christ-saves/18-what-shall-we-say.md)
+  - [XIII. Spirit Gives Us Belonging](doctrine-christ-saves/13-spirit-gives-us-belonging.md)
+  - [XIV. Spirit Gives Us Growth](doctrine-christ-saves/14-spirit-gives-us-growth.md)
+  - [XV. Spirit Gives Us Life Forever](doctrine-christ-saves/15-spirit-gives-us-life-forever.md)
+  - [XVI. What Shall We Say to These Things?](doctrine-christ-saves/16-what-shall-we-say.md)
   - [Bibliography](doctrine-christ-saves/bibliography.md)
 
 # Commentaries

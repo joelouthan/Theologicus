@@ -1,21 +1,3 @@
----
-title: "Doctrine: Ordo Salutis XI: Our New Lives – Spirit's Work In Our Sanctification"
-author: Joseph Louthan
-date: 2018-06-28T12:00:28+00:00
-categories:
-  - Theology
-tags:
-  - Theology
-  - Soteriology
-series:
-  - 'Ordo Salutis'
-cover:
-  image: '/images/banners/ordo.png'
-showtoc: false
-css: "prayers"
-draft: true
-
----
 >Isaiah 48:9–11 (CSB)  
 ><sup> 9 </sup> I will delay my anger for the sake of my name, and I will restrain myself for your benefit and for my praise, so that you will not be destroyed. 
 
@@ -57,15 +39,40 @@ Let us rejoice in the fact that this is not some absolute limit of how many time
 
 Paul in 2 Corinthians 5:17 tells us that "if anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come." Which is indeed true but I think we need to flip back over to his previous letter get a stronger point:
 
->Romans 6:1-14 (CSB) What should we say then? Should we continue in sin so that grace may multiply? 2 Absolutely not! How can we who died to sin still live in it? 3 Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? 4 Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life. 5 For if we have been united with him in the likeness of his death, we will certainly also be in the likeness of his resurrection. 6 For we know that our old self was crucified with him so that the body ruled by sin might be rendered powerless so that we may no longer be enslaved to sin, 7 since a person who has died is freed from sin. 8 Now if we died with Christ, we believe that we will also live with him, 9 because we know that Christ, having been raised from the dead, will not die again. Death no longer rules over him. 10 For the death he died, he died to sin once for all time; but the life he lives, he lives to God. 11 So, you too consider yourselves dead to sin and alive to God in Christ Jesus.
+>Romans 6:1–14 (CSB)  
+><sup>1</sup> What should we say then? Should we continue in sin so that grace may multiply? 
 >
->12 Therefore do not let sin reign in your mortal body, so that you obey its desires. 13 And do not offer any parts of it to sin as weapons for unrighteousness. But as those who are alive from the dead, offer yourselves to God, and all the parts of yourselves to God as weapons for righteousness. 14 For sin will not rule over you, because you are not under the law but under grace.
+><sup>2</sup> Absolutely not! How can we who died to sin still live in it? 
+>
+><sup>3</sup> Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? 
+>
+><sup>4</sup> Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life. 
+>
+><sup>5</sup> For if we have been united with him in the likeness of his death, we will certainly also be in the likeness of his resurrection. 
+>
+><sup>6</sup> For we know that our old self was crucified with him so that the body ruled by sin might be rendered powerless so that we may no longer be enslaved to sin, 
+>
+><sup>7</sup> since a person who has died is freed from sin. 
+>
+><sup>8</sup> Now if we died with Christ, we believe that we will also live with him, 
+>
+><sup>9</sup> because we know that Christ, having been raised from the dead, will not die again. Death no longer rules over him. 
+>
+><sup>10</sup> For the death he died, he died to sin once for all time; but the life he lives, he lives to God. 
+>
+><sup>11</sup> So, you too consider yourselves dead to sin and alive to God in Christ Jesus. 
+>
+><sup>12</sup> Therefore do not let sin reign in your mortal body, so that you obey its desires. 
+>
+><sup>13</sup> And do not offer any parts of it to sin as weapons for unrighteousness. But as those who are alive from the dead, offer yourselves to God, and all the parts of yourselves to God as weapons for righteousness. 
+>
+><sup>14</sup> For sin will not rule over you, because you are not under the law but under grace.
 
 In other words, that old self is dead. When God saves you, Christ took your old self with him when he died. However, unlike Christ who is holy and righteous, your sin, _your old self,_ wasn't raised from the dead. It remains dead. You are alive in Christ. Live in that!
 
 Ezekiel takes it one step further and declares a complete heart transplant by God the Good Surgeon:
 
->Ezekiel 11:19-20 (CSB) I will give them integrity of heart and put a new spirit within them; I will remove their heart of stone from their bodies and give them a heart of flesh, 20 so that they will follow my statutes, keep my ordinances, and practice them. They will be my people, and I will be their God.
+>Ezekiel 11:19-20 (CSB) I will give them integrity of heart and put a new spirit within them; I will remove their heart of stone from their bodies and give them a heart of flesh, so that they will follow my statutes, keep my ordinances, and practice them. They will be my people, and I will be their God.
 
 Notice the order. First, he gives us a new heart. Next, a new spirit. He does so by removing our stony, hard, cancerous sin-filled hearts and replaces it with a soft, healthy, fleshy heart. But it is only now we have this new heart, we _get_ to walk in his statutes and keep his rules and obey them.
 
@@ -77,7 +84,7 @@ To know God's part, we have to look at the promises he has for his children when
 
 First, he will sanctify, or that is, make us holy by our faith. Look at what Paul says when he gives a testimony of God saving him on the road to Damascus:
 
->Acts 26:15-18 (CSB) “I asked, ‘Who are you, Lord?’ “And the Lord replied, ‘I am Jesus, the one you are persecuting. 16 But get up and stand on your feet. For I have appeared to you for this purpose, to appoint you as a servant and a witness of what you have seen and will see of me. 17 I will rescue you from your people and from the Gentiles. I am sending you to them 18 to open their eyes so that they may turn from darkness to light and from the power of Satan to God, that they may receive forgiveness of sins and a share among those who are sanctified by faith in me.’
+>Acts 26:15-18 (CSB) “I asked, ‘Who are you, Lord?’ “And the Lord replied, ‘I am Jesus, the one you are persecuting. But get up and stand on your feet. For I have appeared to you for this purpose, to appoint you as a servant and a witness of what you have seen and will see of me. I will rescue you from your people and from the Gentiles. I am sending you to them to open their eyes so that they may turn from darkness to light and from the power of Satan to God, that they may receive forgiveness of sins and a share among those who are sanctified by faith in me.’
 
 It is your faith, which is a gift from God, that makes you holy. Not only you are declared holy because God is holy, you will be holy because of your faith in the God who the angels in heaven declare is "holy, holy, holy!"
 

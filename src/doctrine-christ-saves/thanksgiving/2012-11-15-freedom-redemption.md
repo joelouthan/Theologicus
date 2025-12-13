@@ -110,7 +110,7 @@ But when the fullness of time had come, God sent forth his Son, born of woman, b
 
 Hebrews 2:14-15
   
-Since therefore the children share in flesh and blood, he himself likewise partook of the same things, that through death he might destroy the one who has the power of death, that is, the devil, 15 and deliver all those who through fear of death were subject to lifelong slavery.
+Since therefore the children share in flesh and blood, he himself likewise partook of the same things, that through death he might destroy the one who has the power of death, that is, the devil, and deliver all those who through fear of death were subject to lifelong slavery.
 
 Revelation 21:5-7
   

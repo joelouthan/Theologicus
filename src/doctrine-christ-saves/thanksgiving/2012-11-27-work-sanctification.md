@@ -1,17 +1,4 @@
----
-title: Thanksgiving for Your Work–Sanctification
-author: Joseph Louthan
-date: 2012-11-27
-categories:
-  - Doxology
-  - Scriptures
-tags:
-  - Soteriology
-series:
-  - Thanksgiving
-draft: true
 
----
 Exodus 29:43
   
 There I will meet with the people of Israel, and it shall be sanctified by my glory.

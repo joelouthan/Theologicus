@@ -46,7 +46,7 @@ But let us take a quick look at the sudden execution of God's judgment:
 
 >Genesis 13:13 (Now the men of Sodom were evil, sinning immensely against the LORD.)
 
->Genesis 18:20-21 Then the LORD said, "The outcry against Sodom and Gomorrah is immense, and their sin is extremely serious. 21 I will go down to see if what they have done justifies the cry that has come up to me. If not, I will find out."
+>Genesis 18:20-21 Then the LORD said, "The outcry against Sodom and Gomorrah is immense, and their sin is extremely serious. I will go down to see if what they have done justifies the cry that has come up to me. If not, I will find out."
 
 So based on Genesis 2 and Romans 6:23, what do you think is going to happen to Sodom and Gomorrah? The judgment here is obvious: "Well, that is easy, they were wicked and they deserve to die."
 

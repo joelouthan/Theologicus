@@ -1,17 +1,3 @@
----
-title: Thanksgiving for Your Adoption—Family
-author: Joseph Louthan
-date: 2012-11-23
-categories:
-  - Doxology
-  - Scriptures
-tags:
-  - Soteriology
-series:
-  - Thanksgiving
-draft: true
-
----
 John 14:18-21
   
 “I will not leave you as orphans; I will come to you. Yet a little while and the world will see me no more, but you will see me. Because I live, you also will live. In that day you will know that I am in my Father, and you in me, and I in you. Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him.”

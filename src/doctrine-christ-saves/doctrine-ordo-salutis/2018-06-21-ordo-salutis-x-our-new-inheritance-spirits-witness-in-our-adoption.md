@@ -1,21 +1,3 @@
----
-title: "Doctrine: Ordo Salutis X: Our New Inheritance – Spirit’s Witness in Our Adoption"
-author: Joseph Louthan
-date: 2018-06-21T12:00:18+00:00
-categories:
-  - Theology
-tags:
-  - Theology
-  - Soteriology
-series:
-  - 'Ordo Salutis'
-cover:
-  image: '/images/banners/ordo.png'
-showtoc: false
-css: "prayers"
-draft: true
-
----
 We have fully established that we are not fully alive despite being biologically alive. Throughout the Bible, starting in Genesis 2, God states that sin separates the soul of man from the spirit of God. And without God, we are dead.
 
 And just being dead is not enough:
@@ -120,7 +102,7 @@ So what can we say to all of this?
 
 If we are saved by God, then God is our Father.
 
->Romans 8:12-17 (CSB) So then, brothers and sisters, we are not obligated to the flesh to live according to the flesh, 13 because if you live according to the flesh, you are going to die. But if by the Spirit you put to death the deeds of the body, you will live. 14 For all those led by God’s Spirit are God’s sons. 15 For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” 16 The Spirit himself testifies together with our spirit that we are God’s children, 17 and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
+>Romans 8:12–17 So then, brothers and sisters, we are not obligated to the flesh to live according to the flesh, because if you live according to the flesh, you are going to die. But if by the Spirit you put to death the deeds of the body, you will live. For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
 
 And if God is our Father, God absolutely promises we will look like His Son (and God does not break promises).
 
@@ -148,11 +130,7 @@ And if God is our Father, God absolutely promises we will look like His Son (and
 And if God is our Father, we will not stand before Him in our own defense as though we could do so in our own self-righteousness. No! God himself bears witness with our witness that we belong to Him.
 
 >Matthew 7:21–23 (CSB)  
-> 21  “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father in heaven. 
-
-> 22  On that day many will say to me, ‘Lord, Lord, didn’t we prophesy in your name, drive out demons in your name, and do many miracles in your name?’ 
-
-> 23  Then I will announce to them, ‘I never knew you. Depart from me, you lawbreakers!'
+>“Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father in heaven. On that day many will say to me, ‘Lord, Lord, didn’t we prophesy in your name, drive out demons in your name, and do many miracles in your name?’ Then I will announce to them, ‘I never knew you. Depart from me, you lawbreakers!'
 
 >Romans 8:16 (CSB) The Spirit himself testifies together with our spirit that we are God’s children,
 
@@ -164,7 +142,7 @@ And then God is our Father, and the Holy Spirit of adoption is our witness, then
 
 And to that end, you believe and trust in God, then the Father of Christ is your Father. We are His sons forevermore because a Perfect Father never loses his kids.
 
->John 10:28-30 (CSB) I give them eternal life, and they will never perish. No one will snatch them out of my hand. 29 My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. 30 I and the Father are one.”
+>John 10:28-30 (CSB) I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
 
 In some states, when a child is adopted, the law ensures that the adopted child is given an inheritance no matter what (assuming there is an inheritance to be left to the child) even if the natural born children are left out of the will. But even still, sometimes adoptive kids can feel like second-class family members in their own home; never mind the reality of not being with your original parents.
 
