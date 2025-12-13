@@ -1,21 +1,3 @@
----
-title: "Doctrine: Ordo Salutis X: Our New Inheritance – Spirit’s Witness in Our Adoption"
-author: Joseph Louthan
-date: 2018-06-21T12:00:18+00:00
-categories:
-  - Theology
-tags:
-  - Theology
-  - Soteriology
-series:
-  - 'Ordo Salutis'
-cover:
-  image: '/images/banners/ordo.png'
-showtoc: false
-css: "prayers"
-draft: true
-
----
 We have fully established that we are not fully alive despite being biologically alive. Throughout the Bible, starting in Genesis 2, God states that sin separates the soul of man from the spirit of God. And without God, we are dead.
 
 And just being dead is not enough:
