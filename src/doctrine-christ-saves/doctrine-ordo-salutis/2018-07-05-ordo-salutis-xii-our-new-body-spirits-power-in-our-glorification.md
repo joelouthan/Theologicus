@@ -1,21 +1,3 @@
----
-title: "Doctrine: Ordo Salutis XII: Our New Body – Spirit's Power in Our Glorification"
-author: Joseph Louthan
-date: 2018-07-05T12:00:42+00:00
-categories:
-  - Theology
-tags:
-  - Theology
-  - Soteriology
-series:
-  - 'Ordo Salutis'
-cover:
-  image: '/images/banners/ordo.png'
-showtoc: false
-css: "prayers"
-draft: true
-
----
 >Psalm 97:9 (CSB) For you, LORD, are the Most High over the whole earth; you are exalted above all the gods.
 
 And how can we even fathom this glory of God? How can we fully look upon God in his sheer radiance, beauty, and majesty without our minds and eyes and hearts shutting down?
