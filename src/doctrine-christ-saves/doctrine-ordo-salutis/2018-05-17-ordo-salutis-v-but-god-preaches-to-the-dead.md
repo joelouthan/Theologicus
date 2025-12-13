@@ -66,23 +66,23 @@ And upon hearing God’s promise that he will do everything to make everything r
 And if you see any time in the Bible that one is clothed by God, it is always clothed in righteousness.
 
 >Job 29:14 (CSB)  
-> 14  I clothed myself in righteousness, and it enveloped me; my just decisions were like a robe and a turban.
+> I clothed myself in righteousness, and it enveloped me; my just decisions were like a robe and a turban.
 
 >Psalm 132:9 (CSB)  
-> 9  May your priests be clothed with righteousness, and may your faithful people shout for joy.
+> May your priests be clothed with righteousness, and may your faithful people shout for joy.
 
 >Isaiah 59:17 (CSB)  
-> 17  He put on righteousness as body armor, and a helmet of salvation on his head; he put on garments of vengeance for clothing, and he wrapped himself in zeal as in a cloak.
+> He put on righteousness as body armor, and a helmet of salvation on his head; he put on garments of vengeance for clothing, and he wrapped himself in zeal as in a cloak.
 
 >Isaiah 61:10 (CSB)  
-> 10  I rejoice greatly in the LORD, I exult in my God; for he has clothed me with the garments of salvation and wrapped me in a robe of righteousness, as a groom wears a turban and as a bride adorns herself with her jewels.
+> I rejoice greatly in the LORD, I exult in my God; for he has clothed me with the garments of salvation and wrapped me in a robe of righteousness, as a groom wears a turban and as a bride adorns herself with her jewels.
 
 >Luke 15:17-24 (CSB) When he came to his senses, he said, ‘How many of my father’s hired workers have more than enough food, and here I am dying of hunger! I’ll get up, go to my father, and say to him, “Father, I have sinned against heaven and in your sight. I’m no longer worthy to be called your son. Make me like one of your hired workers.”’ So he got up and went to his father. But while the son was still a long way off, his father saw him and was filled with compassion. He ran, threw his arms around his neck, and kissed him. The son said to him, ‘Father, I have sinned against heaven and in your sight. I’m no longer worthy to be called your son.’
 >
 >“But the father told his servants, ‘Quick! Bring out the best robe and put it on him; put a ring on his finger and sandals on his feet. Then bring the fattened calf and slaughter it, and let’s celebrate with a feast, because this son of mine was dead and is alive again; he was lost and is found!’ So they began to celebrate.
 
 >Ephesians 6:14 (CSB)  
-> 14  Stand, therefore, with truth like a belt around your waist, righteousness like armor on your chest,
+> Stand, therefore, with truth like a belt around your waist, righteousness like armor on your chest,
 
 Let’s keep going down the list.
 

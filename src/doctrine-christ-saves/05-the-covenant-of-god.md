@@ -84,7 +84,7 @@ As opposed to:
 
 Jesus speaks of two paths: one chasing after things not God, and the other pursuing the One True God. That is, one doorway leading to life everlasting, or the highway to hell:
 
->Matthew 7:13-14 "Enter through the narrow gate. For the gate is wide and the road broad that leads to destruction, and there are many who go through it. 14 How narrow is the gate and difficult the road that leads to life, and few find it.
+>Matthew 7:13-14 "Enter through the narrow gate. For the gate is wide and the road broad that leads to destruction, and there are many who go through it. How narrow is the gate and difficult the road that leads to life, and few find it.
 
 Paul expounds this proclamation of Christ in Romans 8:3-8.
 

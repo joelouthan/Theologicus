@@ -114,7 +114,7 @@ Because of our wicked hearts, whatever "righteous” deeds we think we are doing
 
 Look at what Jesus says:
 
->Matthew 7:21-23 (CSB) “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father in heaven. 22 On that day many will say to me, ‘Lord, Lord, didn’t we prophesy in your name, drive out demons in your name, and do many miracles in your name?’ 23 Then I will announce to them, ‘I never knew you. Depart from me, you lawbreakers!’
+>Matthew 7:21-23 (CSB) “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father in heaven. On that day many will say to me, ‘Lord, Lord, didn’t we prophesy in your name, drive out demons in your name, and do many miracles in your name?’ Then I will announce to them, ‘I never knew you. Depart from me, you lawbreakers!’
 
 Wait a minute here. These people were doing what Christ told us to do: prophesy, cast out demons, and do mighty works in his name. Christ would go on to say for us not to rejoice because we can do mighty works and the spirits are subject to us but rejoice that your names are written in heaven.
 
@@ -128,7 +128,7 @@ When we have a new heart and His Spirit within us, it is then we can truthfully 
 
 Don’t believe obedience requires a new heart? See what God says about it.
 
->Ezekiel 36:24-28 (CSB) “‘For I will take you from the nations and gather you from all the countries, and will bring you into your own land. 25 I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. 26 I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. 27 I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances. 28 You will live in the land that I gave your ancestors; you will be my people, and I will be your God.
+>Ezekiel 36:24-28 (CSB) “‘For I will take you from the nations and gather you from all the countries, and will bring you into your own land. I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances. You will live in the land that I gave your ancestors; you will be my people, and I will be your God.
 
 It is only then that God removes us from death and despair; takes the blood of Christ and washes us clean from all unrighteousness ; give us a brand new soften heart and a new spirit that causes you to walk in His statutes and being careful to obey His rules.
 

@@ -49,7 +49,7 @@ Jesus Christ, the glorious Lord stood side-by-side a convicted murderer, Barabba
 
 The rational answer is clear. Yet our sinful hearts will choose the comforts of sin every time.
 
->Leviticus 16:21-22 (CSB) Aaron will lay both his hands on the head of the live goat and confess over it all the Israelites’ iniquities and rebellious acts—all their sins. He is to put them on the goat’s head and send it away into the wilderness by the man appointed for the task. 22 The goat will carry all their iniquities into a desolate land, and the man will release it there.
+>Leviticus 16:21-22 (CSB) Aaron will lay both his hands on the head of the live goat and confess over it all the Israelites’ iniquities and rebellious acts—all their sins. He is to put them on the goat’s head and send it away into the wilderness by the man appointed for the task. The goat will carry all their iniquities into a desolate land, and the man will release it there.
 
 In the Old Testament, Aaron stood before the people of Israel and they looked up this live goat. Aaron runs through all of their sins, all of their follies, all of their iniquities and all of their transgressions. With that massive, terrible list, Aaron touches the head of the goat and pushes it through the crowds and directs the goat into the vastness of the wilderness, always lost, always running in freedom and never to be seen again.
 

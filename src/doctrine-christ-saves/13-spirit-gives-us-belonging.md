@@ -114,7 +114,7 @@ So what can we say to all of this?
 
 If we are saved by God, then God is our Father.
 
->Romans 8:12-17 (CSB) So then, brothers and sisters, we are not obligated to the flesh to live according to the flesh, 13 because if you live according to the flesh, you are going to die. But if by the Spirit you put to death the deeds of the body, you will live. 14 For all those led by God’s Spirit are God’s sons. 15 For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” 16 The Spirit himself testifies together with our spirit that we are God’s children, 17 and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
+>Romans 8:12–17 So then, brothers and sisters, we are not obligated to the flesh to live according to the flesh, because if you live according to the flesh, you are going to die. But if by the Spirit you put to death the deeds of the body, you will live. For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
 
 And if God is our Father, God absolutely promises we will look like His Son (and God does not break promises).
 

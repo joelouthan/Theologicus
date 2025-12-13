@@ -57,7 +57,7 @@ The path of humankind leads to destruction.
 
 Jesus speaks of two paths: one doorway leading to life everlasting or the highway to hell:
 
->Matthew 7:13-14 (CSB) “Enter through the narrow gate. For the gate is wide and the road broad that leads to destruction, and there are many who go through it. 14 How narrow is the gate and difficult the road that leads to life, and few find it.
+>Matthew 7:13-14 (CSB) “Enter through the narrow gate. For the gate is wide and the road broad that leads to destruction, and there are many who go through it. How narrow is the gate and difficult the road that leads to life, and few find it.
 
 
 Paul clarifies Christ’s point out in Romans 8:3-8.
@@ -76,7 +76,7 @@ Keep moving through the Old Testament.  When we get to Deuteronomy and Joshua, w
 
 >Romans 6:23a (CSB) For the wages of sin is death...
 
->Genesis 2:16-17 (CSB) And the LORD God commanded the man, “You are free to eat from any tree of the garden, 17 but you must not eat from the tree of the knowledge of good and evil, for on the day you eat from it, you will certainly die.”
+>Genesis 2:16-17 (CSB) And the LORD God commanded the man, “You are free to eat from any tree of the garden, but you must not eat from the tree of the knowledge of good and evil, for on the day you eat from it, you will certainly die.”
 
 It is hard for us to imagine or understand how every single man, woman, and child can be condemned to death when we have no way of knowing if they lived good and decent lives.  What if they were helpful, kind and understanding?  What if they lived in peace and love?  What if they were basically good?  We think we are good and the Lord gets to the heart of the matter:
 
@@ -128,5 +128,5 @@ Our destiny lies in destruction.  To try to control our own destiny is to forsak
 
 But God saves those who he foreknew and loved before the beginning of time and before the foundations of the earth were laid and he will do everything to make them like Him.  For those who heed his call and listen to his voice when He said "Come to me” and love Him, all good and evil things in this world will work together for good.  We might be heading to destruction but God will call those whom he predestines and in turn, justify them before Himself and raise them up to be with Him forever.
 
->Romans 8:28-30 (CSB) We know that all things work together for the good of those who love God, who are called according to his purpose. 29 For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. 30 And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
+>Romans 8:28-30 (CSB) We know that all things work together for the good of those who love God, who are called according to his purpose. For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
 
