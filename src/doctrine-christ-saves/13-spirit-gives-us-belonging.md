@@ -1,8 +1,12 @@
 <img class="intro-right" src="../images/book-ccss-3.jpg">
 
-# Spirit Gives Us Belonging
+<p style="font-weight: bold; font-size: 2em; margin-bottom: 0px "><a class="header" href="#perfect-work-of-Christ">Spirit Gives Us Belonging</a></p>
+
+<p style="font-style: italic; font-size: 1.6rem; margin-top: 0px">We Are Adopted</p>
 
 ## The Text
+
+>Romans 8:14–17 For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
 
 ## The Devotion
 
