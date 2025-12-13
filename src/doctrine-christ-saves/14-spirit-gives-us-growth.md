@@ -6,6 +6,8 @@
 
 ## The Text
 
+>Romans 8:29–30 For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
+
 ## The Devotion
 
 >Isaiah 48:9–11 (CSB)  
@@ -126,3 +128,81 @@ Some of it will look like Israelites wandering in the desert (see the book of Ex
 Some of it will look like death, as though we are walking through the valley of the stench of death, but never forget that Jesus Christ is the lily of the valley whose wonderful fragrance gives life!
 
 ## The Scriptures
+
+>Exodus 29:43 I will also meet with the Israelites there, and that place will be consecrated by my glory.
+
+>Exodus 31:13 “Tell the Israelites: You must observe my Sabbaths, for it is a sign between me and you throughout your generations, so that you will know that I am the LORD who consecrates you.
+
+>Leviticus 10:3 Moses said to Aaron, “This is what the LORD has spoken: I will demonstrate my holiness to those who are near me, and I will reveal my glory before all the people.” And Aaron remained silent.
+
+>Leviticus 20:8 Keep my statutes and do them; I am the LORD who sets you apart.
+
+>Leviticus 21:8 You are to consider him holy since he presents the food of your God. He will be holy to you because I, the LORD who sets you apart, am holy.
+
+>Leviticus 21:22–23 He may eat the food of his God from what is especially holy as well as from what is holy. But because he has a defect, he must not go near the curtain or approach the altar. He is not to desecrate my holy places, for I am the LORD who sets them apart.”
+
+>Leviticus 22:9 They must keep my instruction, or they will be guilty and die because they profane it; I am the LORD who sets them apart.
+
+>Leviticus 22:15–16 The priests must not profane the holy offerings the Israelites give to the LORD by letting the people eat their holy offerings and having them bear the penalty of restitution. For I am the LORD who sets them apart.”
+
+>Leviticus 22:31–33 “You are to keep my commands and do them; I am the LORD. You must not profane my holy name; I must be treated as holy among the Israelites. I am the LORD who sets you apart, the one who brought you out of the land of Egypt to be your God; I am the LORD.”
+
+>Psalm 57:2 I call to God Most High, to God who fulfills his purpose for me.
+
+>Psalm 138:8 The LORD will fulfill his purpose for me. LORD, your faithful love endures forever; do not abandon the work of your hands.
+
+>Isaiah 29:23 For when he sees his children, the work of my hands within his nation, they will honor my name, they will honor the Holy One of Jacob and stand in awe of the God of Israel.
+
+>Ezekiel 7:24 So I will bring the most evil of nations to take possession of their houses. I will put an end to the pride of the strong, and their sacred places will be profaned.
+
+>Ezekiel 20:12 I also gave them my Sabbaths to serve as a sign between me and them, so that they would know that I am the LORD who consecrates them.
+
+>Ezekiel 37:28 When my sanctuary is among them forever, the nations will know that I, the LORD, sanctify Israel.’ ”
+
+>John 17:17–19 Sanctify them by the truth; your word is truth. As you sent me into the world, I also have sent them into the world. I sanctify myself for them, so that they also may be sanctified by the truth.
+
+>Acts 20:32 “And now I commit you to God and to the word of his grace, which is able to build you up and to give you an inheritance among all who are sanctified.
+
+>Acts 26:15–18 “I asked, ‘Who are you, Lord?’ “And the Lord replied, ‘I am Jesus, the one you are persecuting. But get up and stand on your feet. For I have appeared to you for this purpose, to appoint you as a servant and a witness of what you have seen and will see of me. I will rescue you from your people and from the Gentiles. I am sending you to them to open their eyes so that they may turn from darkness to light and from the power of Satan to God, that they may receive forgiveness of sins and a share among those who are sanctified by faith in me.’
+
+>Romans 6:19–23 I am using a human analogy because of the weakness of your flesh. For just as you offered the parts of yourselves as slaves to impurity, and to greater and greater lawlessness, so now offer them as slaves to righteousness, which results in sanctification. For when you were slaves of sin, you were free with regard to righteousness. So what fruit was produced then from the things you are now ashamed of? The outcome of those things is death. But now, since you have been set free from sin and have become enslaved to God, you have your fruit, which results in sanctification—and the outcome is eternal life! For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
+
+>Romans 8:13 because if you live according to the flesh, you are going to die. But if by the Spirit you put to death the deeds of the body, you will live.
+
+>Romans 8:28–30 We know that all things work together for the good of those who love God, who are called according to his purpose. For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
+
+>Romans 15:14–16 My brothers and sisters, I myself am convinced about you that you also are full of goodness, filled with all knowledge, and able to instruct one another. Nevertheless, I have written to remind you more boldly on some points because of the grace given me by God to be a minister of Christ Jesus to the Gentiles, serving as a priest of the gospel of God. God’s purpose is that the Gentiles may be an acceptable offering, sanctified by the Holy Spirit.
+
+>1 Corinthians 1:2–3 To the church of God at Corinth, to those sanctified in Christ Jesus, called as saints, with all those in every place who call on the name of Jesus Christ our Lord—both their Lord and ours. Grace to you and peace from God our Father and the Lord Jesus Christ.
+
+>1 Corinthians 1:30–31 It is from him that you are in Christ Jesus, who became wisdom from God for us—our righteousness, sanctification, and redemption —in order that, as it is written: Let the one who boasts, boast in the Lord.
+
+>1 Corinthians 6:9–11 Don’t you know that the unrighteous will not inherit God’s kingdom? Do not be deceived: No sexually immoral people, idolaters, adulterers, or males who have sex with males, no thieves, greedy people, drunkards, verbally abusive people, or swindlers will inherit God’s kingdom. And some of you used to be like this. But you were washed, you were sanctified, you were justified in the name of the Lord Jesus Christ and by the Spirit of our God.
+
+>1 Corinthians 15:10–11 But by the grace of God I am what I am, and his grace toward me was not in vain. On the contrary, I worked harder than any of them, yet not I, but the grace of God that was with me. Whether, then, it is I or they, so we proclaim and so you have believed.
+
+>Ephesians 5:25–27 Husbands, love your wives, just as Christ loved the church and gave himself for her to make her holy, cleansing her with the washing of water by the word. He did this to present the church to himself in splendor, without spot or wrinkle or anything like that, but holy and blameless.
+
+>Philippians 1:6 I am sure of this, that he who started a good work in you will carry it on to completion until the day of Christ Jesus.
+
+>Philippians 2:12–13 Therefore, my dear friends, just as you have always obeyed, so now, not only in my presence but even more in my absence, work out your own salvation with fear and trembling. For it is God who is working in you both to will and to work according to his good purpose.
+
+>1 Thessalonians 4:3–8 For this is God’s will, your sanctification: that you keep away from sexual immorality, that each of you knows how to control his own body in holiness and honor, not with lustful passions, like the Gentiles, who don’t know God. This means one must not transgress against and take advantage of a brother or sister in this manner, because the Lord is an avenger of all these offenses, as we also previously told and warned you. For God has not called us to impurity but to live in holiness. Consequently, anyone who rejects this does not reject man, but God, who gives you his Holy Spirit.
+
+>1 Thessalonians 5:24 He who calls you is faithful; he will do it.
+
+>2 Thessalonians 2:13–15 But we ought to thank God always for you, brothers and sisters loved by the Lord, because from the beginning God has chosen you for salvation through sanctification by the Spirit and through belief in the truth. He called you to this through our gospel, so that you might obtain the glory of our Lord Jesus Christ. So then, brothers and sisters, stand firm and hold to the traditions you were taught, whether by what we said or what we wrote.
+
+>Hebrews 2:11–13 For the one who sanctifies and those who are sanctified all have one Father. That is why Jesus is not ashamed to call them brothers and sisters, saying: I will proclaim your name to my brothers and sisters; I will sing hymns to you in the congregation. Again, I will trust in him. And again, Here I am with the children God gave me.
+
+>Hebrews 9:13–14 For if the blood of goats and bulls and the ashes of a young cow, sprinkling those who are defiled, sanctify for the purification of the flesh, how much more will the blood of Christ, who through the eternal Spirit offered himself without blemish to God, cleanse our consciences from dead works so that we can serve the living God?
+
+>Hebrews 10:10 By this will, we have been sanctified through the offering of the body of Jesus Christ once for all time.
+
+>Hebrews 10:14–18 For by one offering he has perfected forever those who are sanctified. The Holy Spirit also testifies to us about this. For after he says: This is the covenant I will make with them after those days, the Lord says, I will put my laws on their hearts and write them on their minds, and I will never again remember their sins and their lawless acts. Now where there is forgiveness of these, there is no longer an offering for sin.
+
+>Hebrews 13:12 Therefore, Jesus also suffered outside the gate, so that he might sanctify the people by his own blood.
+
+>Hebrews 13:20–21 Now may the God of peace, who brought up from the dead our Lord Jesus—the great Shepherd of the sheep—through the blood of the everlasting covenant, equip you with everything good to do his will, working in us what is pleasing in his sight, through Jesus Christ, to whom be glory forever and ever. Amen.
+
+>1 Peter 1:1–2 Peter, an apostle of Jesus Christ: To those chosen, living as exiles dispersed abroad in Pontus, Galatia, Cappadocia, Asia, and Bithynia, chosen according to the foreknowledge of God the Father, through the sanctifying work of the Spirit, to be obedient and to be sprinkled with the blood of Jesus Christ. May grace and peace be multiplied to you.
