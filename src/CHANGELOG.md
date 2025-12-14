@@ -4,6 +4,8 @@ All notable changes to this project will be documented in this file.
 
 The format is based on [Keep a Changelog](https://keepachangelog.com/en/1.0.0/), and this project adheres to [Semantic Versioning](https://semver.org/spec/v2.0.0.html).
 
+## 3.6 (2025 Dec 13) [Christ Came to Save Sinners](https://theologic.us/doctrine-christ-saves/)
+
 ## 3.5.1 (2025 May 16) Conversion of Resources to [Bibliography](https://theologic.us/bibliography/)
 - standardized to using [mdbook's include syntax](https://rust-lang.github.io/mdBook/format/mdbook.html#including-files)
   - See this repo's [src/bibliography](https://github.com/joelouthan/Theologicus/tree/main/src/bibliography) for my examples
