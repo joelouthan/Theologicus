@@ -27,64 +27,37 @@ The format is based on [Keep a Changelog](https://keepachangelog.com/en/1.0.0/),
 - Removed Vocation Resume (just not needed)
 - next version: 4.0 with the iOS app being available on the App Store
 
-## 3.3 (2023 Jul 16)
+## 3.3 (2023 Jul 16) [Apostles' Creed](creed-apostles/index.md)
 
-- [Apostles' Creed](creed-apostles/index.md)
+## 3.2 (2023 Jul 4) *[book reviews](reviews/index.md)*
 
-## 3.2 (2023 Jul 4)
+## 3.1 (2023 Jun 14) [The Story of Ruth](ruth/index.md)
 
-- [Book Reviews](reviews/index.md)
-
-## 3.1 (2023 Jun 14)
-
-- [The Story of Ruth](ruth/index.md)
-
-## 3.0 (2023 Jun 9)
-
-### Added
-
-- Migrated from Hugo to mdBook
+## 3.0 (2023 Jun 9) *Migrated from Hugo to mdBook*
 
 <hr style="clear:both;">
 
-## 2.4 (2023 Apr 13)
+## 2.4 (2023 Apr 13) [The Epistle to the Romans](romans/index.md)
 
-- [The Epistle to the Romans](romans/index.md)
+## 2.3 (2023 Feb 8) [The Gospel of Mark](mark/index.md)
 
-## 2.3 (2023 Feb 8)
+## 2.2 (2022 Sep 8) [The Pastoral Epistles](pastorals/index.md)
 
-- [The Gospel of Mark](mark/index.md)
+## 2.1 (2021 Apr 29) [The Gospel of Luke](luke/index.md)
 
-## 2.2 (2022 Sep 8)
-
-- [The Pastoral Epistles](pastorals/index.md)
-
-## 2.1 (2021 Apr 29)
-
-- [The Gospel of Luke](luke/index.md)
-
-## 2.0 (2020 Apr 20)
-
-- Migrated from Wordpress to Hugo
+## 2.0 (2020 Apr 20) *migrated from Wordpress to Hugo*
 
 ---
 
-## 1.3 (2019 Nov 28)
+## 1.3 (2019 Nov 28) Doctrine: The Lord's Prayer
 
-- Doctrine: The Lord's Prayer
   - *merged with [Matthew](matthew/index.md)*
 
-## 1.2 (2018 Jul 05)
+## 1.2 (2018 Jul 05) Doctrine: Ordo Salutis (*defunct*)
 
-- Doctrine: Ordo Salutis (defunct)
+## 1.1 (2012 Nov 28) Thanksgiving (*defunct*)
 
-## 1.1 (2012 Nov 28)
-
-- Thanksgiving (defunct)
-
-## 1.0 (2008 Apr 15)
-
-- Initial release on Wordpress
+## 1.0 (2008 Apr 15) *initial release on Wordpress*
 
 ---
 
