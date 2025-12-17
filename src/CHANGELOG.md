@@ -8,9 +8,10 @@ The format is based on [Keep a Changelog](https://keepachangelog.com/en/1.0.0/),
 
 ![Word Count](https://img.shields.io/badge/Word%20Count-655875-brightgreen)
 
-## 3.5.1 (2025 May 16) *conversion of resources to a[bibliography]* (https://theologic.us/bibliography/)
+## 3.5.1 (2025 May 16) *conversion of resources to a [bibliography](https://theologic.us/bibliography/)*
+
 - standardized to using [mdbook's include syntax](https://rust-lang.github.io/mdBook/format/mdbook.html#including-files)
-  - See this repo's [src/bibliography](https://github.com/joelouthan/Theologicus/tree/main/src/bibliography) for my examples
+- See this repo's [src/bibliography](https://github.com/joelouthan/Theologicus/tree/main/src/bibliography) for my examples
 - [Turbian 9th edition](https://www.chicagomanualofstyle.org/turabian/about/about-new.html)
 
 ![Word Count](https://img.shields.io/badge/Word%20Count-565211-brightgreen)
@@ -19,9 +20,12 @@ The format is based on [Keep a Changelog](https://keepachangelog.com/en/1.0.0/),
 
 ## 3.4 (2025 Jan 19) [1689 Second London Baptist Confession](https://theologic.us/confession-1689/)
 
-## 3.3.2 (2024 Apr 10) Port 1689 to [submodule Icon - Git](https://github.com/joelouthan/volume-confession-1689)
+## 3.3.2 (2024 Apr 10) *port [1689 ](https://theologic.us/confession-1689/) to [git submodule](https://github.com/joelouthan/volume-confession-1689)*
 
-## 3.3.1 (2024 Jan 7)
+- seeing if could make standalone books
+- not sustainable
+
+## 3.3.1 (2024 Jan 7) *attempt to port to iOS application*
 
 - File cleanup (mostly flattening directories for img src to work correctly) for porting to Swift aka [the iOS app for Theologicus](https://github.com/joelouthan/com.theologicus)
 - Removed Vocation Resume (just not needed)
@@ -33,7 +37,7 @@ The format is based on [Keep a Changelog](https://keepachangelog.com/en/1.0.0/),
 
 ## 3.1 (2023 Jun 14) [The Story of Ruth](ruth/index.md)
 
-## 3.0 (2023 Jun 9) *Migrated from Hugo to mdBook*
+## 3.0 (2023 Jun 9) *migrated from Hugo to mdBook*
 
 <hr style="clear:both;">
 
