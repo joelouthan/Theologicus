@@ -10,7 +10,7 @@
 >born of the Father before all ages.  
 >God from God, Light from Light,  
 >true God from true God,  
->begotten, not made, consubstantial with the Father;  
+>begotten, not made, of one being with the Father;  
 >through him all things were made.  
 >For us men and for our salvation  
 >he came down from heaven,  
