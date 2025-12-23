@@ -292,7 +292,7 @@
   - [Genesis 12:7-20 The Gospel Preservation](genesis/genesis12-7-20.md)
   - [Genesis 13 The Gospel Life](genesis/genesis13.md)
   - [Genesis 14:1-16 The Gospel Rescue](genesis/genesis14-1-16.md)
-  - [Genesis 14:17-24 The Gospel Blessing]()
+  - [Genesis 14:17-24 The Gospel Blessing](genesis/genesis14-17-24.md)
   - [Genesis 15 The Gospel Covanent]()
   - [Genesis 16 The Gospel Inclusion]()
   - [Genesis 17 The Gospel Work]()
