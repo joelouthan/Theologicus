@@ -293,7 +293,7 @@
   - [Genesis 13 The Gospel Life](genesis/genesis13.md)
   - [Genesis 14:1-16 The Gospel Rescue](genesis/genesis14-1-16.md)
   - [Genesis 14:17-24 The Gospel Blessing](genesis/genesis14-17-24.md)
-  - [Genesis 15 The Gospel Covanent]()
+  - [Genesis 15 The Gospel Covanent](genesis/genesis15.md)
   - [Genesis 16 The Gospel Inclusion]()
   - [Genesis 17 The Gospel Work]()
   - [Genesis 18:1-15 The Gospel Visit]()
