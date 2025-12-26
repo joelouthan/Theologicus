@@ -1,6 +1,6 @@
 <img class="intro-right" src="../images/art-creation.png">
 
-# Genesis 15 The Gospel Covanent
+# Genesis 15 The Gospel Covenant
 
 ## The Text
 
