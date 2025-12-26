@@ -295,7 +295,7 @@
   - [Genesis 14:17-24 The Gospel Blessing](genesis/genesis14-17-24.md)
   - [Genesis 15 The Gospel Covenant](genesis/genesis15.md)
   - [Genesis 16 The Gospel Inclusion](genesis/genesis16.md)
-  - [Genesis 17 The Gospel Work]()
+  - [Genesis 17 The Gospel Work](genesis/genesis17.md)
   - [Genesis 18:1-15 The Gospel Visit]()
   - [Genesis 18:16-33 The Gospel Plea]()
   - [Genesis 19-1-29 The Gospel Wrath]()
