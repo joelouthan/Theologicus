@@ -264,6 +264,7 @@
 -----------
 
 - [Genesis](genesis/index.md)
+
   - [Genesis 1:1 Our Forever Love](genesis/genesis01-1.md)
   - [Genesis 1:1-5 Our Forever Wisdom](genesis/genesis01-1-5.md)
   - [Genesis 1:6-13 Our Forever Home](genesis/genesis01-6-13.md)
