@@ -2,6 +2,8 @@
 
 # Genesis 18:16-33 The Gospel Plea
 
+## The Text
+
 >Genesis 18:16–33 (CSB)  
 ><sup>16</sup> The men got up from there and looked out over Sodom, and Abraham was walking with them to see them off. 
 >
@@ -38,3 +40,22 @@
 ><sup>32</sup> Then he said, “Let my lord not be angry, and I will speak one more time. Suppose ten are found there?” He answered, “I will not destroy it on account of ten.” 
 >
 ><sup>33</sup> When the LORD had finished speaking with Abraham, he departed, and Abraham returned to his place.
+
+## Our God
+
+>**2 Corinthians 5:10-15** (CSB) For we must all appear before the judgment seat of Christ, so that each may be repaid for what he has done in the body, whether good or evil.
+>
+> Therefore, since we know the fear of the Lord, we try to persuade people. What we are is plain to God, and I hope it is also plain to your consciences. We are not commending ourselves to you again, but giving you an opportunity to be proud of us, so that you may have a reply for those who take pride in outward appearance rather than in the heart. For if we are out of our mind, it is for God; if we are in our right mind, it is for you. For the love of Christ compels us, since we have reached this conclusion, that one died for all, and therefore all died. And he died for all so that those who live should no longer live for themselves, but for the one who died for them and was raised.
+
+## The Gospel
+
+>**2 Corinthians 5:16-21** (CSB) From now on, then, we do not know anyone from a worldly perspective. Even if we have known Christ from a worldly perspective, yet now we no longer know him in this way. Therefore, if anyone is in Christ, he is a new creation; the old has passed away, and see, the new has come! Everything is from God, who has reconciled us to himself through Christ and has given us the ministry of reconciliation. That is, in Christ, God was reconciling the world to himself, not counting their trespasses against them, and he has committed the message of reconciliation to us.
+>
+>Therefore, we are ambassadors for Christ, since God is making his appeal through us. We plead on Christ’s behalf, “Be reconciled to God.” He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+
+## Our Response
+
+>**2 Corinthians 6:1-2** (CSB) Working together with him, we also appeal to you, “Don’t receive the grace of God in vain.” For he says:
+>At an acceptable time I listened to you,
+>and in the day of salvation I helped you.
+>See, now is the acceptable time; now is the day of salvation!
