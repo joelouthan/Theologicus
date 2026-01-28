@@ -93,7 +93,7 @@ The Jewish faith absolutely confirms that they are descendants of Abraham throug
 >
 ><sup>4</sup> “As for me, here is my covenant with you: You will become the father of many nations. 
 
-## The Gospel
+## His Gospel
 
 ### Who is doing the work of covenant?
 

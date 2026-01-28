@@ -214,7 +214,7 @@ What will become of these powerful people who for a brief moment here on earth t
 >
 ><sup> 12 </sup> Be glad and rejoice, because your reward is great in heaven. For that is how they persecuted the prophets who were before you.
 
-## The Gospel
+## His Gospel
 
 Reading the Prophets, Isaiah to Malachi
 

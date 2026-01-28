@@ -99,7 +99,7 @@ God set Noah apart from a wicked generation.
 
 That generation is not nearly as wicked as our own. This generation of mankind, that means you and me, fiddles and plays with sexual immorality all the live long day. And if we don't kill babies to cover up our sin, we tend to run into darken rooms with our little screens breaking our minds and hearts over perverse images.
 
-## The Gospel
+## His Gospel
 
 ><sup> 2 </sup> You are to take with you seven pairs, a male and its female, of all the clean animals, and two of the animals that are not clean, a male and its female, 
 >

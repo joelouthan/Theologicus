@@ -109,7 +109,7 @@ Because we will not live unless God saves us. And that life doesn't start when w
 
 Here is the gospel life.
 
-## The Gospel
+## His Gospel
 
 ><sup> 9 </sup> Isn’t the whole land before you? Separate from me: if you go to the left, I will go to the right; if you go to the right, I will go to the left.” 
 >

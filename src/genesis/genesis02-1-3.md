@@ -61,7 +61,7 @@ Look at God's heart towards us and some of the ways He is to His creation:
 >
 >“Lord,” Thomas said, “we don’t know where you’re going. How can we know the way?”
 
-## The Gospel
+## His Gospel
 
 Here's the good news: the good news of Christ brings us all the way home to the Father.
 

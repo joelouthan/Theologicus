@@ -134,7 +134,7 @@ Christ prophesied and fulfilled his own judgment:
 
 Has it happened yet? No, not yet. Not in our timeline. But because God is perfect and cannot lie, this promises is as good as done. Past tense.
 
-## The Gospel
+## His Gospel
 
 This is a lot of death. And that is what sin is. Do you think it is even a coincidence that we are living in a time where the world and even some Christians are trying to redefine what is sin as the sin keeps piling on the body count. The pandemic death toll is at 4.5 million. We cannot keep track of lives lost in war zones such as Afghanistan.
 

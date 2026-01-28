@@ -92,7 +92,7 @@ Since you and me are alive to Christ, you and I get to minister and love and ser
 
 ><sup> 5 </sup> He took his wife, Sarai, his nephew Lot, all the possessions they had accumulated, and the people they had acquired in Haran, and they set out for the land of Canaan. When they came to the land of Canaan, 
 
-## The Gospel
+## His Gospel
 
 ### Predestined by God: Abraham was made righteous by God
 

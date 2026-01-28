@@ -85,7 +85,7 @@ Look at how Jesus speaks of this provision for our most basic needs:
 
 >Matthew 6:26-30 (CSB) Consider the birds of the sky: They don’t sow or reap or gather into barns, yet your heavenly Father feeds them. Aren’t you worth more than they? Can any of you add one moment to his life span by worrying? And why do you worry about clothes? Observe how the wildflowers of the field grow: They don’t labor or spin thread. Yet I tell you that not even Solomon in all his splendor was adorned like one of these. If that’s how God clothes the grass of the field, which is here today and thrown into the furnace tomorrow, won’t he do much more for you—you of little faith?
 
-## The Gospel
+## His Gospel
 
 This is the gospel commandment of God: believe and trust in Him alone.
 

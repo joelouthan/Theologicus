@@ -76,7 +76,7 @@ Actual life. Fullness of joy. Pleasures evermore. Complete satisfaction?
 
 Those are not nice things to have if you get them. I have experienced everything this world has to offer. I have chased the end of the my sin in lust, perversion, pornography. I got to the end and it was death. World has nothing. God has everything. I need all of those things that God is promising so I can truly live.
 
-## The Gospel
+## His Gospel
 
 ><sup> 18 </sup> So Noah, along with his sons, his wife, and his sons’ wives, came out. 
 >

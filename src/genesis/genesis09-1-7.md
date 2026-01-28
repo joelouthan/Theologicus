@@ -95,7 +95,7 @@ Heaven is not heaven without the tangible, felt presence of the Triune God.
 
 Go to God for God. Nothing else is going to satisfy you.
 
-## The Gospel
+## His Gospel
 
 ><sup> 5 </sup> And I will require a penalty for your lifeblood; I will require it from any animal and from any human; if someone murders a fellow human, I will require that person’s life. <sup> 6 </sup> Whoever sheds human blood, by humans his blood will be shed, for God made humans in his image. 
 

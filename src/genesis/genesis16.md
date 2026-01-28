@@ -62,7 +62,7 @@
 
 - Jesus replied, “**Truly I tell you, unless someone is born again, he cannot see the kingdom of God.**”
 
-## The Gospel
+## His Gospel
 
 ### In other words, you must be born again
 
@@ -121,7 +121,7 @@
 
 ### The offer is free because Christ has done it all
 
-### The gospel goes out to because anybody who looks upon the Risen Christ will be saved
+### His Gospel goes out to because anybody who looks upon the Risen Christ will be saved
 
 >John 3:9-15 “How can these things be? ” asked Nicodemus. “Are you a teacher of Israel and don’t know these things? ” Jesus replied. “Truly I tell you, we speak what we know and we testify to what we have seen, but you do not accept our testimony. If I have told you about earthly things and you don’t believe, how will you believe if I tell you about heavenly things? No one has ascended into heaven except the one who descended from heaven — the Son of Man. “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
 

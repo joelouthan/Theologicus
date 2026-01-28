@@ -175,7 +175,7 @@ God has provided everything that you will need to fully and truly live--he has d
 
 >Revelation 20:11-15 (CSB) Then I saw a great white throne and one seated on it. Earth and heaven fled from his presence, and no place was found for them. I also saw the dead, the great and the small, standing before the throne, and books were opened. Another book was opened, which is the book of life, and the dead were judged according to their works by what was written in the books. Then the sea gave up the dead that were in it, and death and Hades gave up the dead that were in them; each one was judged according to their works. Death and Hades were thrown into the lake of fire. This is the second death, the lake of fire. And anyone whose name was not found written in the book of life was thrown into the lake of fire.
 
-## The Gospel
+## His Gospel
 
 ><sup> 23 </sup> He wiped out every living thing that was on the face of the earth, from mankind to livestock, to creatures that crawl, to the birds of the sky, and they were wiped off the earth. Only Noah was left, and those that were with him in the ark.
 

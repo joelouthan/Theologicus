@@ -69,7 +69,7 @@ So many of the laws of God deals with how we are to treat other humans. Do not s
 
 >Hebrews 9:22 (CSB) According to the law almost everything is purified with blood, and without the shedding of blood there is no forgiveness.
 
-## The Gospel
+## His Gospel
 
 ### Through the blood of Christ, we are no longer enemies but reconciled to God
 

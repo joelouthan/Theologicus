@@ -81,7 +81,7 @@ Part of God saving his people was God's judgment upon sin. For those who trust t
 
 But there is not an ounce of God's anger left over from the cross for you. You sin? You fall? You stumble? Then you confess. Then you repent. Do so quickly. Make it easy to fall back into the mighty arms of the only Savior you and I have ever known.
 
-## The Gospel
+## His Gospel
 
 ><sup> 12 </sup> And God said, “This is the sign of the covenant I am making between me and you and every living creature with you, a covenant for all future generations: <sup> 13 </sup> I have placed my bow in the clouds, and it will be a sign of the covenant between me and the earth. <sup> 14 </sup> Whenever I form clouds over the earth and the bow appears in the clouds, <sup> 15 </sup> I will remember my covenant between me and you and all the living creatures: water will never again become a flood to destroy every creature. <sup> 16 </sup> The bow will be in the clouds, and I will look at it and remember the permanent covenant between God and all the living creatures on earth.” 
 

@@ -109,7 +109,7 @@
 >challenging the one who tramples me. Selah  
 >God sends his faithful love and truth.
 
-## The Gospel
+## His Gospel
 
 ### Jesus Christ is the Only Begotten Son of God
 

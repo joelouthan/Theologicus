@@ -50,7 +50,7 @@ Here's what the world wants: I just want the things of God like provision, riche
 
 Every inclination of mankind was nothing but evil all the time.
 
-## The Gospel
+## His Gospel
 
 To say Noah was the exception or in the case with our church culture, the normal and the usual. "God has to save Noah because Noah was doing the right things" wasn't the case because there isn't another case like that in the Bible.
 

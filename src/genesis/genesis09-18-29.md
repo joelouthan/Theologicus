@@ -132,7 +132,7 @@ His love is steadfast. His grace is stacked upon even more grace. His mercies ne
 
 The same God who wipes our sin and wickedness is the same God who loves us enough to send his only begotten Son, to live and die for us so that we can be with the Father forever.
 
-## The Gospel
+## His Gospel
 
 ><sup> 22 </sup> Ham, the father of Canaan, saw his father naked and told his two brothers outside. <sup> 23 </sup> Then Shem and Japheth took a cloak and placed it over both their shoulders, and walking backward, they covered their father’s nakedness. Their faces were turned away, and they did not see their father naked.
 

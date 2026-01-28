@@ -189,7 +189,7 @@ God alone is our provision. And I know we make mistakes or we don't make a mista
 
 As foolish and sinful as Abram was in response to getting a promise from God, Abram did not tried to make his way right. Whatever is really wrong with this world, God will make all things right with himself. He starts with us. And he started and finished because he sent his only begotten Son, the Lord Jesus Christ.
 
-## The Gospel
+## His Gospel
 
 ### Preserved by God: Here is where God lives
 

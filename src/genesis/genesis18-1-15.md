@@ -39,7 +39,7 @@
 
 **Acts 17:22-29** (CSB) Paul stood in the middle of the Areopagus and said, “People of Athens! I see that you are extremely religious in every respect. For as I was passing through and observing the objects of your worship, I even found an altar on which was inscribed, ‘To an Unknown God.’ Therefore, what you worship in ignorance, this I proclaim to you. The God who made the world and everything in it — he is Lord of heaven and earth — does not live in shrines made by hands. Neither is he served by human hands, as though he needed anything, since he himself gives everyone life and breath and all things. From one man he has made every nationality to live over the whole earth and has determined their appointed times and the boundaries of where they live. He did this so that they might seek God, and perhaps they might reach out and find him, though he is not far from each one of us. For in him we live and move and have our being, as even some of your own poets have said, ‘For we are also his offspring.’ Since, then, we are God’s offspring, we shouldn’t think that the divine nature is like gold or silver or stone, an image fashioned by human art and imagination.
 
-## The Gospel
+## His Gospel
 
 **Acts 17:30-31** “Therefore, having overlooked the times of ignorance, God now commands all people everywhere to repent, because he has set a day when he is going to judge the world in righteousness by the man he has appointed. He has provided proof of this to everyone by raising him from the dead.”
 

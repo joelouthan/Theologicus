@@ -93,7 +93,7 @@ God gives commands and we get it all jacked up. Yet, God is still holy and his l
 
 And you think three little words in addition to God's commandment wouldn't do any harm. Adam and Eve thought so well. And they could have never imagine where that little bit of separation would be their utter destruction and death.
 
-## The Gospel
+## His Gospel
 
 Those who have read Genesis 3 and heard it preached before know we are going to get to the first instance of the good news preached by God.
 

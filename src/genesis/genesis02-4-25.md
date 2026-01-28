@@ -205,7 +205,7 @@ The world wants to say that Jesus never talks about marriage nor does Jesus even
 
 And the way that God designed marriage, romance, love, and sex is freedom. Freedom to be and grow as a person in worship to God and by God's grace alone, do so with another person as they grow and be and worship God.
 
-## The Gospel
+## His Gospel
 
 The hard truth: we don't have this. None of it. Not intrinsically. Not automatically. Not inherently. Not by birth.
 

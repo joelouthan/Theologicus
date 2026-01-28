@@ -121,7 +121,7 @@ Son: Let's do this!
 
 >In the beginning God created the heavens and the earth.
 
-## The Gospel
+## His Gospel
 
 God, who is love and is the only one who can properly define what love is, in his perfection from eternity past to the eternity future, always had those who believed and trust in his Son.
 

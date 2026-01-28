@@ -45,7 +45,7 @@ He can do whatever he wants and he does as he pleased.
 
 But through it all, no matter how sinful and treasonous our responses and actions might be, God is still merciful. It does not matter if we get it right or not, God is gracious and kind and he is inviting us not get it right or figure it out, but "come and see" the glory of God--Jesus Christ. (John 1:46)
 
-## The Gospel
+## His Gospel
 
 From:
 

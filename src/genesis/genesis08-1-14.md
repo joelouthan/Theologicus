@@ -122,7 +122,7 @@ You are a new creature. You are being sanctified and being conformed to the imag
 
 Give mercies to others--believers and unbelievers alike. Christ has given you mercy; give mercy to where people are at and believe that God will make us whole and healed and new.
 
-## The Gospel
+## His Gospel
 
 ><sup> 6 </sup> After forty days Noah opened the window of the ark that he had made, <sup> 7 </sup> and he sent out a raven. It went back and forth until the water had dried up from the earth. 
 

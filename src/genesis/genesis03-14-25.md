@@ -54,7 +54,7 @@
 
 >John 12:32-33 (CSB) As for me, if I am lifted up from the earth I will draw all people to myself.”He said this to indicate what kind of death he was about to die.
 
-## The Gospel
+## His Gospel
 
 ### Christ gives the law to be cursed
 

@@ -24,7 +24,7 @@
 
 >Matthew 23:33-36 (CSB) “Snakes! Brood of vipers! How can you escape being condemned to hell? This is why I am sending you prophets, sages, and scribes. Some of them you will kill and crucify, and some of them you will flog in your synagogues and pursue from town to town. So all the righteous blood shed on the earth will be charged to you, from the blood of righteous Abel to the blood of Zechariah, son of Berechiah, whom you murdered between the sanctuary and the altar. Truly I tell you, all these things will come on this generation.
 
-## The Gospel
+## His Gospel
 
 ### You are not born into this
 

@@ -156,7 +156,7 @@ And here is the second part of that wrath--one that lasts forever:
 
 Don't let anybody try to tell you that Christ never talked about hell. Christ talked about hell and eternal damnation plenty of times. If you read the Gospels and you can't see it yourself, you might want to question your own salvation.
 
-## The Gospel
+## His Gospel
 
 ### Holiness of God is salvation for his people
 

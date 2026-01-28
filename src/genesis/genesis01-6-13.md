@@ -26,7 +26,7 @@
 
 ><sup>24-25</sup> The God who made the world and everything in it, being Lord of heaven and earth, does not live in temples made by man, nor is he served by human hands, as though he needed anything, since he himself gives to all mankind life and breath and everything.
 
-## The Gospel
+## His Gospel
 
 ### God determines the times and places of where we live
 

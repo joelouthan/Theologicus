@@ -170,7 +170,7 @@ The world already rejects this notion. It's supernatural, divine, and robs us of
 
 They would argue that Christianity and the gospel doesn't work because it doesn't do enough to protect people from the evils of the world.
 
-## The Gospel
+## His Gospel
 
 Yet, the good news of God is not a way to protect us from being hurt. The gospel of Christ is the proclamation that we get to be in the eternally safe and loving arms of Jesus. And no power in hell, no scheme of man--including hatred, bigotry, and racism--can ever separate us from the love of God that can only be found in Jesus Christ our Lord.
 

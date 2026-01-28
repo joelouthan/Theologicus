@@ -84,7 +84,7 @@
 
 >James 1:14 But each person is tempted when he is drawn away and enticed by his own evil desire. Then after desire has conceived, it gives birth to sin, and when sin is fully grown, it gives birth to death.
 
-## The Gospel
+## His Gospel
 
 ### God has the greatest mercy for sinners
 
