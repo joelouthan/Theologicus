@@ -65,27 +65,51 @@ We preach and proclaim this good news because of the love of God for us and from
 
 ## The Gospel
 
+### We are called to hear the gospel, not once but for all time and live our lives in light of his love for us.
+
 >**2 Corinthians 5:16-21** (CSB) From now on, then, we do not know anyone from a worldly perspective. Even if we have known Christ from a worldly perspective, yet now we no longer know him in this way. Therefore, if anyone is in Christ, he is a new creation; the old has passed away, and see, the new has come! Everything is from God, who has reconciled us to himself through Christ and has given us the ministry of reconciliation. That is, in Christ, God was reconciling the world to himself, not counting their trespasses against them, and he has committed the message of reconciliation to us.
 >
 >Therefore, we are ambassadors for Christ, since God is making his appeal through us. We plead on Christ’s behalf, “Be reconciled to God.” 
 
-We are called to hear the gospel, not once but for all time and live our lives in light of his love for us.
-
-Live in the absolute truth that the Almighty Christ has removed your sin -- past, present, and future sins -- upon himself and died with those sins and buried those sins. 
+### Live in the absolute truth that the Almighty Christ has removed your sin -- past, present, and future sins -- upon himself and died with those sins and buried those sins. 
 
 >He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
-Because our sins are not righteousness, they are buried -- "separated as far as the east is from the west" (Psalm 103:12). Because Christ is righteous, he cannot stay dead but by the power of the Holy Spirit, he has risen from the dead!
+### Because our sins are not righteousness, they are buried -- "separated as far as the east is from the west" (Psalm 103:12). Because Christ is righteous, he cannot stay dead but by the power of the Holy Spirit, he has risen from the dead!
 
 ## Our Response
 
-Do you have the Christ? Do you believe and trust the Christ? Then take heart:
+### The Son of God and the Spirit of God proceeds from God our Father
+
+><sup>22</sup> The men turned from there and went toward Sodom while Abraham remained standing before the LORD
+
+I am not here to teach if this is a pre-incarnate appearance of the Christ -- that's for another teaching for another day. 
+
+That is to say, that the Christ and the Spirit proceeds from the Father. I don't care what ESS/ERASers try to tell you -- there is no eternal subordination of the Son to the Father. We do get to use eisegesis--that is, read into--the God ordained structure within marriage and place that doctrine upon Triune God. That's not how that works. The word is abundantly clear that Jesus and Holy Spirit was sent out by the Spirit. For:
+
+>**John 3:16-17** For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
+
+And
+
+>**John 14:26** But the Counselor, the Holy Spirit, whom the Father will send in my name, will teach you all things and remind you of everything I have told you.
+
+That sending of the Son and Spirit from the Father? That started in eternity past, Ephesians 1, where the Father and the Son make a covenant to save his people from their sins. That covenant, unbreakable promise of the infallable, immutable, impassable, infinite Almighty God was then sealed from the infallable, immutable, impassable, infinite Almighty Holy Spirit.
+
+Your salvation is locked in. You don't got to worry about nothing -- your salvation was done way before you were even born,
+
+You cannot worry if you are elect and one of the numbered. All you got to do is believe and trust that Christ has resurrected from dead.
+
+Do you have the Christ? Do you believe and trust the Christ? Then take heart, you are born again!
 
 >**John 3:14-15** Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
 
 and
 
 >**Romans 8:11** And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
+
+In other words:
+
+>**1 John 5:1** Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father also loves the one born of him.
 
 For those called to preach, preach this word. For those who teach, teach this doctrine. For who are born again, live this life and speak about it and teach it your neighbors and children.
 
