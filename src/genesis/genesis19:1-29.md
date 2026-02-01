@@ -2,6 +2,8 @@
 
 # Genesis 19:1-29 The Gospel Wrath
 
+## The Text
+
 >Genesis 19:1–29 (CSB)  
 ><sup>1</sup> The two angels entered Sodom in the evening as Lot was sitting in Sodom’s gateway. When Lot saw them, he got up to meet them. He bowed with his face to the ground 
 >
@@ -61,3 +63,44 @@
 >
 ><sup>29</sup> So it was, when God destroyed the cities of the plain, he remembered Abraham and brought Lot out of the middle of the upheaval when he demolished the cities where Lot had lived.
 
+## Our God
+
+### God is Creator over everything
+
+### God rules and reigns over everything
+
+### God is in the heavens and he does as he pleases
+
+### God alone is holy, good, righteous, and just
+
+### God makes demands on his creation -- it is right
+
+### We have failed to meet his demands
+
+### We shall perish because we are disobedient -- by choice and by birth
+
+#### Hell is real
+
+#### Torment is real
+
+#### This is not the torturous work of the devil, nor the mere consequences of our sins but this is the holy wrath of God
+
+#### That wrath is forever
+
+## His Gospel
+
+### But God
+
+#### alone being rich in neverending mercies
+
+#### alone who gives grace upon much needed grace
+
+#### alone whose steadfast love that never stops because it never began
+
+## Our Response
+
+### Who is like our God?
+
+### And who can compare to him?
+
+### He alone is worthy
