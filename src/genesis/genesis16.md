@@ -4,7 +4,7 @@
 
 ## The Text
 
->Genesis 16 (CSB)  
+>Genesis 16  
 ><sup>1</sup> Abram’s wife, Sarai, had not borne any children for him, but she owned an Egyptian slave named Hagar. 
 >
 ><sup>2</sup> Sarai said to Abram, “Since the LORD has prevented me from bearing children, go to my slave; perhaps through her I can build a family.” And Abram agreed to what Sarai said. 

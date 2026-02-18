@@ -9,13 +9,13 @@
 ## The Devotion
 ## Pray Then Like This
 
->Matthew 6:9c (CSB) your name be honored as holy
+>Matthew 6:9c your name be honored as holy
 
 ## Hallowed Be Your Name
 
 ### God is holy
 
->Isaiah 6:1-4 (CSB) In the year that King Uzziah died, I saw the Lord seated on a high and lofty throne, and the hem of his robe filled the temple. Seraphim were standing above him; they each had six wings: with two they covered their faces, with two they covered their feet, and with two they flew. And one called to another:  
+>Isaiah 6:1-4 In the year that King Uzziah died, I saw the Lord seated on a high and lofty throne, and the hem of his robe filled the temple. Seraphim were standing above him; they each had six wings: with two they covered their faces, with two they covered their feet, and with two they flew. And one called to another:  
 >Holy, holy, holy is the LORD of Armies;  
 >his glory fills the whole earth.  
 >The foundations of the doorways shook at the sound of their voices, and the temple was filled with smoke.  
@@ -29,7 +29,7 @@
 
 ### We are set apart to Him
 
->Leviticus 20:26 (CSB) You are to be holy to me because I, the LORD, am holy, and I have set you apart from the nations to be mine.
+>Leviticus 20:26 You are to be holy to me because I, the LORD, am holy, and I have set you apart from the nations to be mine.
 
 ### We are made holy because he is holy
 
@@ -46,11 +46,11 @@
 
 ### Now we get to be holy because He is holy
 
->1 Peter 1:14-16 (CSB) As obedient children, do not be conformed to the desires of your former ignorance. But as the one who called you is holy, you also are to be holy in all your conduct; for it is written, Be holy, because I am holy.
+>1 Peter 1:14-16 As obedient children, do not be conformed to the desires of your former ignorance. But as the one who called you is holy, you also are to be holy in all your conduct; for it is written, Be holy, because I am holy.
 
 ### We are completely different than those who do not believe
 
->1 Peter 2:6-10 (CSB) For it stands in Scripture:  
+>1 Peter 2:6-10 For it stands in Scripture:  
 >See, I lay a stone in Zion,  
 >a chosen and honored cornerstone,  
 >and the one who believes in him  
@@ -66,7 +66,7 @@
 
 ### This call to holiness is the gospel to us
 
->1 Peter 1:22-25 (CSB) Since you have purified yourselves by your obedience to the truth, so that you show sincere brotherly love for each other, from a pure heart love one another constantly, because you have been born again—not of perishable seed but of imperishable—through the living and enduring word of God. For  
+>1 Peter 1:22-25 Since you have purified yourselves by your obedience to the truth, so that you show sincere brotherly love for each other, from a pure heart love one another constantly, because you have been born again—not of perishable seed but of imperishable—through the living and enduring word of God. For  
 >All flesh is like grass,  
 >and all its glory like a flower of the grass.  
 >The grass withers, and the flower falls,  

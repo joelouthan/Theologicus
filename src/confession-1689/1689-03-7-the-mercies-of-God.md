@@ -8,7 +8,7 @@
 
 ## The Text
 
->John 21:17 (CSB) He asked him the third time, “Simon, son of John, do you love me?” Peter was grieved that he asked him the third time, “Do you love me?” He said, “Lord, you know everything; you know that I love you.” “Feed my sheep,” Jesus said.
+>John 21:17 He asked him the third time, “Simon, son of John, do you love me?” Peter was grieved that he asked him the third time, “Do you love me?” He said, “Lord, you know everything; you know that I love you.” “Feed my sheep,” Jesus said.
 
 ## The Chapter
 
@@ -18,7 +18,7 @@
 
 ### The doctrine of the high mystery of predestination is to be handled with special prudence and care
 
->1 Thessalonians 1:4-5 (CSB) For we know, brothers and sisters loved by God, that he has chosen you, because our gospel did not come to you in word only, but also in power, in the Holy Spirit, and with full assurance. You know how we lived among you for your benefit,
+>1 Thessalonians 1:4-5 For we know, brothers and sisters loved by God, that he has chosen you, because our gospel did not come to you in word only, but also in power, in the Holy Spirit, and with full assurance. You know how we lived among you for your benefit,
 
 So, what now?
 
@@ -28,15 +28,15 @@ But as clear and perspicuous that the Bible's teaching on predestination is, her
 
 The Bible calls us to handle such teaching with special wisdom and care. For:
 
->1 Timothy 4:16 (CSB) Pay close attention to your life and your teaching; persevere in these things, for in doing this you will save both yourself and your hearers.
+>1 Timothy 4:16 Pay close attention to your life and your teaching; persevere in these things, for in doing this you will save both yourself and your hearers.
 
->2 Timothy 2:15 (CSB) Be diligent to present yourself to God as one approved, a worker who doesn’t need to be ashamed, correctly teaching the word of truth.
+>2 Timothy 2:15 Be diligent to present yourself to God as one approved, a worker who doesn’t need to be ashamed, correctly teaching the word of truth.
 
->Matthew 18:6 (CSB) “But whoever causes one of these little ones who believe in me to fall away—it would be better for him if a heavy millstone were hung around his neck and he were drowned in the depths of the sea.
+>Matthew 18:6 “But whoever causes one of these little ones who believe in me to fall away—it would be better for him if a heavy millstone were hung around his neck and he were drowned in the depths of the sea.
 
 And:
 
->James 3:1 (CSB) Not many should become teachers, my brothers, because you know that we will receive a stricter judgment.
+>James 3:1 Not many should become teachers, my brothers, because you know that we will receive a stricter judgment.
 
 It is unhelpful, unwise, and foolish to proclaim to someone that they are elect on the basis on election alone. To teach election without the facets of the gospel and atonement is foolishness. We cannot, in good conscience, proclaim someone is elect when there is no human who is privy to such information. There is one man who had such knowledge and his name is Jesus Christ, the Son of God who is God, who has saved his people from their sins. Of course, Christ knew the people whom he was saving--that is why he came to live and die--to fulfill the law for us.
 
@@ -44,7 +44,7 @@ It is unhelpful, unwise, and foolish to proclaim to someone that they are elect 
 
 ### that men attending the will of God revealed in his Word
 
->Psalm 19:7–10 (CSB)  
+>Psalm 19:7–10  
 ><sup>7</sup> The instruction of the LORD is perfect, renewing one’s life; the testimony of the LORD is trustworthy, making the inexperienced wise. 
 >
 ><sup>8</sup> The precepts of the LORD are right, making the heart glad; the command of the LORD is radiant, making the eyes light up. 
@@ -55,11 +55,11 @@ It is unhelpful, unwise, and foolish to proclaim to someone that they are elect 
 
 And:
 
->2 Timothy 3:16–17 (CSB) All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
+>2 Timothy 3:16–17 All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
 
 Let Christ simplify this all the way:
 
->Matthew 4:4 (CSB) He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
+>Matthew 4:4 He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
 
 Christ has said: "The Scriptures are the mouth of God."
 
@@ -77,9 +77,9 @@ Charismatic brother and sisters, what I am proposing may not seem supernatural e
 
 ### and yielding obedience thereunto, may, from the certainty of their effectual vocation, be assured of their eternal election
 
->2 Peter 1:10 (CSB) Therefore, brothers and sisters, make every effort to confirm your calling and election, because if you do these things you will never stumble.
+>2 Peter 1:10 Therefore, brothers and sisters, make every effort to confirm your calling and election, because if you do these things you will never stumble.
 
->1 John 5:13 (CSB) I have written these things to you who believe in the name of the Son of God so that you may know that you have eternal life.
+>1 John 5:13 I have written these things to you who believe in the name of the Son of God so that you may know that you have eternal life.
 
 Now that God has saved us, we get to do good works. We get to please God because we are in the Son, with whom the Father is well-pleased.
 
@@ -93,9 +93,9 @@ Now, as his child, go and sin no more. You are in Christ. Go and rest in Christ.
 
 ### so shall this doctrine afford matter of praise, reverence, and admiration of God
 
->Ephesians 1:6 (CSB) to the praise of his glorious grace that he lavished on us in the Beloved One.
+>Ephesians 1:6 to the praise of his glorious grace that he lavished on us in the Beloved One.
 
->Romans 11:33–36 (CSB) Oh, the depth of the riches and the wisdom and the knowledge of God! How unsearchable his judgments and untraceable his ways! For who has known the mind of the Lord? Or who has been his counselor? And who has ever given to God, that he should be repaid? For from him and through him and to him are all things. To him be the glory forever. Amen.
+>Romans 11:33–36 Oh, the depth of the riches and the wisdom and the knowledge of God! How unsearchable his judgments and untraceable his ways! For who has known the mind of the Lord? Or who has been his counselor? And who has ever given to God, that he should be repaid? For from him and through him and to him are all things. To him be the glory forever. Amen.
 
 Some with certain personalities and dispositions and proclivities will be more prone to try hard. God knows that. Still, praise his name for what all he has done.
 
@@ -109,18 +109,18 @@ And my beloved, if you have never sat in a church where the gospel was preached 
 
 ### and of humility, diligence, and abundant consolation
 
->Romans 11:2-5 (CSB) God has not rejected his people whom he foreknew. Or don’t you know what the Scripture says in the passage about Elijah — how he pleads with God against Israel? Lord, they have killed your prophets and torn down your altars. I am the only one left, and they are trying to take my life! But what was God’s answer to him? I have left seven thousand for myself who have not bowed down to Baal. In the same way, then, there is also at the present time a remnant chosen by grace.
+>Romans 11:2-5 God has not rejected his people whom he foreknew. Or don’t you know what the Scripture says in the passage about Elijah — how he pleads with God against Israel? Lord, they have killed your prophets and torn down your altars. I am the only one left, and they are trying to take my life! But what was God’s answer to him? I have left seven thousand for myself who have not bowed down to Baal. In the same way, then, there is also at the present time a remnant chosen by grace.
 
->1 Chronicles 29:14-15 (CSB) But who am I, and who are my people, that we should be able to give as generously as this? For everything comes from you, and we have given you only what comes from your own hand. For we are aliens and temporary residents in your presence as were all our ancestors. Our days on earth are like a shadow, without hope.
+>1 Chronicles 29:14-15 But who am I, and who are my people, that we should be able to give as generously as this? For everything comes from you, and we have given you only what comes from your own hand. For we are aliens and temporary residents in your presence as were all our ancestors. Our days on earth are like a shadow, without hope.
 
->Psalm 22:6 (CSB) But I am a worm and not a man, scorned by mankind and despised by people.
+>Psalm 22:6 But I am a worm and not a man, scorned by mankind and despised by people.
 
 Or in the words of the Apostle Paul be our ever declaration:
 
->1 Timothy 1:12-17 (CSB) I give thanks to Christ Jesus our Lord who has strengthened me, because he considered me faithful, appointing me to the ministry — even though I was formerly a blasphemer, a persecutor, and an arrogant man. But I received mercy because I acted out of ignorance in unbelief, and the grace of our Lord overflowed, along with the faith and love that are in Christ Jesus. This saying is trustworthy and deserving of full acceptance: “Christ Jesus came into the world to save sinners” — and I am the worst of them. But I received mercy for this reason, so that in me, the worst of them, Christ Jesus might demonstrate his extraordinary patience as an example to those who would believe in him for eternal life. Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
+>1 Timothy 1:12-17 I give thanks to Christ Jesus our Lord who has strengthened me, because he considered me faithful, appointing me to the ministry — even though I was formerly a blasphemer, a persecutor, and an arrogant man. But I received mercy because I acted out of ignorance in unbelief, and the grace of our Lord overflowed, along with the faith and love that are in Christ Jesus. This saying is trustworthy and deserving of full acceptance: “Christ Jesus came into the world to save sinners” — and I am the worst of them. But I received mercy for this reason, so that in me, the worst of them, Christ Jesus might demonstrate his extraordinary patience as an example to those who would believe in him for eternal life. Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
 
 ### to all that sincerely obey the gospel
 
->Luke 10:20 (CSB) However, don’t rejoice that the spirits submit to you, but rejoice that your names are written in heaven.”
+>Luke 10:20 However, don’t rejoice that the spirits submit to you, but rejoice that your names are written in heaven.”
 
 This is why we will praise his name forever. Amen.

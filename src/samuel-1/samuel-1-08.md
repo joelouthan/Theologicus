@@ -4,7 +4,7 @@
 
 ## The Word
 
->Isaiah 63:1–6 (CSB)  
+>Isaiah 63:1–6  
 ><sup>1</sup> Who is this coming from Edom in crimson-stained garments from Bozrah— this one who is splendid in his apparel, striding in his formidable might? <bgy>It is I, proclaiming vindication, powerful to save.</bgy> 
 >
 ><sup>2</sup> Why are your clothes red, and your garments like one who treads a winepress? 
@@ -19,7 +19,7 @@
 
 ## The Passage
 
->1 Samuel 8 (CSB)  
+>1 Samuel 8  
 ><sup>1</sup> When Samuel grew old, he appointed his sons as judges over Israel. 
 >
 ><sup>2</sup> His firstborn son’s name was Joel and his second was Abijah. They were judges in Beer-sheba. 
@@ -74,7 +74,7 @@
 
 ## The Psalm
 
->Psalm 4 (CSB)  
+>Psalm 4  
 ><sup></sup> For the choir director: with stringed instruments. A psalm of David. 
 >
 ><sup>1</sup> Answer me when I call, God, who vindicates me. You freed me from affliction; be gracious to me and hear my prayer. 

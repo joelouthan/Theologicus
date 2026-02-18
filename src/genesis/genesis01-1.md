@@ -4,11 +4,11 @@
 
 ## The Word
 
->John 1:1-2 (CSB) In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning.
+>John 1:1-2 In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning.
 
 ## The Text
 
->Genesis 1:1 (CSB) In the beginning God created the heavens and the earth.
+>Genesis 1:1 In the beginning God created the heavens and the earth.
 
 ## The Support
 
@@ -22,9 +22,9 @@ What was God doing before he created the heavens and the earth? In other words, 
 
 ### Before we even came about, God had everything he needed--he was not in need of anything more
 
->John 10:25-30 (CSB) “I did tell you and you don’t believe,” Jesus answered them. “The works that I do in my Father’s name testify about me. But you don’t believe because you are not of my sheep. My sheep hear my voice, I know them, and they follow me. I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
+>John 10:25-30 “I did tell you and you don’t believe,” Jesus answered them. “The works that I do in my Father’s name testify about me. But you don’t believe because you are not of my sheep. My sheep hear my voice, I know them, and they follow me. I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
 
->John 17:1-5 (CSB) Jesus spoke these things, looked up to heaven, and said, “Father, the hour has come. Glorify your Son so that the Son may glorify you, since you gave him authority over all people, so that he may give eternal life to everyone you have given him. This is eternal life: that they may know you, the only true God, and the one you have sent —Jesus Christ. I have glorified you on the earth by completing the work you gave me to do. Now, Father, glorify me in your presence with that glory I had with you before the world existed.
+>John 17:1-5 Jesus spoke these things, looked up to heaven, and said, “Father, the hour has come. Glorify your Son so that the Son may glorify you, since you gave him authority over all people, so that he may give eternal life to everyone you have given him. This is eternal life: that they may know you, the only true God, and the one you have sent —Jesus Christ. I have glorified you on the earth by completing the work you gave me to do. Now, Father, glorify me in your presence with that glory I had with you before the world existed.
 
 To say "relationship" and "community" to describe the Triune God does not do it justice. It feels incomplete--I think mostly so because here on earth, we have never experienced perfect relationships and community with one another. Those concepts and words are marred, tainted and infected with sin and wickedness.
 
@@ -57,13 +57,13 @@ We will get there by the grace of God alone. Until then, the Father will conform
 >before you gave birth to the earth and the world,
 >from eternity to eternity, you are God.
 
->Romans 8:28-30 (CSB) We know that all things work together for the good of those who love God, who are called according to his purpose. For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
+>Romans 8:28-30 We know that all things work together for the good of those who love God, who are called according to his purpose. For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
 
->Ephesians 1:3-6 (CSB) Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
+>Ephesians 1:3-6 Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
 
->Ephesians 2:1-5 (CSB) And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. But God, who is rich in mercy, because of his great love that he had for us, made us alive with Christ even though we were dead in trespasses. You are saved by grace!
+>Ephesians 2:1-5 And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. But God, who is rich in mercy, because of his great love that he had for us, made us alive with Christ even though we were dead in trespasses. You are saved by grace!
 
->Romans 5:6-8 (CSB) For while we were still helpless, at the right time, Christ died for the ungodly. For rarely will someone die for a just person—though for a good person perhaps someone might even dare to die. But God proves his own love for us in that while we were still sinners, Christ died for us.
+>Romans 5:6-8 For while we were still helpless, at the right time, Christ died for the ungodly. For rarely will someone die for a just person—though for a good person perhaps someone might even dare to die. But God proves his own love for us in that while we were still sinners, Christ died for us.
 
 I have heard so many weird explanations from well-intended Christians try to do their best to explain away words like predestination and foreknew when it comes to God. We don't have a frame for knowing before existing. We don't have a mindset of loving before we were alive. But for the God was is from everlasting to everlasting, this is who he is and nothing more nor less.
 
@@ -71,15 +71,15 @@ There is one thought called Molinism that attempts to bridge the omniscience and
 
 First, the Bible states that we were dead in our trespasses. So how does a dead person able to choose God unless there is something outside of that dead person to give them life? Have you ever met a dead person who brought himself back to life? Christ did so by the Holy Spirit. How can any one else do more than that? And in this, Romans 5:8 is such a comfort:
 
->Romans 5:6-8 (CSB) For while we were still helpless, at the right time, Christ died for the ungodly. For rarely will someone die for a just person—though for a good person perhaps someone might even dare to die. But God proves his own love for us in that while we were still sinners, Christ died for us.
+>Romans 5:6-8 For while we were still helpless, at the right time, Christ died for the ungodly. For rarely will someone die for a just person—though for a good person perhaps someone might even dare to die. But God proves his own love for us in that while we were still sinners, Christ died for us.
 
 The Bible rightly states that we were helpless and ungodly. But God proved his love for us in that while we were still sinners, Christ died for us. Think about this: when did the crucifixion of Christ occurred? A little over two thousand years ago. When did you start sinning against God? Before or after that? Christ never looked down the corridors of time and saw that we were choosing God but rather, he looked down the corridors of time, saw that were running hard into sin and death. Titus 3 says it best:
 
->Titus 3:3 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
+>Titus 3:3 For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
 
 Christ saw all of that and with great joy descended into death upon the cross so that we would live!
 
->Titus 3:4-7 (CSB) But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior so that, having been justified by his grace, we may become heirs with the hope of eternal life.
+>Titus 3:4-7 But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior so that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
 Second, the Scriptures never says "foresaw" as in "God looked into time and foresaw those who would choose him."  No, God foreknew his people.
 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 123 (CSB)  
+>Psalm 123  
 ><sup></sup> A song of ascents. 
 >
 ><sup>1</sup> I lift my eyes to you, the one enthroned in heaven. 

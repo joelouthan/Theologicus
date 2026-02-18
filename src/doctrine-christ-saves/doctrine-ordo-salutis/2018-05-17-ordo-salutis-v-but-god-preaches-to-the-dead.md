@@ -31,7 +31,7 @@ If you are in Christ, you get to rejoice and celebrate where God has rescue you 
 
 ## The Doctrine
 
->John 6:44–47 (CSB)  
+>John 6:44–47  
 ><sup> 44 </sup> No one can come to me unless the Father who sent me draws him, and I will raise him up on the last day. 
 
 ><sup> 45 </sup> It is written in the Prophets: And they will all be taught by God. Everyone who has listened to and learned from the Father comes to me—
@@ -44,51 +44,51 @@ When God calls out, he is never speaking to hear himself speak. His words are ne
 
 This is the first instance of the calling: the breath of life.
 
->Genesis 2:4-7 (CSB) These are the records of the heavens and the earth, concerning their creation. At the time that the LORD God made the earth and the heavens, no shrub of the field had yet grown on the land, and no plant of the field had yet sprouted, for the LORD God had not made it rain on the land, and there was no man to work the ground. But mist would come up from the earth and water all the ground. Then the LORD God formed the man out of the dust from the ground and breathed the breath of life into his nostrils, and the man became a living being.
+>Genesis 2:4-7 These are the records of the heavens and the earth, concerning their creation. At the time that the LORD God made the earth and the heavens, no shrub of the field had yet grown on the land, and no plant of the field had yet sprouted, for the LORD God had not made it rain on the land, and there was no man to work the ground. But mist would come up from the earth and water all the ground. Then the LORD God formed the man out of the dust from the ground and breathed the breath of life into his nostrils, and the man became a living being.
 
 When God breathed his essence into our original parents, it wasn’t just simply oxygen filling our lungs, it was His Spirit. This is what made us different from all of creation and it is why Paul says that we "who have the firstfruits of the Spirit” (Romans 8:23) because God breathed his life into our bodies, giving us the very fullness of life. He was in us and we were with him.
 
 Then the Fall came. We did not believe the truth of God’s word that gives life and sustains life. He spoke his perfect plan to us. We chose not to believe that plan and instead, exchanged it for our own plan of peace. In that fateful exchange, all of creation shattered. At that moment, we went from destiny of life and peace to a destiny of death and destruction.
 
->Romans 8:6 (CSB) Now the mindset of the flesh is death, but the mindset of the Spirit is life and peace.
+>Romans 8:6 Now the mindset of the flesh is death, but the mindset of the Spirit is life and peace.
 
 Despite our folly, despite our wickedness, despite our wickedness and despite our iniquities, God still calls out the gospel to our original parents:
 
->Genesis 3:15 (CSB) I will put hostility between you and the woman,
+>Genesis 3:15 I will put hostility between you and the woman,
 and between your offspring and her offspring.
 He will strike your head,
 and you will strike his heel.
 
 And upon hearing God’s promise that he will do everything to make everything right, correct, perfect and peaceful again, Adam and Eve believed in God and because they believed God again, he clothed them in His provision.
 
->Genesis 3:21 (CSB) The LORD God made clothing from skins for the man and his wife, and he clothed them.
+>Genesis 3:21 The LORD God made clothing from skins for the man and his wife, and he clothed them.
 
 And if you see any time in the Bible that one is clothed by God, it is always clothed in righteousness.
 
->Job 29:14 (CSB)  
+>Job 29:14  
 > I clothed myself in righteousness, and it enveloped me; my just decisions were like a robe and a turban.
 
->Psalm 132:9 (CSB)  
+>Psalm 132:9  
 > May your priests be clothed with righteousness, and may your faithful people shout for joy.
 
->Isaiah 59:17 (CSB)  
+>Isaiah 59:17  
 > He put on righteousness as body armor, and a helmet of salvation on his head; he put on garments of vengeance for clothing, and he wrapped himself in zeal as in a cloak.
 
->Isaiah 61:10 (CSB)  
+>Isaiah 61:10  
 > I rejoice greatly in the LORD, I exult in my God; for he has clothed me with the garments of salvation and wrapped me in a robe of righteousness, as a groom wears a turban and as a bride adorns herself with her jewels.
 
->Luke 15:17-24 (CSB) When he came to his senses, he said, ‘How many of my father’s hired workers have more than enough food, and here I am dying of hunger! I’ll get up, go to my father, and say to him, “Father, I have sinned against heaven and in your sight. I’m no longer worthy to be called your son. Make me like one of your hired workers.”’ So he got up and went to his father. But while the son was still a long way off, his father saw him and was filled with compassion. He ran, threw his arms around his neck, and kissed him. The son said to him, ‘Father, I have sinned against heaven and in your sight. I’m no longer worthy to be called your son.’
+>Luke 15:17-24 When he came to his senses, he said, ‘How many of my father’s hired workers have more than enough food, and here I am dying of hunger! I’ll get up, go to my father, and say to him, “Father, I have sinned against heaven and in your sight. I’m no longer worthy to be called your son. Make me like one of your hired workers.”’ So he got up and went to his father. But while the son was still a long way off, his father saw him and was filled with compassion. He ran, threw his arms around his neck, and kissed him. The son said to him, ‘Father, I have sinned against heaven and in your sight. I’m no longer worthy to be called your son.’
 >
 >“But the father told his servants, ‘Quick! Bring out the best robe and put it on him; put a ring on his finger and sandals on his feet. Then bring the fattened calf and slaughter it, and let’s celebrate with a feast, because this son of mine was dead and is alive again; he was lost and is found!’ So they began to celebrate.
 
->Ephesians 6:14 (CSB)  
+>Ephesians 6:14  
 > Stand, therefore, with truth like a belt around your waist, righteousness like armor on your chest,
 
 Let’s keep going down the list.
 
 Romans 3:23 declares all have sinned and come short of the glory of God.
 
->Genesis 6:5-7 (CSB) When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, the LORD regretted that he had made man on the earth, and he was deeply grieved. Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky—for I regret that I made them.”
+>Genesis 6:5-7 When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, the LORD regretted that he had made man on the earth, and he was deeply grieved. Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky—for I regret that I made them.”
 
 Genesis 6:5 starts out by God seeing the wickedness of man on the earth, not only in their actions but at the root level of their hearts and minds where all they did was think evil thoughts continuously. Verse 6, God says, "I am sorry I have ever made man and verse 7, God decrees "I am going to wipe out every breathing thing on the earth because I am so sorry I have made them.”
 
@@ -100,11 +100,11 @@ Four times in the New Testament by Paul and James they will simply quote Genesis
 
 But what is the truly awesome power of the effectual calling of God? These guys were basic living, with ears that can hear and an intellect to process such words and had the power to discern what is true or not, whether they came from God or not. Except that Paul will quote the Psalm in Romans 3:10-12 as it is written: "None is righteous, no, not one; no one understands; no one seeks for God. All have turned aside; together they have become worthless; no one does good, not even one.” Paul will go one step further in Ephesians 2 and states emphatically:
 
->Ephesians 2:1-3 (CSB) And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
+>Ephesians 2:1-3 And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
 
 Was Paul using strong language in saying that we were basically dead? Yet God gives us the perfect analogy:
 
->Ezekiel 37:1–14 (CSB)  
+>Ezekiel 37:1–14  
 ><sup> 1 </sup> The hand of the LORD was on me, and he brought me out by his Spirit and set me down in the middle of the valley; it was full of bones. 
 
 ><sup> 2 </sup> He led me all around them. There were a great many of them on the surface of the valley, and they were very dry. 
@@ -135,7 +135,7 @@ Was Paul using strong language in saying that we were basically dead? Yet God gi
 
 Not only it is the perfect historical account of God’s breath and God’s words bringing life in Genesis, God’s calling used for salvation throughout the Bible and theologically proven by the prophecies of Ezekiel and the accounts of Paul, the Word himself, Jesus Christ, shows us this way in John 11.
 
->John 11:1–44 (CSB)  
+>John 11:1–44  
 ><sup> 1 </sup> Now a man was sick, Lazarus from Bethany, the village of Mary and her sister Martha. 
 
 ><sup> 2 </sup> Mary was the one who anointed the Lord with perfume and wiped his feet with her hair, and it was her brother Lazarus who was sick. 
@@ -230,7 +230,7 @@ John 11 is the clearest, boldest, truest example of our salvation. Like Lazarus,
 
 "Come forth! Come to the cross. Lay your sins upon me. Come to me, all who labor and are heavy laden by the weight of sin and iniquities, and I will give you rest. Take my yoke upon you, and learn from me, for I am gentle and lowly in heart, and you will find rest and peace for your souls. For my yoke is easy, and my burden is light.”
 
->Romans 8:10-11 (CSB) Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness. And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
+>Romans 8:10-11 Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness. And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
 
 He did not save you from a bad marriage, bad kids, bad job, or nothing like that. He did not save you from pain and misery and persecution. He did not save you to a easy life. He saved you to himself--actual life, fullness of joy, pleasures evermore, and complete satisfaction.
 

@@ -2,7 +2,7 @@
 
 # Genesis 21 The Gospel Seed
 
->Genesis 21 (CSB)  
+>Genesis 21  
 ><sup>1</sup> The LORD came to Sarah as he had said, and the LORD did for Sarah what he had promised. 
 >
 ><sup>2</sup> Sarah became pregnant and bore a son to Abraham in his old age, at the appointed time God had told him. 

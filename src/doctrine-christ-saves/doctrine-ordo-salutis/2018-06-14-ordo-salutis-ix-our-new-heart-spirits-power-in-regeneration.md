@@ -34,25 +34,25 @@ But can we for sure say "all humans” are born this way? Surely there are some 
 
 Back in the Old Testament, from the time of Adam, the wickedness of humankind spread throughout the earth.
 
->Genesis 6:5-7 (CSB) When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, 6 the LORD regretted that he had made man on the earth, and he was deeply grieved. 7 Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky—for I regret that I made them.”
+>Genesis 6:5-7 When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, 6 the LORD regretted that he had made man on the earth, and he was deeply grieved. 7 Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky—for I regret that I made them.”
 
 When God spoke of Man, what did he declared? They were greatly wicked and the thoughts of their hearts were only producing evil. And God regretted ever creating mankind, the very image-bearers of Himself.
 
 Before we continue, was Noah a man? So would he have been evil or born good apart from these wicked people?
 
->Genesis 6:8 (CSB) Noah, however, found favor with the LORD.
+>Genesis 6:8 Noah, however, found favor with the LORD.
 
 Does the Bible say, "But Noah was a good dude so God decided to spare him.” No, Noah was wicked just like everyone else. But the favor and grace came upon Noah for no other reason because God is good.
 
 You might say, "But what about the next verse?” Let’s read that:
 
->Genesis 6:9 (CSB) These are the family records of Noah. Noah was a righteous man, blameless among his contemporaries; Noah walked with God.
+>Genesis 6:9 These are the family records of Noah. Noah was a righteous man, blameless among his contemporaries; Noah walked with God.
 
 Now put verses 5 through 9 all together. Look at the order in relation to Noah. Noah was wicked. The thoughts of Noah’s heart produced evil continuously. God regretted ever creating Noah. But Noah found favor in the eyes of the Lord.
 
 Because God gave him grace, it was then and only then Noah was declared righteous and blameless in his generation. We know it’s not that Noah was born righteous or even living a righteous life apart from God because Paul quotes a psalm of David in Romans 3:
 
->Romans 3:9–31 (CSB)  
+>Romans 3:9–31  
 ><sup> 9 </sup> What then? Are we any better off? Not at all! For we have already charged that both Jews and Greeks are all under sin, 
 
 ><sup> 10 </sup> as it is written: There is no one righteous, not even one. 
@@ -103,9 +103,9 @@ But then some would argue that God gave us laws in order for us to be holy. But 
 
 You know what the real kicker is: with our hearts far from him, we are not actually obeying the laws of God. I know because it is impossible for us to obey God’s law if our hearts are far from him.
 
->Romans 8:7-8 (CSB) The mindset of the flesh is hostile to God because it does not submit to God’s law. Indeed, it is unable to do so. 8 Those who are in the flesh cannot please God.
+>Romans 8:7-8 The mindset of the flesh is hostile to God because it does not submit to God’s law. Indeed, it is unable to do so. 8 Those who are in the flesh cannot please God.
 
->Isaiah 64:6 (CSB) All of us have become like something unclean,
+>Isaiah 64:6 All of us have become like something unclean,
 and all our righteous acts are like a polluted garment;
 all of us wither like a leaf,
 and our iniquities carry us away like the wind.
@@ -114,7 +114,7 @@ Because of our wicked hearts, whatever "righteous” deeds we think we are doing
 
 Look at what Jesus says:
 
->Matthew 7:21-23 (CSB) “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father in heaven. On that day many will say to me, ‘Lord, Lord, didn’t we prophesy in your name, drive out demons in your name, and do many miracles in your name?’ Then I will announce to them, ‘I never knew you. Depart from me, you lawbreakers!’
+>Matthew 7:21-23 “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father in heaven. On that day many will say to me, ‘Lord, Lord, didn’t we prophesy in your name, drive out demons in your name, and do many miracles in your name?’ Then I will announce to them, ‘I never knew you. Depart from me, you lawbreakers!’
 
 Wait a minute here. These people were doing what Christ told us to do: prophesy, cast out demons, and do mighty works in his name. Christ would go on to say for us not to rejoice because we can do mighty works and the spirits are subject to us but rejoice that your names are written in heaven.
 
@@ -128,7 +128,7 @@ When we have a new heart and His Spirit within us, it is then we can truthfully 
 
 Don’t believe obedience requires a new heart? See what God says about it.
 
->Ezekiel 36:24-28 (CSB) “‘For I will take you from the nations and gather you from all the countries, and will bring you into your own land. I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances. You will live in the land that I gave your ancestors; you will be my people, and I will be your God.
+>Ezekiel 36:24-28 “‘For I will take you from the nations and gather you from all the countries, and will bring you into your own land. I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances. You will live in the land that I gave your ancestors; you will be my people, and I will be your God.
 
 It is only then that God removes us from death and despair; takes the blood of Christ and washes us clean from all unrighteousness ; give us a brand new soften heart and a new spirit that causes you to walk in His statutes and being careful to obey His rules.
 

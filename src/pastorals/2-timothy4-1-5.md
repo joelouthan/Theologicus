@@ -4,7 +4,7 @@
 
 ## The Text
 
->2 Timothy 4:1–5 (CSB)  
+>2 Timothy 4:1–5  
 ><sup> 1 </sup> I solemnly charge you before God and Christ Jesus, who is going to judge the living and the dead, and because of his appearing and his kingdom: 
 >
 ><sup> 2 </sup> Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching. 
@@ -25,7 +25,7 @@ This is our commission.
 
 Christ is the King of kings, Lord of lords. You and I and every human who has ever set foot on this earth will stand before the Glorious Ruler to give an account for our lives.
 
->Revelation 20:11-15 (CSB) Then I saw a great white throne and one seated on it. Earth and heaven fled from his presence, and no place was found for them. I also saw the dead, the great and the small, standing before the throne, and books were opened. Another book was opened, which is the book of life, and the dead were judged according to their works by what was written in the books. Then the sea gave up the dead that were in it, and death and Hades gave up the dead that were in them; each one was judged according to their works. Death and Hades were thrown into the lake of fire. This is the second death, the lake of fire. And anyone whose name was not found written in the book of life was thrown into the lake of fire.
+>Revelation 20:11-15 Then I saw a great white throne and one seated on it. Earth and heaven fled from his presence, and no place was found for them. I also saw the dead, the great and the small, standing before the throne, and books were opened. Another book was opened, which is the book of life, and the dead were judged according to their works by what was written in the books. Then the sea gave up the dead that were in it, and death and Hades gave up the dead that were in them; each one was judged according to their works. Death and Hades were thrown into the lake of fire. This is the second death, the lake of fire. And anyone whose name was not found written in the book of life was thrown into the lake of fire.
 
 How is that judgment will go?
 
@@ -37,7 +37,7 @@ But Christ appeared not as this glorious king that sits on his throne before you
 
 An angel of the Lord told the future stepdad:
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 And with the appearance of Christ, and his ministry, and his life, and his death on the cross, and his resurrection, he did just that: save his people from their sins completely and perfectly. Thus, the kingdom of God was born. And his people were being brought into his kingdom.
 
@@ -47,18 +47,18 @@ We were brought into his kingdom as his people forever because of the preaching 
 
 ### We are charged by God: preach the word
 
->Isaiah 55:11 (CSB) so my word that comes from my mouth
+>Isaiah 55:11 so my word that comes from my mouth
 will not return to me empty,
 but it will accomplish what I please
 and will prosper in what I send it to do.”
 
->Romans 10:14-17 (CSB) How, then, can they call on him they have not believed in? And how can they believe without hearing about him? And how can they hear without a preacher? And how can they preach unless they are sent? As it is written: How beautiful are the feet of those who bring good news. But not all obeyed the gospel. For Isaiah says, Lord, who has believed our message? So faith comes from what is heard, and what is heard comes through the message about Christ.
+>Romans 10:14-17 How, then, can they call on him they have not believed in? And how can they believe without hearing about him? And how can they hear without a preacher? And how can they preach unless they are sent? As it is written: How beautiful are the feet of those who bring good news. But not all obeyed the gospel. For Isaiah says, Lord, who has believed our message? So faith comes from what is heard, and what is heard comes through the message about Christ.
 
->Ezekiel 37:1-5 (CSB) The hand of the LORD was on me, and he brought me out by his Spirit and set me down in the middle of the valley; it was full of bones. He led me all around them. There were a great many of them on the surface of the valley, and they were very dry. Then he said to me, “Son of man, can these bones live?”
+>Ezekiel 37:1-5 The hand of the LORD was on me, and he brought me out by his Spirit and set me down in the middle of the valley; it was full of bones. He led me all around them. There were a great many of them on the surface of the valley, and they were very dry. Then he said to me, “Son of man, can these bones live?”
 I replied, “Lord GOD, only you know.”
 He said to me, “Prophesy concerning these bones and say to them: Dry bones, hear the word of the LORD! This is what the Lord GOD says to these bones: I will cause breath to enter you, and you will live.
 
->John 11:41-43 (CSB) So they removed the stone. Then Jesus raised his eyes and said, “Father, I thank you that you heard me. I know that you always hear me, but because of the crowd standing here I said this, so that they may believe you sent me.” After he said this, he shouted with a loud voice, “Lazarus, come out!”
+>John 11:41-43 So they removed the stone. Then Jesus raised his eyes and said, “Father, I thank you that you heard me. I know that you always hear me, but because of the crowd standing here I said this, so that they may believe you sent me.” After he said this, he shouted with a loud voice, “Lazarus, come out!”
 
 How are people to be born again? What is God waiting on for each of his children to do--albeit, feebly, weakly, meekly, imperfectly so?
 
@@ -68,15 +68,15 @@ Open your mouths and let the good news of God come through your lips.
 
 For every believer, there was a time when our throats were once open graves. All we could do with our tongues is deceive and hate one another. Our lips once contained nothing but viper's venom. Why? You and I were born as children of the devil.
 
->Titus 3:4-5 (CSB) But when the kindness of God our Savior and his love for mankind appeared, he saved us...
+>Titus 3:4-5 But when the kindness of God our Savior and his love for mankind appeared, he saved us...
 
 Now, you have the Christ in your heart, Spirit indwelling in your person, and the Father God made his home in you. Open your mouths and let the good news come out.
 
 ### We are charged by God: be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching. 
 
->John 14:23-26 (CSB) Jesus answered, “If anyone loves me, he will keep my word. My Father will love him, and we will come to him and make our home with him. 24 The one who doesn’t love me will not keep my words. The word that you hear is not mine but is from the Father who sent me. 25 “I have spoken these things to you while I remain with you. 26 But the Counselor, the Holy Spirit, whom the Father will send in my name, will teach you all things and remind you of everything I have told you.
+>John 14:23-26 Jesus answered, “If anyone loves me, he will keep my word. My Father will love him, and we will come to him and make our home with him. 24 The one who doesn’t love me will not keep my words. The word that you hear is not mine but is from the Father who sent me. 25 “I have spoken these things to you while I remain with you. 26 But the Counselor, the Holy Spirit, whom the Father will send in my name, will teach you all things and remind you of everything I have told you.
 
->1 Peter 3:13-16 (CSB) Who then will harm you if you are devoted to what is good? 14 But even if you should suffer for righteousness, you are blessed. Do not fear them or be intimidated, 15 but in your hearts regard Christ the Lord as holy, ready at any time to give a defense to anyone who asks you for a reason for the hope that is in you. 16 Yet do this with gentleness and reverence, keeping a clear conscience, so that when you are accused, those who disparage your good conduct in Christ will be put to shame.
+>1 Peter 3:13-16 Who then will harm you if you are devoted to what is good? 14 But even if you should suffer for righteousness, you are blessed. Do not fear them or be intimidated, 15 but in your hearts regard Christ the Lord as holy, ready at any time to give a defense to anyone who asks you for a reason for the hope that is in you. 16 Yet do this with gentleness and reverence, keeping a clear conscience, so that when you are accused, those who disparage your good conduct in Christ will be put to shame.
 
 Are we to read the word diligently? Study his word to see what He says? Pray without ceasing? Meditate on his word? Yes. But you can't do that in your own power. You have to rely on the power of the Holy Spirit. That is why he dwells in you. So you can live, move, and have your being in Him.
 
@@ -84,7 +84,7 @@ God is going to use His Spirit in you and me to correct, rebuke, and encourage o
 
 ### We are charged by God: For the time will come when people will not tolerate sound doctrine, but according to their own desires, will multiply teachers for themselves because they have an itch to hear what they want to hear--they will turn away from hearing the truth and will turn aside to myths. 
 
->2 Corinthians 2:15-17 (CSB) For to God we are the fragrance of Christ among those who are being saved and among those who are perishing. 16 To some we are an aroma of death leading to death, but to others, an aroma of life leading to life. Who is adequate for these things? 17 For we do not market the word of God for profit like so many. On the contrary, we speak with sincerity in Christ, as from God and before God.
+>2 Corinthians 2:15-17 For to God we are the fragrance of Christ among those who are being saved and among those who are perishing. 16 To some we are an aroma of death leading to death, but to others, an aroma of life leading to life. Who is adequate for these things? 17 For we do not market the word of God for profit like so many. On the contrary, we speak with sincerity in Christ, as from God and before God.
 
 Here's some shocking news. Does the word of God preached has real power? There is no doubt. But do people still reject it? Absolutely.
 
@@ -116,13 +116,13 @@ What is your ministry? Specifically, I cannot answer that. That is between you a
 
 If you love others, you want them to live and not perish. You want people to live? You want people to see God and live? You want your father, mother, son, daughter, neighbor, co-worker, sworn enemy, ex-wife, ex-husband, boss to see Jesus Christ and live?
 
->Matthew 28:18-20 (CSB) Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”
+>Matthew 28:18-20 Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”
 
->Luke 24:44-49 (CSB) He told them, “These are my words that I spoke to you while I was still with you—that everything written about me in the Law of Moses, the Prophets, and the Psalm must be fulfilled.” Then he opened their minds to understand the Scriptures. He also said to them, “This is what is written: The Messiah will suffer and rise from the dead the third day, and repentance for forgiveness of sins will be proclaimed in his name to all the nations, beginning at Jerusalem. You are witnesses of these things. And look, I am sending you what my Father promised. As for you, stay in the city until you are empowered from on high.”
+>Luke 24:44-49 He told them, “These are my words that I spoke to you while I was still with you—that everything written about me in the Law of Moses, the Prophets, and the Psalm must be fulfilled.” Then he opened their minds to understand the Scriptures. He also said to them, “This is what is written: The Messiah will suffer and rise from the dead the third day, and repentance for forgiveness of sins will be proclaimed in his name to all the nations, beginning at Jerusalem. You are witnesses of these things. And look, I am sending you what my Father promised. As for you, stay in the city until you are empowered from on high.”
 
->Acts 1:7-8 (CSB) He said to them, “It is not for you to know times or periods that the Father has set by his own authority. But you will receive power when the Holy Spirit has come on you, and you will be my witnesses in Jerusalem, in all Judea and Samaria, and to the ends of the earth.”
+>Acts 1:7-8 He said to them, “It is not for you to know times or periods that the Father has set by his own authority. But you will receive power when the Holy Spirit has come on you, and you will be my witnesses in Jerusalem, in all Judea and Samaria, and to the ends of the earth.”
 
->Mark 16:14-16 (CSB) Later he appeared to the Eleven themselves as they were reclining at the table. He rebuked their unbelief and hardness of heart, because they did not believe those who saw him after he had risen. Then he said to them, “Go into all the world and preach the gospel to all creation. Whoever believes and is baptized will be saved, but whoever does not believe will be condemned.
+>Mark 16:14-16 Later he appeared to the Eleven themselves as they were reclining at the table. He rebuked their unbelief and hardness of heart, because they did not believe those who saw him after he had risen. Then he said to them, “Go into all the world and preach the gospel to all creation. Whoever believes and is baptized will be saved, but whoever does not believe will be condemned.
 
 You trust in the Lord?
 

@@ -4,11 +4,11 @@
 
 ## The Support
 
->Romans 5:12 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.
+>Romans 5:12 Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.
 
 ## The Text
 
->Genesis 3:1-13 (CSB) Now the serpent was the most cunning of all the wild animals that the LORD God had made. He said to the woman, “Did God really say, ‘You can’t eat from any tree in the garden’?”
+>Genesis 3:1-13 Now the serpent was the most cunning of all the wild animals that the LORD God had made. He said to the woman, “Did God really say, ‘You can’t eat from any tree in the garden’?”
 >
 >2 The woman said to the serpent, “We may eat the fruit from the trees in the garden. But about the fruit of the tree in the middle of the garden, God said, ‘You must not eat it or touch it, or you will die.’”
 >
@@ -87,7 +87,7 @@ But what is our response? Either we sin or listen to me carefully, not instead o
 
 Here's the counter punch to that. Matthew 23 is Christ on a rightful rant against our tendencies to add on to his holy word. Here's a sample of his preaching:
 
->Matthew 23:23-24 (CSB) “Woe to you, scribes and Pharisees, hypocrites! You pay a tenth of mint, dill, and cumin, and yet you have neglected the more important matters of the law—justice, mercy, and faithfulness. These things should have been done without neglecting the others. Blind guides! You strain out a gnat, but gulp down a camel!
+>Matthew 23:23-24 “Woe to you, scribes and Pharisees, hypocrites! You pay a tenth of mint, dill, and cumin, and yet you have neglected the more important matters of the law—justice, mercy, and faithfulness. These things should have been done without neglecting the others. Blind guides! You strain out a gnat, but gulp down a camel!
 
 God gives commands and we get it all jacked up. Yet, God is still holy and his law is still good. Not content just for the word of God to stand alone, we love to put rules on top of God's good gifts. Gifts like love, ministry, raising children, marriage, and relationships. We don't need more rules. We need God and we need his word because it is true and perfect.
 
@@ -109,7 +109,7 @@ They didn't die instantly. But they did die. The spirit of God that was in them 
 
 The counter punch to this was the life and existence of Jesus Christ.
 
->Romans 8:10-11 (CSB) Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness. And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
+>Romans 8:10-11 Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness. And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
 
 Jesus was born just like we were. Grew in stature and wisdom. And when the time came to step into his ministry, the Spirit of God descended upon him and remained in Christ until Jesus gave up his spirit on the cross so that the children of God would live forever!
 
@@ -121,11 +121,11 @@ Go back to Genesis 3 where Satan keep spitting out more half-truths:
 
 Are there any other gods?
 
->Psalm 97:9 (CSB) For you, LORD,  
+>Psalm 97:9 For you, LORD,  
 >are the Most High over the whole earth;  
 >you are exalted above all the gods.
 
->Isaiah 44:8 (CSB) Do not be startled or afraid.  
+>Isaiah 44:8 Do not be startled or afraid.  
 >Have I not told you and declared it long ago?  
 >You are my witnesses!  
 >Is there any God but me?  
@@ -133,7 +133,7 @@ Are there any other gods?
 
 Asaph writes it in this way about those who think of themselves like a god
 
->Psalm 82 (CSB) God stands in the divine assembly;  
+>Psalm 82 God stands in the divine assembly;  
 >he pronounces judgment among the gods:  
 >2 “How long will you judge unjustly  
 >and show partiality to the wicked? Selah  
@@ -163,13 +163,13 @@ You followed your heart. And you end up in the deepest, darkest trenches, left f
 
 Here's how Paul describes that moment:
 
->Romans 1:21-23 (CSB) For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. Claiming to be wise, they became foolsand exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles.
+>Romans 1:21-23 For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. Claiming to be wise, they became foolsand exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles.
 
 In this great exchange, we swapped God for something that we thought for something that would make us happy. But in the end, we exchanged God for death.
 
 Christ arrives and he exchanges death for Himself.
 
->John 6:65-69 (CSB) He said, “This is why I told you that no one can come to me unless it is granted to him by the Father.”
+>John 6:65-69 He said, “This is why I told you that no one can come to me unless it is granted to him by the Father.”
 >
 >66 From that moment many of his disciples turned back and no longer accompanied him. So Jesus said to the Twelve, “You don’t want to go away too, do you?”
 >
@@ -191,7 +191,7 @@ The only way you can be free from shame is to be open and confess your sins to t
 
 Christ will do this for each and every one of us:
 
->Matthew 11:28 (CSB) “Come to me, all of you who are weary and burdened, and I will give you rest.
+>Matthew 11:28 “Come to me, all of you who are weary and burdened, and I will give you rest.
 
 You do not need to be afraid. Christ has come to save you, commune with you, and be with you.
 
@@ -203,13 +203,13 @@ If you have heard the Lord God call you, you know that your life and mind and he
 
 Look at how Paul describes that moment on the road to Damascus:
 
->1 Timothy 1:12-14 (CSB) I give thanks to Christ Jesus our Lord who has strengthened me, because he considered me faithful, appointing me to the ministry—13 even though I was formerly a blasphemer, a persecutor, and an (violent and) arrogant man. But I received mercy because I acted out of ignorance in unbelief,and the grace of our Lord overflowed, along with the faith and love that are in Christ Jesus.
+>1 Timothy 1:12-14 I give thanks to Christ Jesus our Lord who has strengthened me, because he considered me faithful, appointing me to the ministry—13 even though I was formerly a blasphemer, a persecutor, and an (violent and) arrogant man. But I received mercy because I acted out of ignorance in unbelief,and the grace of our Lord overflowed, along with the faith and love that are in Christ Jesus.
 
 ### Realize and know: God is merciful, kind, and gracious to you--even if you think you have committed the worst kinds of sin
 
 >3:10 And he said, “I heard you in the garden, and I was afraid because I was naked, so I hid.”
 
->Luke 18:13 (CSB) “But the tax collector, standing far off, would not even raise his eyes to heaven but kept striking his chest and saying, ‘God, have mercy on me, a sinner!’
+>Luke 18:13 “But the tax collector, standing far off, would not even raise his eyes to heaven but kept striking his chest and saying, ‘God, have mercy on me, a sinner!’
 
 What did Christ say about the tax collector? He went home justified.
 
@@ -219,7 +219,7 @@ Christ comes to you. You cannot run too far off. He holds the stars in his hands
 
 >3:11 Then he asked, “Who told you that you were naked? Did you eat from the tree that I commanded you not to eat from?”
 
->Romans 2:3-4 (CSB) Do you think—anyone of you who judges those who do such things yet do the same—that you will escape God’s judgment?Or do you despise the riches of his kindness, restraint, and patience, not recognizing that God’s kindness is intended to lead you to repentance?
+>Romans 2:3-4 Do you think—anyone of you who judges those who do such things yet do the same—that you will escape God’s judgment?Or do you despise the riches of his kindness, restraint, and patience, not recognizing that God’s kindness is intended to lead you to repentance?
 
 God is so patient with you. Come to him and let God take the burden of sin and death off of all you.
 
@@ -247,7 +247,7 @@ That was the moment that single human born of a woman would be born into sin. Th
 
 Paul puts it like this:
 
->Ephesians 2:1-3 (CSB) And you were dead in your trespasses and sinsin which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
+>Ephesians 2:1-3 And you were dead in your trespasses and sinsin which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
 
 We were so foolish, dumb, blind, and dead that we didn't know we were being deceived and led astray right into death.
 
@@ -255,7 +255,7 @@ But this what God is offering: Himself.
 
 This is his response to his lost and forsaken children:
 
->Ephesians 2:4-5 (CSB) But God, who is rich in mercy, because of his great love that he had for us,made us alive with Christ even though we were dead in trespasses. You are saved by grace!
+>Ephesians 2:4-5 But God, who is rich in mercy, because of his great love that he had for us,made us alive with Christ even though we were dead in trespasses. You are saved by grace!
 
 You are not going to think right and love right on your own. If you sit and think I don't need God to do those things, then I have no good news for you. But if you know you are desperate and need to be rescued from the world and this life, call to Jesus.
 
@@ -265,4 +265,4 @@ He is going to ask for your life--all of your thoughts, your heart, your sin, yo
 
 Paul says it like this:
 
->Galatians 2:20 (CSB) I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
+>Galatians 2:20 I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.

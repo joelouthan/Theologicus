@@ -9,7 +9,7 @@
 ## The Devotion
 ## Pray Then Like This
 
->Matthew 6:5-15 (CSB) “Whenever you pray, you must not be like the hypocrites, because they love to pray standing in the synagogues and on the street corners to be seen by people. Truly I tell you, they have their reward. But when you pray, go into your private room, shut your door, and pray to your Father who is in secret. And your Father who sees in secret will reward you. When you pray, don’t babble like the Gentiles, since they imagine they’ll be heard for their many words. Don’t be like them, because your Father knows the things you need before you ask him.
+>Matthew 6:5-15 “Whenever you pray, you must not be like the hypocrites, because they love to pray standing in the synagogues and on the street corners to be seen by people. Truly I tell you, they have their reward. But when you pray, go into your private room, shut your door, and pray to your Father who is in secret. And your Father who sees in secret will reward you. When you pray, don’t babble like the Gentiles, since they imagine they’ll be heard for their many words. Don’t be like them, because your Father knows the things you need before you ask him.
 >
 >“Therefore, you should pray like this:  
 >Our Father in heaven,  
@@ -47,9 +47,9 @@ Look at what Jesus is saying. He is not referring to Gentiles in the sense of no
 
 In complete contrast to the empty prayers of the unrighteous, what we are going to read later on in the series, is that both Jesus Christ and the Holy Spirit intercede with our prayers and intercede for us, according to the will of the Father.
 
->Romans 8:26-27 (CSB) In the same way the Spirit also helps us in our weakness, because we do not know what to pray for as we should, but the Spirit himself intercedes for us with inexpressible groanings. And he who searches our hearts knows the mind of the Spirit, because he intercedes for the saints according to the will of God.
+>Romans 8:26-27 In the same way the Spirit also helps us in our weakness, because we do not know what to pray for as we should, but the Spirit himself intercedes for us with inexpressible groanings. And he who searches our hearts knows the mind of the Spirit, because he intercedes for the saints according to the will of God.
 
->Romans 8:34 (CSB) Who is the one who condemns? Christ Jesus is the one who died, but even more, has been raised; he also is at the right hand of God and intercedes for us.
+>Romans 8:34 Who is the one who condemns? Christ Jesus is the one who died, but even more, has been raised; he also is at the right hand of God and intercedes for us.
 
 ### Do not be like them, for your Father knows what you need before you ask him
 

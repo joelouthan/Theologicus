@@ -2,7 +2,7 @@
 
 # Genesis 19:30-38 The Gospel Reach
 
->Genesis 19:30–38 (CSB)  
+>Genesis 19:30–38  
 ><sup>30</sup> Lot departed from Zoar and lived in the mountains along with his two daughters, because he was afraid to live in Zoar. Instead, he and his two daughters lived in a cave. 
 >
 ><sup>31</sup> Then the firstborn said to the younger, “Our father is old, and there is no man in the land to sleep with us as is the custom of all the land. 

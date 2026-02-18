@@ -8,7 +8,7 @@
 
 ## The Text
 
->1 Corinthians 11:27 (CSB) So, then, whoever eats the bread or drinks the cup of the Lord in an unworthy manner will be guilty of sin against the body and blood of the Lord.
+>1 Corinthians 11:27 So, then, whoever eats the bread or drinks the cup of the Lord in an unworthy manner will be guilty of sin against the body and blood of the Lord.
 
 ## The Chapter
 
@@ -16,7 +16,7 @@
 
 ## The Confession
 
->1 Corinthians 11:26–28 (CSB) For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes. So, then, whoever eats the bread or drinks the cup of the Lord in an unworthy manner will be guilty of sin against the body and blood of the Lord. Let a person examine himself; in this way let him eat the bread and drink from the cup.
+>1 Corinthians 11:26–28 For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes. So, then, whoever eats the bread or drinks the cup of the Lord in an unworthy manner will be guilty of sin against the body and blood of the Lord. Let a person examine himself; in this way let him eat the bread and drink from the cup.
 
 Also, this is very much just the bread and wine. This is not the literal body and blood of Christ. To confuse to miss the point. And the point is this: the bread is real and the wine is real. Real as anything you can touch. When you eat it and drink it, you are eating real bread and drinking real wine. This tiniest meal really does nourishes you.
 

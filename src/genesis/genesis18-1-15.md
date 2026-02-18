@@ -4,7 +4,7 @@
 
 ## The Text
 
->Genesis 18:1–15 (CSB)  
+>Genesis 18:1–15  
 ><sup>1</sup> The LORD appeared to Abraham at the oaks of Mamre while he was sitting at the entrance of his tent during the heat of the day. 
 >
 ><sup>2</sup> He looked up, and he saw three men standing near him. When he saw them, he ran from the entrance of the tent to meet them, bowed to the ground, 
@@ -37,7 +37,7 @@
 
 ## Our God
 
-**Acts 17:22-29** (CSB) Paul stood in the middle of the Areopagus and said, “People of Athens! I see that you are extremely religious in every respect. For as I was passing through and observing the objects of your worship, I even found an altar on which was inscribed, ‘To an Unknown God.’ Therefore, what you worship in ignorance, this I proclaim to you. The God who made the world and everything in it — he is Lord of heaven and earth — does not live in shrines made by hands. Neither is he served by human hands, as though he needed anything, since he himself gives everyone life and breath and all things. From one man he has made every nationality to live over the whole earth and has determined their appointed times and the boundaries of where they live. He did this so that they might seek God, and perhaps they might reach out and find him, though he is not far from each one of us. For in him we live and move and have our being, as even some of your own poets have said, ‘For we are also his offspring.’ Since, then, we are God’s offspring, we shouldn’t think that the divine nature is like gold or silver or stone, an image fashioned by human art and imagination.
+**Acts 17:22-29** Paul stood in the middle of the Areopagus and said, “People of Athens! I see that you are extremely religious in every respect. For as I was passing through and observing the objects of your worship, I even found an altar on which was inscribed, ‘To an Unknown God.’ Therefore, what you worship in ignorance, this I proclaim to you. The God who made the world and everything in it — he is Lord of heaven and earth — does not live in shrines made by hands. Neither is he served by human hands, as though he needed anything, since he himself gives everyone life and breath and all things. From one man he has made every nationality to live over the whole earth and has determined their appointed times and the boundaries of where they live. He did this so that they might seek God, and perhaps they might reach out and find him, though he is not far from each one of us. For in him we live and move and have our being, as even some of your own poets have said, ‘For we are also his offspring.’ Since, then, we are God’s offspring, we shouldn’t think that the divine nature is like gold or silver or stone, an image fashioned by human art and imagination.
 
 ## His Gospel
 
@@ -73,7 +73,7 @@
 
 ><sup>10</sup> The LORD said, “I will certainly come back to you in about a year’s time, and your wife Sarah will have a son!” Now Sarah was listening at the entrance of the tent behind him.
 
-**Matthew 1:18-25** (CSB) The birth of Jesus Christ came about this way: After his mother Mary had been engaged to Joseph, it was discovered before they came together that she was pregnant from the Holy Spirit. So her husband, Joseph, being a righteous man, and not wanting to disgrace her publicly, decided to divorce her secretly.
+**Matthew 1:18-25** The birth of Jesus Christ came about this way: After his mother Mary had been engaged to Joseph, it was discovered before they came together that she was pregnant from the Holy Spirit. So her husband, Joseph, being a righteous man, and not wanting to disgrace her publicly, decided to divorce her secretly.
 
 But after he had considered these things, an angel of the Lord appeared to him in a dream, saying, “Joseph, son of David, don’t be afraid to take Mary as your wife, because what has been conceived in her is from the Holy Spirit. She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
@@ -86,7 +86,7 @@ which is translated “God is with us.”
 
 When Joseph woke up, he did as the Lord’s angel had commanded him. He married her but did not have sexual relations with her until she gave birth to a son. And he named him Jesus.
 
-**John 3:16-17** (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
+**John 3:16-17** For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
 
 You want to enter into the kingdom of God?
 

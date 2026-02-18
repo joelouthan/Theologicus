@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 135 (CSB)  
+>Psalm 135  
 ><sup>1</sup> Hallelujah! Praise the name of the LORD. Give praise, you servants of the LORD 
 >
 ><sup>2</sup> who stand in the house of the LORD, in the courts of the house of our God. 

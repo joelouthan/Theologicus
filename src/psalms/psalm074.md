@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 74 (CSB)  
+>Psalm 74  
 ><sup></sup> A Maskil of Asaph. 
 >
 ><sup>1</sup> Why have you rejected us forever, God? Why does your anger burn against the sheep of your pasture? 

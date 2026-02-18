@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 69 (CSB)  
+>Psalm 69  
 ><sup></sup> For the choir director: according to “The Lilies.” Of David. 
 >
 ><sup>1</sup> Save me, God, for the water has risen to my neck. 

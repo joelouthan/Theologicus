@@ -8,7 +8,7 @@
 
 ## The Text
 
->Luke 23:32–43 (CSB)  
+>Luke 23:32–43  
 ><sup> 32 </sup> Two others—criminals—were also led away to be executed with him. 
 >
 ><sup> 33 </sup> When they arrived at the place called The Skull, they crucified him there, along with the criminals, one on the right and one on the left. 
@@ -65,7 +65,7 @@ But even if we were to take the Jesus Storybook Bible (Grade K), there are some 
 
 Look at what Peter says about Paul's letters to the churches:
 
->2 Peter 3:16 (CSB)  He speaks about these things in all his letters. There are some things hard to understand in them. The untaught and unstable will twist them to their own destruction, as they also do with the rest of the Scriptures.
+>2 Peter 3:16  He speaks about these things in all his letters. There are some things hard to understand in them. The untaught and unstable will twist them to their own destruction, as they also do with the rest of the Scriptures.
 
 I can list a few things off the top of my mind. Paul's account of a man caught up in the "third heaven". What is this? What does Paul say about it?
 
@@ -75,7 +75,7 @@ And I cannot tell you how many times throughout history people miss that and mak
 
 Or how about this:
 
->1 Corinthians 15:29 (CSB) Otherwise what will they do who are being baptized for the dead? If the dead are not raised at all, then why are people baptized for them?
+>1 Corinthians 15:29 Otherwise what will they do who are being baptized for the dead? If the dead are not raised at all, then why are people baptized for them?
 
 Out of context, it sounds like the Bible teaches that we are to be baptized for the dead. In context of the Bible, we can clearly see that this is a rhetorical question because the Bible teaches no such thing.
 
@@ -85,11 +85,11 @@ The whole point of this is that difficult to understand things must be difficult
 
 It does say:
 
->Proverbs 25:2 (CSB) It is the glory of God to conceal a matter and the glory of kings to investigate a matter.
+>Proverbs 25:2 It is the glory of God to conceal a matter and the glory of kings to investigate a matter.
 
 But it also says:
 
->Hebrews 5:11–6:3 (CSB) We have a great deal to say about this, and it is difficult to explain, since you have become too lazy to understand. Although by this time you ought to be teachers, you need someone to teach you the basic principles of God’s revelation again. You need milk, not solid food. Now everyone who lives on milk is inexperienced with the message about righteousness, because he is an infant. But solid food is for the mature—for those whose senses have been trained to distinguish between good and evil. Therefore, let us leave the elementary teaching about Christ and go on to maturity, not laying again a foundation of repentance from dead works, faith in God, teaching about ritual washings, laying on of hands, the resurrection of the dead, and eternal judgment. And we will do this if God permits.
+>Hebrews 5:11–6:3 We have a great deal to say about this, and it is difficult to explain, since you have become too lazy to understand. Although by this time you ought to be teachers, you need someone to teach you the basic principles of God’s revelation again. You need milk, not solid food. Now everyone who lives on milk is inexperienced with the message about righteousness, because he is an infant. But solid food is for the mature—for those whose senses have been trained to distinguish between good and evil. Therefore, let us leave the elementary teaching about Christ and go on to maturity, not laying again a foundation of repentance from dead works, faith in God, teaching about ritual washings, laying on of hands, the resurrection of the dead, and eternal judgment. And we will do this if God permits.
 
 We assume that we are mature and that can we demystified the mysteries of God. I am not saying don't study. Do study. But do so with your brothers and sisters. Dig deep into the salvation of God and his great grace and mercy and love for us.
 

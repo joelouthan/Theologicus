@@ -6,7 +6,7 @@
 
 ## The Text
 
->Psalm 19:7-10 (CSB)  
+>Psalm 19:7-10  
 >The instruction of the LORD is perfect, renewing one’s life; the testimony of the LORD is trustworthy, making the inexperienced wise. 
 >
 >The precepts of the LORD are right, making the heart glad; the command of the LORD is radiant, making the eyes light up. 
@@ -45,7 +45,7 @@ And his perfect word perfectly declares this:
 
 Believe in the Lord Jesus Christ, and you shall be saved.
 
->John 3:14–17 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life. For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
+>John 3:14–17 “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life. For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
 
 ## The Scriptures
 
@@ -55,7 +55,7 @@ Believe in the Lord Jesus Christ, and you shall be saved.
 
 >Psalm 16:1 Protect me, God, for I take refuge in you.
 
->Psalm 19 (CSB)  
+>Psalm 19  
 ><sup></sup> For the choir director. A psalm of David. 
 >
 ><sup>1</sup> The heavens declare the glory of God, and the expanse proclaims the work of his hands. 
@@ -88,7 +88,7 @@ Believe in the Lord Jesus Christ, and you shall be saved.
 
 >Psalm 57:11 God, be exalted above the heavens; let your glory be over the whole earth.
 
->Psalm 119 (CSB)  
+>Psalm 119  
 ><sup>1</sup> How happy are those whose way is blameless, who walk according to the LORD’s instruction! 
 >
 ><sup>2</sup> Happy are those who keep his decrees and seek him with all their heart. 

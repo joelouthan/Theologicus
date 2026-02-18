@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 66 (CSB)  
+>Psalm 66  
 ><sup></sup> For the choir director. A song. A psalm. 
 >
 ><sup>1</sup> Let the whole earth shout joyfully to God! 

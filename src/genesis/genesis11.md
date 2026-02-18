@@ -4,7 +4,7 @@
 
 ## The Word
 
->Colossians 2:4-10 (CSB) I am saying this so that no one will deceive you with arguments that sound reasonable. For I may be absent in body, but I am with you in spirit, rejoicing to see how well ordered you are and the strength of your faith in Christ. So then, just as you have received Christ Jesus as Lord, continue to walk in him, being rooted and built up in him and established in the faith, just as you were taught, and overflowing with gratitude. Be careful that no one takes you captive through philosophy and empty deceit based on human tradition, based on the elements of the world, rather than Christ. For the entire fullness of God’s nature dwells bodily in Christ, and you have been filled by him, who is the head over every ruler and authority.
+>Colossians 2:4-10 I am saying this so that no one will deceive you with arguments that sound reasonable. For I may be absent in body, but I am with you in spirit, rejoicing to see how well ordered you are and the strength of your faith in Christ. So then, just as you have received Christ Jesus as Lord, continue to walk in him, being rooted and built up in him and established in the faith, just as you were taught, and overflowing with gratitude. Be careful that no one takes you captive through philosophy and empty deceit based on human tradition, based on the elements of the world, rather than Christ. For the entire fullness of God’s nature dwells bodily in Christ, and you have been filled by him, who is the head over every ruler and authority.
 
 ## The Introduction
 
@@ -45,7 +45,7 @@ I am so glad you asked that question.
 
 ## The Text
 
->Genesis 11 (CSB)  
+>Genesis 11  
 ><sup> 1 </sup> The whole earth had the same language and vocabulary. 
 >
 ><sup> 2 </sup> As people migrated from the east, they found a valley in the land of Shinar and settled there. 
@@ -158,7 +158,7 @@ Now those with the Christian Nationalist bent (which is an oxymoron) will wanna 
 
 Here's God's way: the gospel is the only thing that is going to fix the hatred of man:
 
->Titus 3:3-7 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
+>Titus 3:3-7 For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
 But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior so that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
 The world already rejects this notion. It's supernatural, divine, and robs us of our glory. Christians balk at this because it is "the easy way out". But I wonder, if some Christians or ex-Evangelicals has seen the blasphemous use of the gospel and the name of God to promote all kinds of evil--especially in the name of hatred and bigotry and racism.

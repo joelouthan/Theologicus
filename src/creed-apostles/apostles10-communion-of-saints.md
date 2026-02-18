@@ -25,15 +25,15 @@
 
 ## The Word
 
->Hebrews 10:24-25 (CSB) And let us consider one another in order to provoke love and good works, not neglecting to gather together, as some are in the habit of doing, but encouraging each other, and all the more as you see the day approaching.
+>Hebrews 10:24-25 And let us consider one another in order to provoke love and good works, not neglecting to gather together, as some are in the habit of doing, but encouraging each other, and all the more as you see the day approaching.
 
 ## The Belief
 
 ### We Belong to One Another: We are One Body
 
->1 Corinthians 12:26 (CSB) So if one member suffers, all the members suffer with it; if one member is honored, all the members rejoice with it.
+>1 Corinthians 12:26 So if one member suffers, all the members suffer with it; if one member is honored, all the members rejoice with it.
 
->Ephesians 1:22-23 (CSB) And he subjected everything under his feet and appointed him as head over everything for the church, which is his body, the fullness of the one who fills all things in every way.
+>Ephesians 1:22-23 And he subjected everything under his feet and appointed him as head over everything for the church, which is his body, the fullness of the one who fills all things in every way.
 
 - American individualism vs. Biblical community
   - Does it mean people get to tell me what to do?
@@ -42,9 +42,9 @@
 
 ### We Belong to One Another: Love One Another
 
->John 13:34–35 (CSB) “I give you a new command: Love one another. Just as I have loved you, you are also to love one another. By this everyone will know that you are my disciples, if you love one another.”
+>John 13:34–35 “I give you a new command: Love one another. Just as I have loved you, you are also to love one another. By this everyone will know that you are my disciples, if you love one another.”
 
->Matthew 22:34–40 (CSB) When the Pharisees heard that he had silenced the Sadducees, they came together. And one of them, an expert in the law, asked a question to test him: “Teacher, which command in the law is the greatest?” He said to him, “Love the Lord your God with all your heart, with all your soul, and with all your mind. **This is the greatest and most important command. The second is like it: Love your neighbor as yourself.** All the Law and the Prophets depend on these two commands.”
+>Matthew 22:34–40 When the Pharisees heard that he had silenced the Sadducees, they came together. And one of them, an expert in the law, asked a question to test him: “Teacher, which command in the law is the greatest?” He said to him, “Love the Lord your God with all your heart, with all your soul, and with all your mind. **This is the greatest and most important command. The second is like it: Love your neighbor as yourself.** All the Law and the Prophets depend on these two commands.”
 
 Look at this passage: Christ equates loving God with loving your neighbor. The two are inseparable.
 
@@ -54,12 +54,12 @@ In our ministry and love in that, think of the grace of God and think of us belo
 
 ### We Belong to One Another: Sit Under the Proclamation of the Word of God
 
->Hebrews 10:24-25 (CSB) And let us consider one another in order to provoke love and good works, not neglecting to gather together, as some are in the habit of doing, but encouraging each other, and all the more as you see the day approaching.
+>Hebrews 10:24-25 And let us consider one another in order to provoke love and good works, not neglecting to gather together, as some are in the habit of doing, but encouraging each other, and all the more as you see the day approaching.
 
->Acts 2:42 (CSB) They devoted themselves to the apostles’ teaching, to the fellowship, to the breaking of bread, and to prayer.
+>Acts 2:42 They devoted themselves to the apostles’ teaching, to the fellowship, to the breaking of bread, and to prayer.
 
->Acts 20:7 (CSB) On the first day of the week, we assembled to break bread. Paul spoke to them, and since he was about to depart the next day, he kept on talking until midnight.
+>Acts 20:7 On the first day of the week, we assembled to break bread. Paul spoke to them, and since he was about to depart the next day, he kept on talking until midnight.
 
->1 Corinthians 14:26 (CSB) What then, brothers and sisters? Whenever you come together, each one has a hymn, a teaching, a revelation, a tongue, or an interpretation. Everything is to be done for building up.
+>1 Corinthians 14:26 What then, brothers and sisters? Whenever you come together, each one has a hymn, a teaching, a revelation, a tongue, or an interpretation. Everything is to be done for building up.
 
->Colossians 3:16 (CSB) Let the word of Christ dwell richly among you, in all wisdom teaching and admonishing one another through psalms, hymns, and spiritual songs, singing to God with gratitude in your hearts.
+>Colossians 3:16 Let the word of Christ dwell richly among you, in all wisdom teaching and admonishing one another through psalms, hymns, and spiritual songs, singing to God with gratitude in your hearts.

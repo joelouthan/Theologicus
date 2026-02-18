@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 32:4 (CSB)   For day and night your hand was heavy on me; my strength was drained as in the summer’s heat. Selah
+>Psalm 32:4   For day and night your hand was heavy on me; my strength was drained as in the summer’s heat. Selah
 
 ## The Prayer
 

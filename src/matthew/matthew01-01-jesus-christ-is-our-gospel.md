@@ -6,7 +6,7 @@
 
 ## The Text
 
->Matthew 1:1 (CSB) An account of the genealogy of Jesus Christ, the Son of David, the Son of Abraham
+>Matthew 1:1 An account of the genealogy of Jesus Christ, the Son of David, the Son of Abraham
 
 ## The Devotion
 
@@ -22,7 +22,7 @@ How did God respond to our sin and the breaking of his good creation and the dea
 
 ### The Good News: God comes into our lives
 
->Genesis 3:8–15 (CSB)  
+>Genesis 3:8–15  
 ><sup> 8 </sup> Then the man and his wife heard the sound of the LORD God walking in the garden at the time of the evening breeze, and they hid from the LORD God among the trees of the garden.
 
 ### The Good News: God calls us
@@ -77,7 +77,7 @@ Turn the page.
 
 Look down and read the good news:
 
->Matthew 1:1 (CSB) An account of the genealogy of Jesus Christ, the Son of David, the Son of Abraham
+>Matthew 1:1 An account of the genealogy of Jesus Christ, the Son of David, the Son of Abraham
 
 This is the account, this is the book of the genealogy, the bloodline, the long game of Jesus Christ, the Son of David, the Son of Abraham.
 

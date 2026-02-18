@@ -4,7 +4,7 @@
 
 ## The Text
 
->2 Timothy 1:13–2:2 (CSB)  
+>2 Timothy 1:13–2:2  
 ><sup> 13 </sup> Hold on to the pattern of sound teaching that you have heard from me, in the faith and love that are in Christ Jesus. 
 >
 ><sup> 14 </sup> Guard the good deposit through the Holy Spirit who lives in us. 
@@ -67,11 +67,11 @@
 - when church goers continue to not repent of sin
 - Christ's instruction
 
->Matthew 18:15-20 (CSB) “If your brother sins against you, go tell him his fault, between you and him alone. If he listens to you, you have won your brother.<sup> 16 </sup>But if he won’t listen, take one or two others with you, so that by the testimony of two or three witnesses every fact may be established.<sup> 17 </sup>If he doesn’t pay attention to them, tell the church. If he doesn’t pay attention even to the church, let him be like a Gentile and a tax collector to you.<sup> 18 </sup>Truly I tell you, whatever you bind on earth will have been bound in heaven, and whatever you loose on earth will have been loosed in heaven.<sup> 19 </sup>Again, truly I tell you, if two of you on earth agree about any matter that you pray for, it will be done for you by my Father in heaven.<sup> 20 </sup>For where two or three are gathered together in my name, I am there among them.”
+>Matthew 18:15-20 “If your brother sins against you, go tell him his fault, between you and him alone. If he listens to you, you have won your brother.<sup> 16 </sup>But if he won’t listen, take one or two others with you, so that by the testimony of two or three witnesses every fact may be established.<sup> 17 </sup>If he doesn’t pay attention to them, tell the church. If he doesn’t pay attention even to the church, let him be like a Gentile and a tax collector to you.<sup> 18 </sup>Truly I tell you, whatever you bind on earth will have been bound in heaven, and whatever you loose on earth will have been loosed in heaven.<sup> 19 </sup>Again, truly I tell you, if two of you on earth agree about any matter that you pray for, it will be done for you by my Father in heaven.<sup> 20 </sup>For where two or three are gathered together in my name, I am there among them.”
 
 In other words:
 
->Matthew 7:6 (CSB) Don’t give what is holy to dogs or toss your pearls before pigs, or they will trample them under their feet, turn, and tear you to pieces.
+>Matthew 7:6 Don’t give what is holy to dogs or toss your pearls before pigs, or they will trample them under their feet, turn, and tear you to pieces.
 
 - when you minister to others, Christ is with you
 - when you pray, Christ is with you
@@ -88,7 +88,7 @@ In other words:
 - all the good spiritual things from God--toss them their way
 - That is ministry
 
->Philippians 4:8-9 (CSB) Finally brothers and sisters, whatever is true, whatever is honorable, whatever is just, whatever is pure, whatever is lovely, whatever is commendable—if there is any moral excellence and if there is anything praiseworthy—dwell on these things. 9 Do what you have learned and received and heard from me, and seen in me, and the God of peace will be with you.
+>Philippians 4:8-9 Finally brothers and sisters, whatever is true, whatever is honorable, whatever is just, whatever is pure, whatever is lovely, whatever is commendable—if there is any moral excellence and if there is anything praiseworthy—dwell on these things. 9 Do what you have learned and received and heard from me, and seen in me, and the God of peace will be with you.
 
 - Those with the spirit of adoption, it is not wasted on them
 - which blows me away when non-believers keep wanting to go to church and yet their hearts never turn
@@ -103,9 +103,9 @@ Let me send you out with some good news.
 
 ### Christ's called disciples: God's strength is for you
 
->Ephesians 6:10 (CSB) Finally, be strengthened by the Lord and by his vast strength.
+>Ephesians 6:10 Finally, be strengthened by the Lord and by his vast strength.
 
->Romans 8:31-32 (CSB) What, then, are we to say about these things? If God is for us, who is against us? 32 He did not even spare his own Son but gave him up for us all. How will he not also with him grant us everything?
+>Romans 8:31-32 What, then, are we to say about these things? If God is for us, who is against us? 32 He did not even spare his own Son but gave him up for us all. How will he not also with him grant us everything?
 
 - God has given you his Son
 - God has given you his Spirit

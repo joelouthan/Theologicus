@@ -8,7 +8,7 @@
 
 ## The Text
 
->Psalm 19:8b (CSB) [...] the command of the LORD is radiant, making the eyes light up.
+>Psalm 19:8b [...] the command of the LORD is radiant, making the eyes light up.
 
 ## The Chapter
 
@@ -35,7 +35,7 @@ I say all of that to say this: the Confession is clear that the judicial laws of
 
 One of the best examples of God's sundry judicial laws is the straight-forward God's forbidding tattoos upon one's body.
 
->Leviticus 19:28 (CSB) You are not to make gashes on your bodies for the dead or put tattoo marks on yourselves; I am the LORD.
+>Leviticus 19:28 You are not to make gashes on your bodies for the dead or put tattoo marks on yourselves; I am the LORD.
 
 I wanted to use this example because it is quite personal to me--I have tattoos. And before you can think that I had them before I was saved. No. All of my tattoos came after I was saved.
 
@@ -43,7 +43,7 @@ So was I in defiance against a holy God and have zero regard for his holy law. W
 
 But that is not how the church historically has read, taught, understood, and preached from the Scriptures. In the right context, we are not to be like the world around us that practices witchcraft and mark our bodies for the dead as to possess their conscience and soul.
 
->Leviticus 19:26-28 (CSB) “You are not to eat anything with blood in it. You are not to practice divination or witchcraft. You are not to cut off the hair at the sides of your head or mar the edge of your beard. You are not to make gashes on your bodies for the dead or put tattoo marks on yourselves; I am the LORD.
+>Leviticus 19:26-28 “You are not to eat anything with blood in it. You are not to practice divination or witchcraft. You are not to cut off the hair at the sides of your head or mar the edge of your beard. You are not to make gashes on your bodies for the dead or put tattoo marks on yourselves; I am the LORD.
 
 I say that generally speaking we have not read it but you and I know that many in the church and in the world read the Bible as a series of one-liners. Throughout the history of the people of God, since Adam and Eve, people have the proclivity to read the Bible in as a series of unrelated phrases as though it is one long 11,000 task list of to-dos.
 
@@ -55,13 +55,13 @@ Christ has fulfilled the law for us. It is never "do this and live" but it is "b
 
 ---
 
->1 Corinthians 9:8–10 (CSB) Am I saying this from a human perspective? Doesn’t the law also say the same thing? For it is written in the law of Moses, Do not muzzle an ox while it treads out grain. Is God really concerned about oxen? Isn’t he really saying it for our sake? Yes, this is written for our sake, because he who plows ought to plow in hope, and he who threshes should thresh in hope of sharing the crop.
+>1 Corinthians 9:8–10 Am I saying this from a human perspective? Doesn’t the law also say the same thing? For it is written in the law of Moses, Do not muzzle an ox while it treads out grain. Is God really concerned about oxen? Isn’t he really saying it for our sake? Yes, this is written for our sake, because he who plows ought to plow in hope, and he who threshes should thresh in hope of sharing the crop.
 
 The Apostle Paul is clearly saying that the law of Moses is very relevant to us in the church today. That the Old Testament, fully Scripture, perfectly inspired and breathed out by the Holy Spirit from the mouth of God, still applies to us today--just not in the way that some theonomists apply it. 
 
 We have these various, different, sundry judacial laws that were used to govern the nation-state of Israel once upon ago. God was their Ruler--King, Prophet, and Priest. He was their God. He was their everything.
 
->Deuteronomy 7:6–8 (CSB) For you are a holy people belonging to the LORD your God. The LORD your God has chosen you to be his own possession out of all the peoples on the face of the earth. “The LORD was devoted to you and chose you, not because you were more numerous than all peoples, for you were the fewest of all peoples. But because the LORD loved you and kept the oath he swore to your ancestors, he brought you out with a strong hand and redeemed you
+>Deuteronomy 7:6–8 For you are a holy people belonging to the LORD your God. The LORD your God has chosen you to be his own possession out of all the peoples on the face of the earth. “The LORD was devoted to you and chose you, not because you were more numerous than all peoples, for you were the fewest of all peoples. But because the LORD loved you and kept the oath he swore to your ancestors, he brought you out with a strong hand and redeemed you
 
 God was in directly charge of them. He was their Law, King and Judge. He did not pick them because they were the biggest nor the best nor the strongest. They were picked, starting with Abraham, because they were littlest, weakest, tiniest, and the least. They were picked because God loved them. He was devoted to them. He was their God.
 
@@ -101,13 +101,13 @@ Turn the page. See the answer to all of the Old Testament. To all the covenants 
 
 Turn the page and believe the good news!
 
->Matthew 1:1 (CSB) An account of the genealogy of Jesus Christ, the Son of David, the Son of Abraham:
+>Matthew 1:1 An account of the genealogy of Jesus Christ, the Son of David, the Son of Abraham:
 
 This is the book of genealogy--the laws, the sacrifices, the family bloodline, the prophecies--all of the Old Testaments falls and is finally completed in God's only begotten Son, the Lord Jesus Christ our only, only Savior!
 
 Turn the page. We shall call his name Jesus for he has saved us From our sins!
 
->Matthew 5:17-20 (CSB) “Don’t think that I came to abolish the Law or the Prophets. I did not come to abolish but to fulfill. For truly I tell you, until heaven and earth pass away, not the smallest letter or one stroke of a letter will pass away from the law until all things are accomplished. Therefore, whoever breaks one of the least of these commands and teaches others to do the same will be called least in the kingdom of heaven. But whoever does and teaches these commands will be called great in the kingdom of heaven. For I tell you, unless your righteousness surpasses that of the scribes and Pharisees, you will never get into the kingdom of heaven.
+>Matthew 5:17-20 “Don’t think that I came to abolish the Law or the Prophets. I did not come to abolish but to fulfill. For truly I tell you, until heaven and earth pass away, not the smallest letter or one stroke of a letter will pass away from the law until all things are accomplished. Therefore, whoever breaks one of the least of these commands and teaches others to do the same will be called least in the kingdom of heaven. But whoever does and teaches these commands will be called great in the kingdom of heaven. For I tell you, unless your righteousness surpasses that of the scribes and Pharisees, you will never get into the kingdom of heaven.
 
 Nowhere in the Bible does it say we get to break the laws of God. But you miss the point if you think we are to fulfill the judicial laws of God for a people group that was not for us. The point is that Christ has fulfilled the law for us.
 

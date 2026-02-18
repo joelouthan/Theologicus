@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 82 (CSB)    
+>Psalm 82    
 > A psalm of Asaph. 
 >
 ><sup> 1 </sup> God stands in the divine assembly; he pronounces judgment among the gods: 

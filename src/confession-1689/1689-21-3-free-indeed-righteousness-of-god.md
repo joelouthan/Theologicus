@@ -8,7 +8,7 @@
 
 ## The Text
 
->Matthew 5:17–19 (CSB) “Don’t think that I came to abolish the Law or the Prophets. I did not come to abolish but to fulfill. For truly I tell you, until heaven and earth pass away, not the smallest letter or one stroke of a letter will pass away from the law until all things are accomplished. Therefore, whoever breaks one of the least of these commands and teaches others to do the same will be called least in the kingdom of heaven. But whoever does and teaches these commands will be called great in the kingdom of heaven.
+>Matthew 5:17–19 “Don’t think that I came to abolish the Law or the Prophets. I did not come to abolish but to fulfill. For truly I tell you, until heaven and earth pass away, not the smallest letter or one stroke of a letter will pass away from the law until all things are accomplished. Therefore, whoever breaks one of the least of these commands and teaches others to do the same will be called least in the kingdom of heaven. But whoever does and teaches these commands will be called great in the kingdom of heaven.
 
 ## The Chapter
 
@@ -18,13 +18,13 @@
 
 ### They who upon pretence of Christian liberty do practice any sin, or cherish any sinful lust, as they do thereby pervert the main design of the grace of the gospel to their own destruction
 
->Romans 6:1–2 (CSB) What should we say then? Should we continue in sin so that grace may multiply? Absolutely not! How can we who died to sin still live in it?
+>Romans 6:1–2 What should we say then? Should we continue in sin so that grace may multiply? Absolutely not! How can we who died to sin still live in it?
 
 ### so they wholly destroy the end of Christian liberty, which is, that being delivered out of the hands of all our enemies, we might serve the Lord without fear, in holiness and righteousness before Him, all the days of our lives
 
->Galatians 5:13 (CSB) For you were called to be free, brothers and sisters; only don’t use this freedom as an opportunity for the flesh, but serve one another through love.
+>Galatians 5:13 For you were called to be free, brothers and sisters; only don’t use this freedom as an opportunity for the flesh, but serve one another through love.
 
->2 Peter 2:18–21 (CSB) For by uttering boastful, empty words, they seduce, with fleshly desires and debauchery, people who have barely escaped from those who live in error. They promise them freedom, but they themselves are slaves of corruption, since people are enslaved to whatever defeats them. For if, having escaped the world’s impurity through the knowledge of the Lord and Savior Jesus Christ, they are again entangled in these things and defeated, the last state is worse for them than the first. For it would have been better for them not to have known the way of righteousness than, after knowing it, to turn back from the holy command delivered to them.
+>2 Peter 2:18–21 For by uttering boastful, empty words, they seduce, with fleshly desires and debauchery, people who have barely escaped from those who live in error. They promise them freedom, but they themselves are slaves of corruption, since people are enslaved to whatever defeats them. For if, having escaped the world’s impurity through the knowledge of the Lord and Savior Jesus Christ, they are again entangled in these things and defeated, the last state is worse for them than the first. For it would have been better for them not to have known the way of righteousness than, after knowing it, to turn back from the holy command delivered to them.
 
 And with the freedom of the glory of the children of God (Romans 8:21) and with the consciences given to us by God alone, there is one thing we are not free to do.
 
@@ -36,7 +36,7 @@ That is the backwards thinking of the world--if we can do these sins against God
 
 But the children of God who have been set free by the Son of God is free indeed.
 
->Romans 8:14–15 (CSB) For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!”
+>Romans 8:14–15 For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!”
 
 Sin only leads to fear, slavery and death. There is no other destination.
 

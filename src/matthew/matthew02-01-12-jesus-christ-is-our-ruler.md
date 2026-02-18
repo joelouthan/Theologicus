@@ -6,7 +6,7 @@
 
 ## The Text
 
->Matthew 2:1–12 (CSB)  
+>Matthew 2:1–12  
 ><sup> 1 </sup> After Jesus was born in Bethlehem of Judea in the days of King Herod, <bgy>wise men</bgy> from the east arrived in Jerusalem,
 >
 ><sup> 2 </sup> saying, “Where is he who has been born king of the Jews? For we saw his star at its rising and have come to worship him.”
@@ -35,7 +35,7 @@
 
 ### People want a king and not the King
 
->1 Samuel 8:4-7 (CSB) So all the elders of Israel gathered together and went to Samuel at Ramah. They said to him, “Look, you are old, and your sons do not walk in your ways. Therefore, appoint a king to judge us the same as all the other nations have.”When they said, “Give us a king to judge us,” Samuel considered their demand wrong, so he prayed to the LORD. But the LORD told him, “Listen to the people and everything they say to you. They have not rejected you; they have rejected me as their king.
+>1 Samuel 8:4-7 So all the elders of Israel gathered together and went to Samuel at Ramah. They said to him, “Look, you are old, and your sons do not walk in your ways. Therefore, appoint a king to judge us the same as all the other nations have.”When they said, “Give us a king to judge us,” Samuel considered their demand wrong, so he prayed to the LORD. But the LORD told him, “Listen to the people and everything they say to you. They have not rejected you; they have rejected me as their king.
 
 ### A line of sinful kings yet God establishes
 
@@ -46,7 +46,7 @@
 *The reserved worship for God*  
   *To the Jew first (Mary & Joseph) and to the Greek (Gentiles of the Wise Men)*
 
->2 Samuel 7:16 (CSB) Your house and kingdom will endure before me forever, and your throne will be established forever.
+>2 Samuel 7:16 Your house and kingdom will endure before me forever, and your throne will be established forever.
 
 God promises this through will be established forever *before* David rapes Bathsheba and murders Uriah.
 
@@ -56,7 +56,7 @@ Jesus was born under the grotesquely evil King Herod. That was not a mistake.
 
 Who set King Herod to rule?
 
->Daniel 2:19-21 (CSB) The mystery was then revealed to Daniel in a vision at night, and Daniel praised the God of the heavens and declared:  
+>Daniel 2:19-21 The mystery was then revealed to Daniel in a vision at night, and Daniel praised the God of the heavens and declared:  
 >May the name of God  
 >be praised forever and ever,  
 >for wisdom and power belong to him.  

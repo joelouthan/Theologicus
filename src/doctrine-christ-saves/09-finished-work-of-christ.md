@@ -116,7 +116,7 @@ God loves you so much. Before the creation of the world, he loved you. He looks 
 
 God the Father loved you so much that it pleased Him to send His Son to live and die so his children could die and be born again.
 
->Psalm 103:1–22 (CSB)  
+>Psalm 103:1–22  
 ><sup>1</sup> My soul, bless the LORD, and all that is within me, bless his holy name. 
 >
 ><sup>2</sup> My soul, bless the LORD, and do not forget all his benefits. 

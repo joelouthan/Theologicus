@@ -8,7 +8,7 @@
 
 ## The Text
 
->Isaiah 42:6–9 (CSB) “I am the LORD. I have called you for a righteous purpose, and I will hold you by your hand. I will watch over you, and I will appoint you to be a covenant for the people and a light to the nations, in order to open blind eyes, to bring out prisoners from the dungeon, and those sitting in darkness from the prison house. I am the LORD. That is my name, and I will not give my glory to another or my praise to idols. The past events have indeed happened. Now I declare new events; I announce them to you before they occur.”
+>Isaiah 42:6–9 “I am the LORD. I have called you for a righteous purpose, and I will hold you by your hand. I will watch over you, and I will appoint you to be a covenant for the people and a light to the nations, in order to open blind eyes, to bring out prisoners from the dungeon, and those sitting in darkness from the prison house. I am the LORD. That is my name, and I will not give my glory to another or my praise to idols. The past events have indeed happened. Now I declare new events; I announce them to you before they occur.”
 
 ## The Chapter
 
@@ -18,11 +18,11 @@
 
 ### Those of mankind that are predestinated to life, God, before the foundation of the world was laid
 
->Ephesians 1:3–12 (CSB) Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One. In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace that he richly poured out on us with all wisdom and understanding. He made known to us the mystery of his will, according to his good pleasure that he purposed in Christ as a plan for the right time—to bring everything together in Christ, both things in heaven and things on earth in him. In him we have also received an inheritance, because we were predestined according to the plan of the one who works out everything in agreement with the purpose of his will, so that we who had already put our hope in Christ might bring praise to his glory.
+>Ephesians 1:3–12 Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One. In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace that he richly poured out on us with all wisdom and understanding. He made known to us the mystery of his will, according to his good pleasure that he purposed in Christ as a plan for the right time—to bring everything together in Christ, both things in heaven and things on earth in him. In him we have also received an inheritance, because we were predestined according to the plan of the one who works out everything in agreement with the purpose of his will, so that we who had already put our hope in Christ might bring praise to his glory.
 
 Before time and space began, before he created the heavens and the earth, before Genesis 1:1, God had already set his affections and love and mercies upon his precious people.
 
->Psalm 90:1-2 (CSB) Lord, you have been our refuge in every generation. Before the mountains were born, before you gave birth to the earth and the world, from eternity to eternity, you are God.
+>Psalm 90:1-2 Lord, you have been our refuge in every generation. Before the mountains were born, before you gave birth to the earth and the world, from eternity to eternity, you are God.
 
 I have heard so many weird explanations from well-intended Christians try to do their best to explain away words like predestination and foreknew when it comes to God. We don’t have a frame for knowing before existing. We don’t have a mindset of loving before we were alive. But for the God was is from everlasting to everlasting, this is who he is and nothing more nor less.
 
@@ -30,15 +30,15 @@ There is one thought called Molinism that attempts to bridge the omniscience and
 
 First, the Bible states that we were dead in our trespasses (Ephesians 2:1). So how does a dead person able to choose God unless there is something outside of that dead person to give them life? Have you ever met a dead person who brought himself back to life? Christ did so by the Holy Spirit. How can any one else do more than that? And in this, Romans 5:8 is such a comfort:
 
->Romans 5:6-8 (CSB) For while we were still helpless, at the right time, Christ died for the ungodly. For rarely will someone die for a just person—though for a good person perhaps someone might even dare to die. But God proves his own love for us in that while we were still sinners, Christ died for us.
+>Romans 5:6-8 For while we were still helpless, at the right time, Christ died for the ungodly. For rarely will someone die for a just person—though for a good person perhaps someone might even dare to die. But God proves his own love for us in that while we were still sinners, Christ died for us.
 
 The Bible rightly states that we were helpless and ungodly. But God proved his love for us in that while we were still sinners, Christ died for us. Think about this: when did the crucifixion of Christ occurred? A little over two thousand years ago. When did you start sinning against God? Before or after that? Christ never looked down the corridors of time and saw that we were choosing God but rather, he looked down the corridors of time, saw that were running hard into sin and death. Titus 3 says it best:
 
->Titus 3:3 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
+>Titus 3:3 For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
 
 Christ saw all of that and with great joy descended into death upon the cross so that we would live!
 
->Titus 3:4-7 (CSB) But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior so that, having been justified by his grace, we may become heirs with the hope of eternal life.
+>Titus 3:4-7 But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior so that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
 Second, the Scriptures never says “foresaw” as in “God looked into time and foresaw those who would choose him.” No, God foreknew his people.
 
@@ -48,7 +48,7 @@ God is eternal like that.
 
 ### and the secret counsel and good pleasure of his will
 
->2 Timothy 1:9 (CSB) He has saved us and called us with a holy calling, not according to our works, but according to his own purpose and grace, which was given to us in Christ Jesus before time began.
+>2 Timothy 1:9 He has saved us and called us with a holy calling, not according to our works, but according to his own purpose and grace, which was given to us in Christ Jesus before time began.
 
 In every instance that we could possibly fathom when it comes to God saving us, it is not because of what we have done but what God has done. Nothing we have done. Not softening our hearts. Not praying the right prayer. Not having a broken heart. Not having the right parents. Going to the right church. Not being born in a certain country. None of that. God loved you from before time began. And why? For his own purpose and grace which was given to us in Christ Jesus before time began.
 
@@ -58,13 +58,13 @@ We could romanticize it and try to make a feel good movie about it. But what abo
 
 ### hath chosen in Christ unto everlasting glory
 
->1 Thessalonians 5:9 (CSB) For God did not appoint us to wrath, but to obtain salvation through our Lord Jesus Christ,
+>1 Thessalonians 5:9 For God did not appoint us to wrath, but to obtain salvation through our Lord Jesus Christ,
 
 We could sit and argue about single and double predestination all the live long day. But predestination is not of us. That is the secret good and wise counsel and glory of God.
 
 Do you know what we know? That he has not appointed us to wrath. All that wrath for all of our sins--past, present, and future--was poured out on Christ.
 
->1 Peter 2:24 (CSB) He himself bore our sins in his body on the tree; so that, having died to sins, we might live for righteousness. By his wounds you have been healed.
+>1 Peter 2:24 He himself bore our sins in his body on the tree; so that, having died to sins, we might live for righteousness. By his wounds you have been healed.
 
 >1 John 4:10 (ESV) In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.
 
@@ -92,11 +92,11 @@ They do the work but the spouse turns out to be wicked and worthless. Addicted t
 
 But don't you know that God causes his sun to rise on the evil and the good, and sends rain on the righteous and the unrighteous. (Matthew 5:45) Do you know he blesses and curses according to his most wise counsel and goodness?
 
->Romans 9:19 (CSB) You will say to me, therefore, “Why then does he still find fault? For who resists his will? ”
+>Romans 9:19 You will say to me, therefore, “Why then does he still find fault? For who resists his will? ”
 
 But the Creator has absolute rights over the creation. 
 
->Romans 9:20-24 (CSB) On the contrary, who are you, a human being, to talk back to God? Will what is formed say to the one who formed it, “Why did you make me like this? ” Or has the potter no right over the clay, to make from the same lump one piece of pottery for honor and another for dishonor? And what if God, wanting to display his wrath and to make his power known, endured with much patience objects of wrath prepared for destruction? And what if he did this to make known the riches of his glory on objects of mercy that he prepared beforehand for glory--on us, the ones he also called, not only from the Jews but also from the Gentiles?
+>Romans 9:20-24 On the contrary, who are you, a human being, to talk back to God? Will what is formed say to the one who formed it, “Why did you make me like this? ” Or has the potter no right over the clay, to make from the same lump one piece of pottery for honor and another for dishonor? And what if God, wanting to display his wrath and to make his power known, endured with much patience objects of wrath prepared for destruction? And what if he did this to make known the riches of his glory on objects of mercy that he prepared beforehand for glory--on us, the ones he also called, not only from the Jews but also from the Gentiles?
 
 ## The Response
 
@@ -104,13 +104,13 @@ But the Creator has absolute rights over the creation.
 
 In other words, we cannot put God into our debt. We don't do the right thing and move God to do our bidding. That is Paganism and God is above idolatries. For:
 
->Psalm 97:9 (CSB) For you, LORD,  
+>Psalm 97:9 For you, LORD,  
 >are the Most High over the whole earth;  
 >you are exalted above all the gods.
 
 We do not move God or put in our debt. God does not and will never owe anybody anything ever for ever. He is the Creator of the heavens and earth.
 
->Romans 4:1-5 (CSB) What then will we say that Abraham, our forefather according to the flesh, has found? If Abraham was justified by works, he has something to boast about — but not before God. For what does the Scripture say? Abraham believed God, and it was credited to him for righteousness. **Now to the one who works, pay is not credited as a gift, but as something owed. But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness.**
+>Romans 4:1-5 What then will we say that Abraham, our forefather according to the flesh, has found? If Abraham was justified by works, he has something to boast about — but not before God. For what does the Scripture say? Abraham believed God, and it was credited to him for righteousness. **Now to the one who works, pay is not credited as a gift, but as something owed. But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness.**
 
 Abraham placed his faith in God and it was credited to Abraham as the righteousness of Christ.
 
@@ -120,7 +120,7 @@ This life, this world, others, sin, Satan, demons are out to kick you upside you
 
 Know that God knows all of that. He knew that you were too weak. He knows life is about that beat-down. And he knows that your faith will be tested. And you will fail. And you will sin. And you will try to depart from his grace. But my glorious God will never let you go! This guarantee is absolute because he sent his only begotten Son, Jesus Christ, Son of God is God Eternal to come live and die for you so you will die and live for him with him in his maxed joy and pleasures forevermore.
 
->Ephesians 2:1-13 (CSB) And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. **But God, who is rich in mercy, because of his great love that he had for us, made us alive with Christ even though we were dead in trespasses. You are saved by grace! He also raised us up with him and seated us with him in the heavens in Christ Jesus, so that in the coming ages he might display the immeasurable riches of his grace through his kindness to us in Christ Jesus. For you are saved by grace through faith, and this is not from yourselves; it is God’s gift — not from works, so that no one can boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.** So, then, remember that at one time you were Gentiles in the flesh — called “the uncircumcised” by those called “the circumcised,” which is done in the flesh by human hands. At that time you were without Christ, excluded from the citizenship of Israel, and foreigners to the covenants of promise, without hope and without God in the world. But now in Christ Jesus, you who were far away have been brought near by the blood of Christ.
+>Ephesians 2:1-13 And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. **But God, who is rich in mercy, because of his great love that he had for us, made us alive with Christ even though we were dead in trespasses. You are saved by grace! He also raised us up with him and seated us with him in the heavens in Christ Jesus, so that in the coming ages he might display the immeasurable riches of his grace through his kindness to us in Christ Jesus. For you are saved by grace through faith, and this is not from yourselves; it is God’s gift — not from works, so that no one can boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.** So, then, remember that at one time you were Gentiles in the flesh — called “the uncircumcised” by those called “the circumcised,” which is done in the flesh by human hands. At that time you were without Christ, excluded from the citizenship of Israel, and foreigners to the covenants of promise, without hope and without God in the world. But now in Christ Jesus, you who were far away have been brought near by the blood of Christ.
 
 This is complete conjuncture because the Scriptures are not explicit and I certainly was not there. But I always thought that before anything, the Father and the Son were in perfection expressing their love for one another and then the conversation took a turn: [^conjecture]
 
@@ -154,7 +154,7 @@ Son: I love you so much.
 Father: Here we go!  
 Son: Let’s do this!
 
->Genesis 1:1 (CSB) In the beginning God created the heavens and the earth.
+>Genesis 1:1 In the beginning God created the heavens and the earth.
 
 Beloved, you were always loved by God and he will never stop loving you. Praise be to his glorious grace forever.
 

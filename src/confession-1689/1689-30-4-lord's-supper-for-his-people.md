@@ -8,7 +8,7 @@
 
 ## The Text
 
->Matthew 26:26–28 (CSB) As they were eating, Jesus took bread, blessed and broke it, gave it to the disciples, and said, “Take and eat it; this is my body.” Then he took a cup, and after giving thanks, he gave it to them and said, “Drink from it, all of you. For this is my blood of the covenant, which is poured out for many for the forgiveness of sins.
+>Matthew 26:26–28 As they were eating, Jesus took bread, blessed and broke it, gave it to the disciples, and said, “Take and eat it; this is my body.” Then he took a cup, and after giving thanks, he gave it to them and said, “Drink from it, all of you. For this is my blood of the covenant, which is poured out for many for the forgiveness of sins.
 
 ## The Chapter
 
@@ -16,9 +16,9 @@
 
 ## The Confession
 
->Matthew 15:9 (CSB) They worship me in vain, teaching as doctrines human commands.”
+>Matthew 15:9 They worship me in vain, teaching as doctrines human commands.”
 
->Exodus 20:4–5 (CSB) Do not make an idol for yourself, whether in the shape of anything in the heavens above or on the earth below or in the waters under the earth. Do not bow in worship to them, and do not serve them; for I, the LORD your God, am a jealous God, bringing the consequences of the fathers’ iniquity on the children to the third and fourth generations of those who hate me,
+>Exodus 20:4–5 Do not make an idol for yourself, whether in the shape of anything in the heavens above or on the earth below or in the waters under the earth. Do not bow in worship to them, and do not serve them; for I, the LORD your God, am a jealous God, bringing the consequences of the fathers’ iniquity on the children to the third and fourth generations of those who hate me,
 
 The argument here is simple: the Lord's Supper is a simple meal for his people. It does not need lots of grandstanding. It is a meal to remember what he has done for us.
 

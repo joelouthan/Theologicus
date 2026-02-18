@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 37 (CSB)  
+>Psalm 37  
 ><sup>3</sup> Trust in the LORD and do what is good; dwell in the land and live securely. 
 
 ## The Prayer

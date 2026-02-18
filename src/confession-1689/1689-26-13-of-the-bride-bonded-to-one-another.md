@@ -8,7 +8,7 @@
 
 ## The Text
 
->1 Corinthians 12:12-14 (CSB) For just as the body is one and has many parts, and all the parts of that body, though many, are one body — so also is Christ. For we were all baptized by one Spirit into one body — whether Jews or Greeks, whether slaves or free — and we were all given one Spirit to drink. Indeed, the body is not one part but many.
+>1 Corinthians 12:12-14 For just as the body is one and has many parts, and all the parts of that body, though many, are one body — so also is Christ. For we were all baptized by one Spirit into one body — whether Jews or Greeks, whether slaves or free — and we were all given one Spirit to drink. Indeed, the body is not one part but many.
 
 ## The Chapter
 
@@ -16,9 +16,9 @@
 
 ## The Confession
 
->Matthew 18:15–17 (CSB) “If your brother sins against you, go tell him his fault, between you and him alone. If he listens to you, you have won your brother. But if he won’t listen, take one or two others with you, so that by the testimony of two or three witnesses every fact may be established. If he doesn’t pay attention to them, tell the church. If he doesn’t pay attention even to the church, let him be like a Gentile and a tax collector to you.
+>Matthew 18:15–17 “If your brother sins against you, go tell him his fault, between you and him alone. If he listens to you, you have won your brother. But if he won’t listen, take one or two others with you, so that by the testimony of two or three witnesses every fact may be established. If he doesn’t pay attention to them, tell the church. If he doesn’t pay attention even to the church, let him be like a Gentile and a tax collector to you.
 
->Ephesians 4:2–3 (CSB) with all humility and gentleness, with patience, bearing with one another in love, making every effort to keep the unity of the Spirit through the bond of peace.
+>Ephesians 4:2–3 with all humility and gentleness, with patience, bearing with one another in love, making every effort to keep the unity of the Spirit through the bond of peace.
 
 Church folks are not perfect. And we know this. And people who have been hurt, when they have not sought to get healing by the Healer, tend to hurt others. And church is not the exception.
 

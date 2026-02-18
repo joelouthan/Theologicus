@@ -4,7 +4,7 @@
 
 ## The Text
 
->1 Timothy 6:20–21 (CSB)  
+>1 Timothy 6:20–21  
 ><sup>20</sup> Timothy, guard what has been entrusted to you, avoiding irreverent and empty speech and contradictions from what is falsely called knowledge. 
 >
 ><sup>21</sup> By professing it, some people have departed from the faith. Grace be with you all.
@@ -13,15 +13,15 @@
 
 ### Timothy, guard what has been entrusted to you
 
->2 Peter 3:17-18 (CSB) Therefore, dear friends, since you know this in advance, be on your guard, so that you are not led away by the error of lawless people and fall from your own stable position. But grow in the grace and knowledge of our Lord and Savior Jesus Christ. To him be the glory both now and to the day of eternity.
+>2 Peter 3:17-18 Therefore, dear friends, since you know this in advance, be on your guard, so that you are not led away by the error of lawless people and fall from your own stable position. But grow in the grace and knowledge of our Lord and Savior Jesus Christ. To him be the glory both now and to the day of eternity.
 
->1 Peter 3:13-15 (CSB) Who then will harm you if you are devoted to what is good? 14 But even if you should suffer for righteousness, you are blessed. Do not fear them or be intimidated, 15 but in your hearts regard Christ the Lord as holy, ready at any time to give a defense to anyone who asks you for a reason for the hope that is in you.
+>1 Peter 3:13-15 Who then will harm you if you are devoted to what is good? 14 But even if you should suffer for righteousness, you are blessed. Do not fear them or be intimidated, 15 but in your hearts regard Christ the Lord as holy, ready at any time to give a defense to anyone who asks you for a reason for the hope that is in you.
 
->Luke 12:8-12 (CSB) And I say to you, anyone who acknowledges me before others, the Son of Man will also acknowledge him before the angels of God, 9 but whoever denies me before others will be denied before the angels of God. 10 Anyone who speaks a word against the Son of Man will be forgiven, but the one who blasphemes against the Holy Spirit will not be forgiven. 11 Whenever they bring you before synagogues and rulers and authorities, don’t worry about how you should defend yourselves or what you should say. 12 For the Holy Spirit will teach you at that very hour what must be said.”
+>Luke 12:8-12 And I say to you, anyone who acknowledges me before others, the Son of Man will also acknowledge him before the angels of God, 9 but whoever denies me before others will be denied before the angels of God. 10 Anyone who speaks a word against the Son of Man will be forgiven, but the one who blasphemes against the Holy Spirit will not be forgiven. 11 Whenever they bring you before synagogues and rulers and authorities, don’t worry about how you should defend yourselves or what you should say. 12 For the Holy Spirit will teach you at that very hour what must be said.”
 
->1 Timothy 4:14 (CSB) Don’t neglect the gift that is in you; it was given to you through prophecy, with the laying on of hands by the council of elders.
+>1 Timothy 4:14 Don’t neglect the gift that is in you; it was given to you through prophecy, with the laying on of hands by the council of elders.
 
->2 Timothy 1:5-7 (CSB) I recall your sincere faith that first lived in your grandmother Lois and in your mother Eunice and now, I am convinced, is in you also.
+>2 Timothy 1:5-7 I recall your sincere faith that first lived in your grandmother Lois and in your mother Eunice and now, I am convinced, is in you also.
 >
 >Therefore, I remind you to rekindle the gift of God that is in you through the laying on of my hands. For God has not given us a spirit of fear, but one of power, love, and sound judgment.
 
@@ -29,9 +29,9 @@
 
 #### Protect what you are reading--especially online
 
->1 Timothy 1:3-4 (CSB) As I urged you when I went to Macedonia, remain in Ephesus so that you may instruct certain people not to teach false doctrine or to pay attention to myths and endless genealogies. These promote empty speculations rather than God’s plan, which operates by faith.
+>1 Timothy 1:3-4 As I urged you when I went to Macedonia, remain in Ephesus so that you may instruct certain people not to teach false doctrine or to pay attention to myths and endless genealogies. These promote empty speculations rather than God’s plan, which operates by faith.
 
->1 Timothy 4:6-7 (CSB) If you point these things out to the brothers and sisters, you will be a good servant of Christ Jesus, nourished by the words of the faith and the good teaching that you have followed. But have nothing to do with pointless and silly myths. Rather, train yourself in godliness.
+>1 Timothy 4:6-7 If you point these things out to the brothers and sisters, you will be a good servant of Christ Jesus, nourished by the words of the faith and the good teaching that you have followed. But have nothing to do with pointless and silly myths. Rather, train yourself in godliness.
 
 - Love conspiracy theories.
 
@@ -57,22 +57,22 @@
 
 #### The consequences for not knowing God
 
->Hosea 4:6 (CSB) My people are destroyed for lack of knowledge.
+>Hosea 4:6 My people are destroyed for lack of knowledge.
 Because you have rejected knowledge,
 I will reject you from serving as my priest.
 Since you have forgotten the law of your God,
 I will also forget your sons.
 
->Isaiah 5:13 (CSB) Therefore my people will go into exile
+>Isaiah 5:13 Therefore my people will go into exile
 because they lack knowledge;
 her dignitaries are starving,
 and her masses are parched with thirst.
 
 #### What are we to do
 
->Malachi 2:7 (CSB) For the lips of a priest should guard knowledge, and people should desire instruction from his mouth, because he is the messenger of the LORD of Armies.
+>Malachi 2:7 For the lips of a priest should guard knowledge, and people should desire instruction from his mouth, because he is the messenger of the LORD of Armies.
 
->1 Peter 2:9a (CSB) But you are a chosen race, a royal priesthood, a holy nation, a people for his possession, 
+>1 Peter 2:9a But you are a chosen race, a royal priesthood, a holy nation, a people for his possession, 
 
 ### We are to proclaim the gospel of God
 
@@ -80,7 +80,7 @@ and her masses are parched with thirst.
 
 David proclaims it this way:
 
->Psalm 40:9-11 (CSB) I proclaim righteousness in the great assembly;
+>Psalm 40:9-11 I proclaim righteousness in the great assembly;
 see, I do not keep my mouth closed—
 as you know, LORD.
 I did not hide your righteousness in my heart;
@@ -92,7 +92,7 @@ Your constant love and truth will always guard me.
 
 Paul tells us to stop it and instead:
 
->1 Timothy 4:13,15 (CSB) Until I come, give your attention to public reading, exhortation, and teaching... Practice these things; be committed to them, so that your progress may be evident to all.
+>1 Timothy 4:13,15 Until I come, give your attention to public reading, exhortation, and teaching... Practice these things; be committed to them, so that your progress may be evident to all.
 
 What happens when you don't?
 
@@ -108,7 +108,7 @@ We have so many people wanting to deconstruct something not Biblical, Orthodox, 
 
 Young people are deconstructing. Old people are hearing silly myths. Most of us in-between just shrug our shoulders and give up. We are believing everything we are hearing but we have not turned our ears to God and his word. 
 
->Matthew 6:33 (CSB) But seek first the kingdom of God and his righteousness, and all these things will be provided for you.
+>Matthew 6:33 But seek first the kingdom of God and his righteousness, and all these things will be provided for you.
 
 Life everlasting, joy, satisfaction, peace, and pleasures forever can only be found in God.
 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 137 (CSB)  
+>Psalm 137  
 ><sup>1</sup> By the rivers of Babylon— there we sat down and wept when we remembered Zion. 
 >
 ><sup>2</sup> There we hung up our lyres on the poplar trees, 

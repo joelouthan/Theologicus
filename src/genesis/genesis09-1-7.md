@@ -32,7 +32,7 @@ Let us examine the covenant--the unbreakable promise of God.
 
 ## The Text
 
->Genesis 9:1–7 (CSB)  
+>Genesis 9:1–7  
 ><sup> 1 </sup> God blessed Noah and his sons and said to them, “Be fruitful and multiply and fill the earth. 
 >
 ><sup> 2 </sup> The fear and terror of you will be in every living creature on the earth, every bird of the sky, every creature that crawls on the ground, and all the fish of the sea. They are placed under your authority. 
@@ -71,7 +71,7 @@ This verse here sums it up: whatever God has called us to do, he will give grace
 
 In other words, take it all the way back to Genesis 6: "But Noah found favor in the eyes of the Lord."
 
->Ephesians 2:8-9 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast.
+>Ephesians 2:8-9 For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast.
 
 You and I will need favor and grace to do his will. No exceptions.
 
@@ -79,13 +79,13 @@ You and I will need favor and grace to do his will. No exceptions.
 
 ### The Love of God knows exactly what you need
 
->Matthew 6:31-34 (CSB) So don’t worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’For the Gentiles eagerly seek all these things, and your heavenly Father knows that you need them. But seek first the kingdom of God and his righteousness, and all these things will be provided for you. Therefore don’t worry about tomorrow, because tomorrow will worry about itself. Each day has enough trouble of its own.
+>Matthew 6:31-34 So don’t worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’For the Gentiles eagerly seek all these things, and your heavenly Father knows that you need them. But seek first the kingdom of God and his righteousness, and all these things will be provided for you. Therefore don’t worry about tomorrow, because tomorrow will worry about itself. Each day has enough trouble of its own.
 
 You see that. Do you and I need food, water, and shelter? Yes. Do you and I need provision by God? Yes.
 
 But what do we really need to do in order to live?
 
->John 3:5-8 (CSB) Jesus answered, “Truly I tell you, unless someone is born of water and the Spirit, he cannot enter the kingdom of God. Whatever is born of the flesh is flesh, and whatever is born of the Spirit is spirit. Do not be amazed that I told you that you must be born again. The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.”
+>John 3:5-8 Jesus answered, “Truly I tell you, unless someone is born of water and the Spirit, he cannot enter the kingdom of God. Whatever is born of the flesh is flesh, and whatever is born of the Spirit is spirit. Do not be amazed that I told you that you must be born again. The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.”
 
 You and I must be born again in order to live with God forever and ever. Heaven is beyond perfection. Our minds cannot fathom.
 
@@ -103,17 +103,17 @@ Go to God for God. Nothing else is going to satisfy you.
 
 >1 John 4:10 (ESV) In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.
 
->1 John 4:10 (CSB) Love consists in this: not that we loved God, but that he loved us and sent his Son to be the atoning sacrifice for our sins.
+>1 John 4:10 Love consists in this: not that we loved God, but that he loved us and sent his Son to be the atoning sacrifice for our sins.
 
 ### The Love of God is the life for our lives
 
->Hebrews 10:1-4 (CSB) Since the law has only a shadow of the good things to come, and not the reality itself of those things, it can never perfect the worshipers by the same sacrifices they continually offer year after year. Otherwise, wouldn’t they have stopped being offered, since the worshipers, purified once and for all, would no longer have any consciousness of sins?But in the sacrifices there is a reminder of sins year after year. For it is impossible for the blood of bulls and goats to take away sins.
+>Hebrews 10:1-4 Since the law has only a shadow of the good things to come, and not the reality itself of those things, it can never perfect the worshipers by the same sacrifices they continually offer year after year. Otherwise, wouldn’t they have stopped being offered, since the worshipers, purified once and for all, would no longer have any consciousness of sins?But in the sacrifices there is a reminder of sins year after year. For it is impossible for the blood of bulls and goats to take away sins.
 
->Romans 6:10 (CSB) For the death he died, he died to sin once for all time; but the life he lives, he lives to God.
+>Romans 6:10 For the death he died, he died to sin once for all time; but the life he lives, he lives to God.
 
 ### The Love of God sheds his blood for our lives
 
->Hebrews 10:5-7 (CSB) Therefore, as he was coming into the world, he said:
+>Hebrews 10:5-7 Therefore, as he was coming into the world, he said:
 You did not desire sacrifice and offering,
 but you prepared a body for me.
 6 You did not delight
@@ -123,7 +123,7 @@ it is written about me
 in the scroll—
 I have come to do your will, God.”
 
->Hebrews 10:8-10 (CSB) After he says above, You did not desire or delight in sacrifices and offerings, whole burnt offerings and sin offerings (which are offered according to the law),he then says, See, I have come to do your will. He takes away the first to establish the second. By this will, we have been sanctified through the offering of the body of Jesus Christ once for all time.
+>Hebrews 10:8-10 After he says above, You did not desire or delight in sacrifices and offerings, whole burnt offerings and sin offerings (which are offered according to the law),he then says, See, I have come to do your will. He takes away the first to establish the second. By this will, we have been sanctified through the offering of the body of Jesus Christ once for all time.
 
 Jesus Christ is the penalty.
 
@@ -145,7 +145,7 @@ Jesus Christ is the blessing.
 
 The covenants of God, the promises of God, in the working of God to save his people is because God loves us so much.
 
->John 3:14-17 (CSB) Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up,so that everyone who believes in him may have eternal life. For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
+>John 3:14-17 Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up,so that everyone who believes in him may have eternal life. For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
 
 Love God. Obey God. And go and tell others of this amazingly good news.
 

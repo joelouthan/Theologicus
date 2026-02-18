@@ -8,7 +8,7 @@
 
 ## The Text
 
->1 John 2:2 (CSB) He himself is the atoning sacrifice for our sins, and not only for ours, but also for those of the whole world.
+>1 John 2:2 He himself is the atoning sacrifice for our sins, and not only for ours, but also for those of the whole world.
 
 ## The Chapter
 
@@ -18,7 +18,7 @@
 
 Let's take a verse from the Bible:
 
->1 Corinthians 15:29 (CSB) Otherwise what will they do who are being baptized for the dead? If the dead are not raised at all, then why are people baptized for them?
+>1 Corinthians 15:29 Otherwise what will they do who are being baptized for the dead? If the dead are not raised at all, then why are people baptized for them?
 
 In and by itself, it is easy to think that God commands his followers to baptize for their dead. But anybody who has attended a Christian church within the last 2000 years knows that this is not a thing. We see living and breathing people being baptized but never not once have I heard of someone being baptized for the dead.
 
@@ -46,11 +46,11 @@ Guess what? It remains a mystery to us by God.
 
 And that thought that some things remain a mystery might rail against our modern sensibilities. But there are certain things that belong to our God. For:
 
->Deuteronomy 29:29 (CSB) The hidden things belong to the LORD our God, but the revealed things belong to us and our children forever, so that we may follow all the words of this law.
+>Deuteronomy 29:29 The hidden things belong to the LORD our God, but the revealed things belong to us and our children forever, so that we may follow all the words of this law.
 
 And
 
->Proverbs 25:2-3 (CSB) It is the glory of God to conceal a matter and the glory of kings to investigate a matter. As the heavens are high and the earth is deep, so the hearts of kings cannot be investigated.
+>Proverbs 25:2-3 It is the glory of God to conceal a matter and the glory of kings to investigate a matter. As the heavens are high and the earth is deep, so the hearts of kings cannot be investigated.
 
 Calvin says this:
 
@@ -58,15 +58,15 @@ Calvin says this:
 
 Watch what he says: the limit of our minds cannot fully wrap around the infinite God. We may not be able to fully know God because He is infinite but because he has given us his Son, Christ Jesus, we are able to **truly** know God. For:
 
->John 1:18 (CSB) No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
+>John 1:18 No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
 
 And
 
->1 Timothy 1:15–17 (CSB) This saying is trustworthy and deserving of full acceptance: “Christ Jesus came into the world to save sinners”—and I am the worst of them. But I received mercy for this reason, so that in me, the worst of them, Christ Jesus might demonstrate his extraordinary patience as an example to those who would believe in him for eternal life. Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
+>1 Timothy 1:15–17 This saying is trustworthy and deserving of full acceptance: “Christ Jesus came into the world to save sinners”—and I am the worst of them. But I received mercy for this reason, so that in me, the worst of them, Christ Jesus might demonstrate his extraordinary patience as an example to those who would believe in him for eternal life. Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
 
 So lets take the passage I originally gave at the beginning of this exposition:
 
->1 John 2:2 (CSB) He himself is the atoning sacrifice for our sins, and not only for ours, but also for those of the whole world.
+>1 John 2:2 He himself is the atoning sacrifice for our sins, and not only for ours, but also for those of the whole world.
 
 Some pastors and teachers will remark, "Ah ha!," as their finger drills down on this passage, "it says so right there. No debate needed. Case closed. End of argument. I win!"
 
@@ -78,11 +78,11 @@ One, "No wait, that is not what I mean." This response will always lead into a m
 
 Two, the person insistent on always being right / never being wrong, will double down and die on this hill. "Yep! That is what that means." Well, that would be silly because we know for a fact that unbelievers sit under the continuous wrath of Christ for all of eternity. For:
 
->John 3:36 (CSB) The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
+>John 3:36 The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 
 And
 
->Matthew 8:11-12 (CSB) I tell you that many will come from east and west to share the banquet with Abraham, Isaac, and Jacob in the kingdom of heaven. But the sons of the kingdom will be thrown into the outer darkness where there will be weeping and gnashing of teeth.”
+>Matthew 8:11-12 I tell you that many will come from east and west to share the banquet with Abraham, Isaac, and Jacob in the kingdom of heaven. But the sons of the kingdom will be thrown into the outer darkness where there will be weeping and gnashing of teeth.”
 
 You don't think Christ talked about hell? There are five more passages like that in the gospel of Matthew.
 
@@ -90,7 +90,7 @@ But someone will come back with the "sin of disbelief". "Well, the only sin that
 
 My good friend, lets go back to the Johannine passage once more:
 
->1 John 2:2 (CSB) He himself is the atoning sacrifice for our sins, and not only for ours, but also for those of the whole world.
+>1 John 2:2 He himself is the atoning sacrifice for our sins, and not only for ours, but also for those of the whole world.
 
 I don't see the Scripture mentioning Christ only atoning for some sins and not all sins.
 

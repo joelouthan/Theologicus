@@ -4,7 +4,7 @@
 
 ## The Introduction
 
->Psalm 16 (CSB) A Miktam of David.
+>Psalm 16 A Miktam of David.
 >
 ><sup>1</sup> Protect me, God, for I take refuge in you. 
 >

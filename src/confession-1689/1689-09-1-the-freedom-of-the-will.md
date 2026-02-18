@@ -8,7 +8,7 @@
 
 ## The Text
 
->Genesis 1:27 (CSB) So God created man in his own image; he created him in the image of God; he created them male and female.
+>Genesis 1:27 So God created man in his own image; he created him in the image of God; he created them male and female.
 
 ## The Chapter
 
@@ -20,17 +20,17 @@
 
 Because we are made in the image of God, we have been gifted with a mind, heart, soul, emotions and a will. God has made us to achieve, work, create, love, and to choose and act upon that choice.
 
->Matthew 17:12 (CSB) “But I tell you: Elijah has already come, and they didn’t recognize him. On the contrary, they did whatever they pleased to him. In the same way the Son of Man is going to suffer at their hands.”
+>Matthew 17:12 “But I tell you: Elijah has already come, and they didn’t recognize him. On the contrary, they did whatever they pleased to him. In the same way the Son of Man is going to suffer at their hands.”
 
 ### that it is neither forced
 
->James 1:14 (CSB) But each person is tempted when he is drawn away and enticed by his own evil desire.
+>James 1:14 But each person is tempted when he is drawn away and enticed by his own evil desire.
 
 This is not a forced decision. This is a not a reprogramming or a flip of the switches. Again, our wills are corrupted. Our souls are in decay. Our minds follow the flesh. Our hearts are cold as rocks. Try reprogramming a rock. Doesn't make sense, does it? Then why would God flip a couple switches in our minds, hearts, and wills as though we are some kind of robots?
 
 ### nor by any necessity of nature determined to do good or evil
 
->Deuteronomy 30:19 (CSB) I call heaven and earth as witnesses against you today that I have set before you life and death, blessing and curse. Choose life so that you and your descendants may live,
+>Deuteronomy 30:19 I call heaven and earth as witnesses against you today that I have set before you life and death, blessing and curse. Choose life so that you and your descendants may live,
 
 There is nothing in nature, circumstance, fixed, destiny, mechanical, or physical forcing you to choose life or death. This decision that stands before you is not coerced. It is not forced.
 

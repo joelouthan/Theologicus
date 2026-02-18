@@ -8,7 +8,7 @@
 
 ## The Text
 
->Genesis 6:5-6 (CSB) When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, the LORD regretted that he had made man on the earth, and he was deeply grieved.
+>Genesis 6:5-6 When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, the LORD regretted that he had made man on the earth, and he was deeply grieved.
 
 ## The Chapter
 
@@ -18,9 +18,9 @@
 
 ### From this original corruption, whereby we are utterly indisposed, disabled, and made opposite to all good, and wholly inclined to all evil
 
->Romans 8:7 (CSB) The mindset of the flesh is hostile to God because it does not submit to God’s law. Indeed, it is unable to do so.
+>Romans 8:7 The mindset of the flesh is hostile to God because it does not submit to God’s law. Indeed, it is unable to do so.
 
->Colossians 1:21 (CSB) Once you were alienated and hostile in your minds as expressed in your evil actions.
+>Colossians 1:21 Once you were alienated and hostile in your minds as expressed in your evil actions.
 
 We, as humans, as the only sons of Adam, cannot hope on our best day, be able to approach the holy throne of God. We are infected, tinctured, shaped, molded, and developed in sin by sin.
 
@@ -42,12 +42,12 @@ Sin has broken so much that I am not sure if all the books in the world could ad
 
 ### do proceed all actual transgressions
 
->James 1:14–15 (CSB) But each person is tempted when he is drawn away and enticed by his own evil desire. Then after desire has conceived, it gives birth to sin, and when sin is fully grown, it gives birth to death.
+>James 1:14–15 But each person is tempted when he is drawn away and enticed by his own evil desire. Then after desire has conceived, it gives birth to sin, and when sin is fully grown, it gives birth to death.
 
->Matthew 15:19 (CSB) For from the heart come evil thoughts, murders, adulteries, sexual immoralities, thefts, false testimonies, slander.
+>Matthew 15:19 For from the heart come evil thoughts, murders, adulteries, sexual immoralities, thefts, false testimonies, slander.
 
 From this corruption, all we do is sin. Now, you might push back and say, "Unbelievers give and do good works all the time. Are you saying that they are not good?" In terms of salvation and gaining favor with God. No. Not in the least bit.
 
->Isaiah 64:6 (CSB) All of us have become like something unclean, and all our righteous acts are like a polluted garment; all of us wither like a leaf, and our iniquities carry us away like the wind.
+>Isaiah 64:6 All of us have become like something unclean, and all our righteous acts are like a polluted garment; all of us wither like a leaf, and our iniquities carry us away like the wind.
 
 All of our good and righteous acts are filthy rags before a holy God. Why is that? Because whatever good we attempt to do is born out of corruption. It is never done from a pure source of good. Remember, God alone is the pure source of goodness. He alone does good.

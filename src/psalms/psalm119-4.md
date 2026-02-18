@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 119:4 (CSB) You have commanded that your precepts be diligently kept.
+>Psalm 119:4 You have commanded that your precepts be diligently kept.
 
 ## The Prayer
 

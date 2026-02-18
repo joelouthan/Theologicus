@@ -4,7 +4,7 @@
 
 ## The Text
 
->Ruth 1:1-7 (CSB)  
+>Ruth 1:1-7  
 ><sup>1</sup> During the time of the judges, there was a famine in the land. A man left Bethlehem in Judah with his wife and two sons to stay in the territory of Moab for a while.
 >
 ><sup>2</sup> The man’s name was Elimelech (God his King), and his wife’s name was Naomi (pleasant). The names of his two sons were Mahlon (sickness) and Chilion (wasting). They were Ephrathites (Ef-err-thites) from Bethlehem in Judah. They entered the fields of Moab and settled there.
@@ -21,7 +21,7 @@
 
 ## Some Considerations
 
->Philippians 4:8 (CSB) Finally brothers and sisters, whatever is true, whatever is honorable, whatever is just, whatever is pure, whatever is lovely, whatever is commendable—if there is any moral excellence and if there is anything praiseworthy—dwell on these things.
+>Philippians 4:8 Finally brothers and sisters, whatever is true, whatever is honorable, whatever is just, whatever is pure, whatever is lovely, whatever is commendable—if there is any moral excellence and if there is anything praiseworthy—dwell on these things.
 
 1. Since studying the Christ Key, where have you seen Christ in the Scriptures in where he is not explicitly mentioned? How has that helped you understand the Scriptures?
 2. Since studying the Christ Key, where have you seen Christ in the Scriptures in where he is not explicitly mentioned? How has that helped you understand the Scriptures?
@@ -50,7 +50,7 @@ In other words, we would be in the right to interpret passage in light of anothe
 
 Seeing four things, places, people, gospels, chapters in a book and I can't help but think of:
 
->Romans 8:28-30 (CSB) We know that all things work together for the good of those who love God, who are called according to his purpose. For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. **And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified**.
+>Romans 8:28-30 We know that all things work together for the good of those who love God, who are called according to his purpose. For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. **And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified**.
 
 One, we will see theme of God working together all things in the lives of Naomi and Ruth despite their terrible loss and being a resident alien in each other's land.
 
@@ -65,7 +65,7 @@ This is not a stretch. This is the word of God which is divinely inspired--breat
 
 And there is no stretch of the imagination when Christ called the Scriptures, "the mouth of God".
 
->Matthew 4:4 (CSB) He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
+>Matthew 4:4 He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
 
 From that end, I want us to ...
 
@@ -73,7 +73,7 @@ From that end, I want us to ...
 
 Christ declared that the Scriptures were all about him:
 
->Luke 24:27 (CSB) Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
+>Luke 24:27 Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
 
 The Bible is all about Jesus Christ. As it has been said famously before, "Old Testament is Christ concealed while the New Testament is Christ revealed."
 
@@ -85,7 +85,7 @@ Example: the book of Acts. I grew up a Charismatic and still consider myself a C
 
 Description of the Acts of the Apostles?
 
->Matthew 16:18-19 (CSB) And I also say to you that you are Peter, and on this rock I will build my church, and the gates of Hades will not overpower it. I will give you the keys of the kingdom of heaven, and whatever you bind on earth will have been bound in heaven, and whatever you loose on earth will have been loosed in heaven.”
+>Matthew 16:18-19 And I also say to you that you are Peter, and on this rock I will build my church, and the gates of Hades will not overpower it. I will give you the keys of the kingdom of heaven, and whatever you bind on earth will have been bound in heaven, and whatever you loose on earth will have been loosed in heaven.”
 
 Description and prescription will play a crucial role in understanding Ruth. 
 
@@ -99,7 +99,7 @@ To quote Dr Bird:
 
 While it is true that the authors in the OT could not have seen the revealed Christ for he was not revealed as the Messiah yet, you best be sure when Moses wrote Genesis 3:15, he knew and believe the gospel of God. For Christ said:
 
->John 8:56 (CSB) Your father Abraham rejoiced to see my day; he saw it and was glad.”
+>John 8:56 Your father Abraham rejoiced to see my day; he saw it and was glad.”
 
 And same goes for the author of Ruth. "Hmm, I already see how in the revealed Messiah that God has grafted in the Gentiles into the family of God. And of course, we are not born of the natural seed of Abraham but the spiritual seed that in the revealed Messiah." Of course the authors of the Old Testament could not see it.
 
@@ -142,17 +142,17 @@ Moabites were in worship of the demon Chemosh. "Now, wait a second, the people w
 
 And because we have been born of Adam, we fight to do just that like the people of God--always turning back to their sin and God having to rescue them. But God explicitly defines all  
 
->Deuteronomy 32:16–17 (CSB) They provoked his jealousy with different gods; they enraged him with detestable practices. They sacrificed to demons, not God, to gods they had not known, new gods that had just arrived, which your ancestors did not fear.
+>Deuteronomy 32:16–17 They provoked his jealousy with different gods; they enraged him with detestable practices. They sacrificed to demons, not God, to gods they had not known, new gods that had just arrived, which your ancestors did not fear.
 
->Leviticus 17:7 (CSB) They must no longer offer their sacrifices to the goat-demons that they have prostituted themselves with. This will be a permanent statute for them throughout their generations.
+>Leviticus 17:7 They must no longer offer their sacrifices to the goat-demons that they have prostituted themselves with. This will be a permanent statute for them throughout their generations.
 
->1 Timothy 4:1 (CSB) Now the Spirit explicitly says that in later times some will depart from the faith, paying attention to deceitful spirits and the teachings of demons,
+>1 Timothy 4:1 Now the Spirit explicitly says that in later times some will depart from the faith, paying attention to deceitful spirits and the teachings of demons,
 
->1 Corinthians 10:20 (CSB) No, but I do say that what they sacrifice, they sacrifice to demons and not to God. I do not want you to be participants with demons!
+>1 Corinthians 10:20 No, but I do say that what they sacrifice, they sacrifice to demons and not to God. I do not want you to be participants with demons!
 
 How did the Moabites worship?
 
->2 Kings 3:26-27 (CSB) When the king of Moab saw that the battle was too fierce for him, he took seven hundred swordsmen with him to try to break through to the king of Edom, but they could not do it. So he took his firstborn son, who was to become king in his place, and offered him as a burnt offering on the city wall. Great wrath was on the Israelites, and they withdrew from him and returned to their land.
+>2 Kings 3:26-27 When the king of Moab saw that the battle was too fierce for him, he took seven hundred swordsmen with him to try to break through to the king of Edom, but they could not do it. So he took his firstborn son, who was to become king in his place, and offered him as a burnt offering on the city wall. Great wrath was on the Israelites, and they withdrew from him and returned to their land.
 
 In order to provoke and appease their demon-god, their worship was to sit under the preaching of their religion scriptures nor obey their god and do good works unto others or repent for their sins. No. When things are not going their way and they need a change in their immediate circumstances, they have to give something precious to a demon who has no power compared to the Lord our God.
 
@@ -166,13 +166,13 @@ In God's provision and predestination and leading and directing saves the people
 
 > **1689.3.1 Sovereignty of God**: God hath decreed in himself, from all eternity, by the most wise and holy counsel of his own will, freely and unchangeably, all things, whatsoever comes to pass; yet so as thereby is God neither the author of sin nor hath fellowship with any therein;
 
->Isaiah 46:10 (CSB) I declare the end from the beginning, and from long ago what is not yet done, saying: my plan will take place, and I will do all my will.
+>Isaiah 46:10 I declare the end from the beginning, and from long ago what is not yet done, saying: my plan will take place, and I will do all my will.
 
->Ephesians 1:11 (CSB) In him we have also received an inheritance, because we were predestined according to the plan of the one who works out everything in agreement with the purpose of his will,
+>Ephesians 1:11 In him we have also received an inheritance, because we were predestined according to the plan of the one who works out everything in agreement with the purpose of his will,
 
->James 1:13 (CSB) No one undergoing a trial should say, “I am being tempted by God,” since God is not tempted by evil, and he himself doesn’t tempt anyone.
+>James 1:13 No one undergoing a trial should say, “I am being tempted by God,” since God is not tempted by evil, and he himself doesn’t tempt anyone.
 
->1 John 1:5 (CSB) This is the message we have heard from him and declare to you: God is light, and there is absolutely no darkness in him.
+>1 John 1:5 This is the message we have heard from him and declare to you: God is light, and there is absolutely no darkness in him.
 
 >Where have you seen evil done against you that God has turned into good? Can you believe that God allowed that to happen?
 

@@ -4,7 +4,7 @@
 
 ## The Text
 
->Genesis 19:1–29 (CSB)  
+>Genesis 19:1–29  
 ><sup>1</sup> The two angels entered Sodom in the evening as Lot was sitting in Sodom’s gateway. When Lot saw them, he got up to meet them. He bowed with his face to the ground 
 >
 ><sup>2</sup> and said, “My lords, turn aside to your servant’s house, wash your feet, and spend the night. Then you can get up early and go on your way.” “No,” they said. “We would rather spend the night in the square.” 

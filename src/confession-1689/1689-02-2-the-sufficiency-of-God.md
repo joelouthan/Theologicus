@@ -8,7 +8,7 @@
 
 ## The Text
 
->Romans 11:33–36 (CSB)  
+>Romans 11:33–36  
 ><sup>33</sup> Oh, the depth of the riches and the wisdom and the knowledge of God! How unsearchable his judgments and untraceable his ways!
 >
 ><sup>34</sup> For who has known the mind of the Lord? Or who has been his counselor?
@@ -87,27 +87,27 @@ We have no other source for life, glory, goodness, and blessedness but God alone
 
 We are never to be the source of anything good because we are not.
 
->Romans 3:10–12 (CSB) as it is written: There is no one righteous, not even one. There is no one who understands; there is no one who seeks God. All have turned away; all alike have become worthless. There is no one who does what is good, not even one.
+>Romans 3:10–12 as it is written: There is no one righteous, not even one. There is no one who understands; there is no one who seeks God. All have turned away; all alike have become worthless. There is no one who does what is good, not even one.
 
 When we need to be good, we must run to the source of all good.
 
 Paul states it bluntly:
 
->Romans 9:14-18 (CSB) What should we say then? Is there injustice with God? Absolutely not! For he tells Moses, I will show mercy to whom I will show mercy, and I will have compassion on whom I will have compassion. So then, it does not depend on human will or effort but on God who shows mercy. For the Scripture tells Pharaoh, I raised you up for this reason so that I may display my power in you and that my name may be proclaimed in the whole earth. So then, he has mercy on whom he wants to have mercy and he hardens whom he wants to harden.
+>Romans 9:14-18 What should we say then? Is there injustice with God? Absolutely not! For he tells Moses, I will show mercy to whom I will show mercy, and I will have compassion on whom I will have compassion. So then, it does not depend on human will or effort but on God who shows mercy. For the Scripture tells Pharaoh, I raised you up for this reason so that I may display my power in you and that my name may be proclaimed in the whole earth. So then, he has mercy on whom he wants to have mercy and he hardens whom he wants to harden.
 
 God alone gives us mercy.
 
 So if God didn't need us, why did he create us?
 
->1 John 4:7-10 (CSB) Dear friends, let us love one another, because love is from God, and everyone who loves has been born of God and knows God. The one who does not love does not know God, because God is love. God’s love was revealed among us in this way: God sent his one and only Son into the world so that we might live through him. Love consists in this: not that we loved God, but that he loved us and sent his Son to be the atoning sacrifice for our sins.
+>1 John 4:7-10 Dear friends, let us love one another, because love is from God, and everyone who loves has been born of God and knows God. The one who does not love does not know God, because God is love. God’s love was revealed among us in this way: God sent his one and only Son into the world so that we might live through him. Love consists in this: not that we loved God, but that he loved us and sent his Son to be the atoning sacrifice for our sins.
 
->Ephesians 2:1-5 (CSB) nd you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. But God, who is rich in mercy, because of his great love that he had for us, made us alive with Christ even though we were dead in trespasses. You are saved by grace!
+>Ephesians 2:1-5 nd you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. But God, who is rich in mercy, because of his great love that he had for us, made us alive with Christ even though we were dead in trespasses. You are saved by grace!
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
 Because God is love. And he was mindful of us before Genesis 1:1. For:
 
->Ephesians 1:3-6 (CSB) Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
+>Ephesians 1:3-6 Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
 
 He made up his mind that he was going to create us, save us, and keep us forever.
 
@@ -123,7 +123,7 @@ ChatGPT defines Open Theism as:
 
 Mr. Boyd introduces the concept of Open Theism by reciting the story of King Hezekiah. The Lord appeared to King Hezekiah and simply stated:
 
->2 Kings 20:1 (CSB) In those days Hezekiah became terminally ill. The prophet Isaiah son of Amoz came and said to him, “This is what the LORD says: ‘Set your house in order, for you are about to die; you will not recover.’ ”
+>2 Kings 20:1 In those days Hezekiah became terminally ill. The prophet Isaiah son of Amoz came and said to him, “This is what the LORD says: ‘Set your house in order, for you are about to die; you will not recover.’ ”
 
 Hezekiah, in response, prays and weep bitterly for the Lord to extend his life.
 
@@ -135,23 +135,23 @@ What cannot be missed when you keep reading 2 Kings is simply how sinful and foo
 
 The Lord our God, through the prophet Isaiah, responds in kind:
 
->2 Kings 20:16-18 (CSB) Then Isaiah said to Hezekiah, “Hear the word of the LORD: ‘Look, the days are coming when everything in your palace and all that your predecessors have stored up until today will be carried off to Babylon; nothing will be left,’ says the LORD. ‘Some of your descendants — who come from you, whom you father — will be taken away, and they will become eunuchs in the palace of the king of Babylon.’ ”
+>2 Kings 20:16-18 Then Isaiah said to Hezekiah, “Hear the word of the LORD: ‘Look, the days are coming when everything in your palace and all that your predecessors have stored up until today will be carried off to Babylon; nothing will be left,’ says the LORD. ‘Some of your descendants — who come from you, whom you father — will be taken away, and they will become eunuchs in the palace of the king of Babylon.’ ”
 
 What is shocking and disturbing is Hezekiah's response to God's cursing and declaration of the consequences of his sin:
 
->2 Kings 20:19 (CSB) Then Hezekiah said to Isaiah, “The word of the LORD that you have spoken is good,” for he thought, “Why not, if there will be peace and security during my lifetime? ” [^matt5-9]
+>2 Kings 20:19 Then Hezekiah said to Isaiah, “The word of the LORD that you have spoken is good,” for he thought, “Why not, if there will be peace and security during my lifetime? ” [^matt5-9]
 
 So why rehash King Hezekiah's folly? This historical account from 2nd Kings is not a prooftext for the heresy of open theism. This does not prove that God changes his mind and that God does change and he can change. But we have learn thus far in the 1689 that God is the fullness of goodness, blessedness, mercy, glory and life. He extended the life of Hezekiah knowing full well that Hezekiah will sin more.
 
 We know this because Paul wraps up the sins of all the Old Testament saints in this one passage:
 
->Romans 3:21–26 (CSB) But now, apart from the law, the righteousness of God has been revealed, attested by the Law and the Prophets. The righteousness of God is through faith in Jesus Christ to all who believe, since there is no distinction. **For all have sinned and fall short of the glory of God; they are justified freely by his grace through the redemption that is in Christ Jesus. God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.**
+>Romans 3:21–26 But now, apart from the law, the righteousness of God has been revealed, attested by the Law and the Prophets. The righteousness of God is through faith in Jesus Christ to all who believe, since there is no distinction. **For all have sinned and fall short of the glory of God; they are justified freely by his grace through the redemption that is in Christ Jesus. God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.**
 
 Interested enough, this passage is not mentioned at all in Greg Boyd's book.
 
 The truth is that God sees our hearts. All of our hearts. When God saw the hearts of his people were desperately sick and will flee far from him (Jeremiah 17:9), before the foundations of the world were formed, he set his affections on us and made a covenant with his Son that he would save us.
 
->Ephesians 1:3–10 (CSB) Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One. In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace that he richly poured out on us with all wisdom and understanding. He made known to us the mystery of his will, according to his good pleasure that he purposed in Christ as a plan for the right time—to bring everything together in Christ, both things in heaven and things on earth in him.
+>Ephesians 1:3–10 Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One. In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace that he richly poured out on us with all wisdom and understanding. He made known to us the mystery of his will, according to his good pleasure that he purposed in Christ as a plan for the right time—to bring everything together in Christ, both things in heaven and things on earth in him.
 
 God is not like us who are sometimes whimsical--whose mind can be changed at a whim. God is not capricious--someone who changes their mind just because they can.
 
@@ -167,7 +167,7 @@ Praise be to our God!
 
 I could entertain this notion except the word of God says otherwise:
 
->Romans 8:29 (CSB) For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
+>Romans 8:29 For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
 
 God never foresaw us. The word says God foreknew us. God foreknew our deceit and sinfulness and treasonous acts. God knew us and in his mercy, saved us. 
 
@@ -181,7 +181,7 @@ God is clearly not like us in so many ways. Because by the grace of God for all 
 
 ### he is most holy in all his counsels, in all his works, and in all his commands
 
->Leviticus 11:45(CSB) For I am the LORD, who brought you up from the land of Egypt to be your God, so you must be holy because I am holy.
+>Leviticus 11:45For I am the LORD, who brought you up from the land of Egypt to be your God, so you must be holy because I am holy.
 
 In this, what rails against the minds, hearts, and wills of mankind is that we are utterly dependent on Someone else for everything.
 
@@ -189,35 +189,35 @@ In my Philosophy 101 course, the last page of Chapter 1 states something like th
 
 Which is in the opposition of God and his creation. To that philosophical statement, the Westminster says that our actual ultimate goal is to "glorify God and enjoy him forever." For:
 
->Psalm 86:9 (CSB) All the nations you have made will come and bow down before you, Lord, and will honor your name.
+>Psalm 86:9 All the nations you have made will come and bow down before you, Lord, and will honor your name.
 
->Isaiah 60:21 (CSB) All your people will be righteous; they will possess the land forever; they are the branch I planted, the work of my hands, so that I may be glorified.
+>Isaiah 60:21 All your people will be righteous; they will possess the land forever; they are the branch I planted, the work of my hands, so that I may be glorified.
 
->Romans 11:36 (CSB) For from him and through him and to him are all things. To him be the glory forever. Amen.
+>Romans 11:36 For from him and through him and to him are all things. To him be the glory forever. Amen.
 
->1 Corinthians 6:20 (CSB) for you were bought at a price. So glorify God with your body.
+>1 Corinthians 6:20 for you were bought at a price. So glorify God with your body.
 
->1 Corinthians 10:31 (CSB) So, whether you eat or drink, or whatever you do, do everything for the glory of God.
+>1 Corinthians 10:31 So, whether you eat or drink, or whatever you do, do everything for the glory of God.
 
->Revelation 4:11 (CSB) Our Lord and God, you are worthy to receive glory and honor and power, because you have created all things, and by your will they exist and were created.
+>Revelation 4:11 Our Lord and God, you are worthy to receive glory and honor and power, because you have created all things, and by your will they exist and were created.
 
 And
 
->Psalm 16:5–11 (CSB) LORD, you are my portion and my cup of blessing; you hold my future. The boundary lines have fallen for me in pleasant places; indeed, I have a beautiful inheritance. I will bless the LORD who counsels me— even at night when my thoughts trouble me. I always let the LORD guide me. Because he is at my right hand, I will not be shaken. Therefore my heart is glad and my whole being rejoices; my body also rests securely. For you will not abandon me to Sheol; you will not allow your faithful one to see decay. You reveal the path of life to me; in your presence is abundant joy; at your right hand are eternal pleasures.
+>Psalm 16:5–11 LORD, you are my portion and my cup of blessing; you hold my future. The boundary lines have fallen for me in pleasant places; indeed, I have a beautiful inheritance. I will bless the LORD who counsels me— even at night when my thoughts trouble me. I always let the LORD guide me. Because he is at my right hand, I will not be shaken. Therefore my heart is glad and my whole being rejoices; my body also rests securely. For you will not abandon me to Sheol; you will not allow your faithful one to see decay. You reveal the path of life to me; in your presence is abundant joy; at your right hand are eternal pleasures.
 
->Psalm 144:15 (CSB) Happy are the people with such blessings. Happy are the people whose God is the LORD.
+>Psalm 144:15 Happy are the people with such blessings. Happy are the people whose God is the LORD.
 
->Isaiah 12:2 (CSB) Indeed, God is my salvation; I will trust him and not be afraid, for the LORD, the LORD himself, is my strength and my song. He has become my salvation.”
+>Isaiah 12:2 Indeed, God is my salvation; I will trust him and not be afraid, for the LORD, the LORD himself, is my strength and my song. He has become my salvation.”
 
->Luke 2:10 (CSB) But the angel said to them, “Don’t be afraid, for look, I proclaim to you good news of great joy that will be for all the people:
+>Luke 2:10 But the angel said to them, “Don’t be afraid, for look, I proclaim to you good news of great joy that will be for all the people:
 
->Philippians 4:4 (CSB) Rejoice in the Lord always. I will say it again: Rejoice!
+>Philippians 4:4 Rejoice in the Lord always. I will say it again: Rejoice!
 
->Revelation 21:3–4 (CSB) Then I heard a loud voice from the throne: Look, God’s dwelling is with humanity, and he will live with them. They will be his peoples, and God himself will be with them and will be their God. He will wipe away every tear from their eyes. Death will be no more; grief, crying, and pain will be no more, because the previous things have passed away.
+>Revelation 21:3–4 Then I heard a loud voice from the throne: Look, God’s dwelling is with humanity, and he will live with them. They will be his peoples, and God himself will be with them and will be their God. He will wipe away every tear from their eyes. Death will be no more; grief, crying, and pain will be no more, because the previous things have passed away.
 
 Our dependance on God is not more succinctly explained then in Romans 9:
 
->Romans 9:18–21 (CSB) So then, he has mercy on whom he wants to have mercy and he hardens whom he wants to harden. You will say to me, therefore, **“Why then does he still find fault? For who resists his will?” On the contrary, who are you, a human being, to talk back to God? Will what is formed say to the one who formed it, “Why did you make me like this?” Or has the potter no right over the clay, to make from the same lump one piece of pottery for honor and another for dishonor?**
+>Romans 9:18–21 So then, he has mercy on whom he wants to have mercy and he hardens whom he wants to harden. You will say to me, therefore, **“Why then does he still find fault? For who resists his will?” On the contrary, who are you, a human being, to talk back to God? Will what is formed say to the one who formed it, “Why did you make me like this?” Or has the potter no right over the clay, to make from the same lump one piece of pottery for honor and another for dishonor?**
 
 Our God is personal. He is kind and loving. He is gentle and altogether lovely. And the Creator has sovereign rights over his creation.
 
@@ -225,17 +225,17 @@ And when we are in sin, we think that we wish that God was the divine watchmaker
 
 But for the people of God, that can never be. Continue on in Romans 9:
 
->Romans 9:22–24 (CSB) And what if God, wanting to display his wrath and to make his power known, endured with much patience objects of wrath prepared for destruction? And what if he did this to make known the riches of his glory on objects of mercy that he prepared beforehand for glory—on us, the ones he also called, not only from the Jews but also from the Gentiles?
+>Romans 9:22–24 And what if God, wanting to display his wrath and to make his power known, endured with much patience objects of wrath prepared for destruction? And what if he did this to make known the riches of his glory on objects of mercy that he prepared beforehand for glory—on us, the ones he also called, not only from the Jews but also from the Gentiles?
 
 Christ alone is the Holy One of God. For his life, he has ransomed us and we were purchased with a price. For all of creation, we owe our life, existence, and breath to him. And we have failed to worship him, to obey him, to serve him, and to love him. Not only that we have failed to love others as he has loved us.
 
 But here is the good news:
 
->Romans 9:25–26 (CSB) As it also says in Hosea, **I will call Not my People, My People, and she who is Unloved, Beloved. And it will be in the place where they were told, you are not my people, there they will be called sons of the living God.**
+>Romans 9:25–26 As it also says in Hosea, **I will call Not my People, My People, and she who is Unloved, Beloved. And it will be in the place where they were told, you are not my people, there they will be called sons of the living God.**
 
 ### to him is due from angels and men, whatsoever worship, service, or obedience, as creatures they owe unto the Creator, and whatever he is further pleased to require of them
 
->Psalm 97:9 (CSB) For you, LORD,
+>Psalm 97:9 For you, LORD,
 >are the Most High over the whole earth;
 >you are exalted above all the gods.
 
@@ -243,23 +243,23 @@ In all of the accounts of the kings of Israel and Judah, there is not a better, 
 
 If you read just the 2 Kings account, you will read of wicked and depraved king and the author of 2 Kings describes his reign as:
 
->2 Kings 21:16 (CSB) Manasseh also shed so much innocent blood that he filled Jerusalem with it from one end to another. This was in addition to his sin that he caused Judah to commit, so that they did what was evil in the LORD’s sight.
+>2 Kings 21:16 Manasseh also shed so much innocent blood that he filled Jerusalem with it from one end to another. This was in addition to his sin that he caused Judah to commit, so that they did what was evil in the LORD’s sight.
 
 But continue reading, and when you get to 2 Chronicles, you have a few more gory details:
 
->2 Chronicles 33:6 (CSB) He passed his sons through the fire in Ben Hinnom Valley. He practiced witchcraft, divination, and sorcery, and consulted mediums and spiritists. He did a huge amount of evil in the LORD’s sight, angering him.
+>2 Chronicles 33:6 He passed his sons through the fire in Ben Hinnom Valley. He practiced witchcraft, divination, and sorcery, and consulted mediums and spiritists. He did a huge amount of evil in the LORD’s sight, angering him.
 
 This king was so wicked, that he sacrificed not one but two of his sons to a demon.
 
 Yet, what does God declare? "Is my saving arm too short?" Is there no one that God cannot save?
 
->2 Chronicles 33:10-11 (CSB) The LORD spoke to Manasseh and his people, but they didn’t listen. So he brought against them the military commanders of the king of Assyria. They captured Manasseh with hooks, bound him with bronze shackles, and took him to Babylon.
+>2 Chronicles 33:10-11 The LORD spoke to Manasseh and his people, but they didn’t listen. So he brought against them the military commanders of the king of Assyria. They captured Manasseh with hooks, bound him with bronze shackles, and took him to Babylon.
 
 This might seem extreme. Why would God go to such lengths to break someone? Because this passage, right here, is the precise and most accurately description of the unbeliever. Without God, we are prisoners of war. We are imprisoned by our wickedness, Satan, demons, and the world.
 
 God could have easily raised up King Manasseh as a vessel of wrath like he did with Pharaoh during the days of Moses. He could have left Manasseh to rot in prison, die, and be under the vengeful wrath and fury of Christ for all time. And there is not a person on this earth who would think that was wrong. Manasseh was wicked. Evil. Grotesque. Abomination in the sight of God and man.
 
->Titus 3:3 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
+>Titus 3:3 For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
 
 And I am just as wicked as Manasseh. In my first marriage, my first wife went to get an abortion because she could not stand the thought of having another child with me. To confirm her disgust of my presence, what do I do in response? Exactly like my original father, Adam, I stood by and did nothing. Continued in my porn addiction, slothfulness and laziness and apathy.
 
@@ -269,7 +269,7 @@ But what happens when God appears?
 
 God granted Manasseh his heart and his Spirit:
 
->Ezekiel 36:25–28 (CSB) I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances. You will live in the land that I gave your ancestors; you will be my people, and I will be your God.
+>Ezekiel 36:25–28 I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances. You will live in the land that I gave your ancestors; you will be my people, and I will be your God.
 
 And then and only then, could Manasseh repent and obey the Lord our God.
 
@@ -277,7 +277,7 @@ I always assumed for most of my life that I was saved simply because I said a pr
 
 But on a rainy Monday in April of 2007, this is exactly what happened:
 
->Titus 3:4–7 (CSB) But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior so that, having been justified by his grace, we may become heirs with the hope of eternal life.
+>Titus 3:4–7 But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior so that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
 Nothing I have done or was or ever could be should have warranted God to even look my way. But not only see me, but to take pity on me, reached out to my rotting corpse of life, and grant me life? That is a grace that I cannot fathom. Make it make sense to me! The Almighty God, who created the heavens, earth, and hell, who is without equal. Who alone has honor and praise and power and might. Who along is holy, blameless, sinless, perfection, righteous, and just. Whose steadfast love never ceases and his mercies never come to and end. Who is abounding in grace...
 

@@ -6,7 +6,7 @@
 
 For no other reason other than God in his sovereign grace elects one man out of everybody else and gives this one man a promise:
 
->Genesis 12:1–3 (CSB)  The LORD said to Abram: Go from your land, your relatives, and your father’s house to the land that I will show you. I will make you into a great nation, I will bless you, I will make your name great, and you will be a blessing. I will bless those who bless you, I will curse anyone who treats you with contempt, and all the peoples on earth will be blessed through you.
+>Genesis 12:1–3  The LORD said to Abram: Go from your land, your relatives, and your father’s house to the land that I will show you. I will make you into a great nation, I will bless you, I will make your name great, and you will be a blessing. I will bless those who bless you, I will curse anyone who treats you with contempt, and all the peoples on earth will be blessed through you.
 
 We know Abram believed because the rest of the Bible will state over and over that "Abraham believed and it was counted to him as righteousness of God."  For all we know, Abram did not trust nor obey nor worship the Living God. Nonetheless, like we have seen it starting with Adam and with Noah, God is gracious and kind and preaches the gospel to us and we believe. We didn't even earn the right to have the gospel preached nor even believed the gospel. We were once dead in our trespasses and sin. Abram is a son of Adam--he was wicked and depraved. Yet, God saved him.
 
@@ -20,7 +20,7 @@ Now that we have leveled it all out. Here is the mundane everyday life in the go
 
 ## The Text
 
->Genesis 13 (CSB)  
+>Genesis 13  
 ><sup> 1 </sup> Abram went up from Egypt to the Negev—he, his wife, and all he had, and Lot with him. 
 >
 ><sup> 2 </sup> Abram was very rich in livestock, silver, and gold. 
@@ -73,7 +73,7 @@ There are a few things God does for every human that has or will ever live:
 
 ### This Life: God provides every material needs and wants
 
->Matthew 5:43-46 (CSB) “You have heard that it was said, Love your neighbor and hate your enemy. But I tell you, love your enemies and pray for those who persecute you, so that you may be children of your Father in heaven. For he causes his sun to rise on the evil and the good, and sends rain on the righteous and the unrighteous. For if you love those who love you, what reward will you have? Don’t even the tax collectors do the same?
+>Matthew 5:43-46 “You have heard that it was said, Love your neighbor and hate your enemy. But I tell you, love your enemies and pray for those who persecute you, so that you may be children of your Father in heaven. For he causes his sun to rise on the evil and the good, and sends rain on the righteous and the unrighteous. For if you love those who love you, what reward will you have? Don’t even the tax collectors do the same?
 
 In the midst of Christ commanding everyone to love one another--including your enemies--he says a peculiar thing:
 
@@ -97,7 +97,7 @@ Again, we cannot earn our intelligence--that's from God. Our wisdom certainly co
 
 Knowledge, science, and technology is no different:
 
->1 Corinthians 3:18-23 (CSB) Let no one deceive himself. If anyone among you thinks he is wise in this age, let him become a fool so that he can become wise. For the wisdom of this world is foolishness with God, since it is written, He catches the wise in their craftiness; and again, The Lord knows that the reasonings of the wise are futile. So let no one boast in human leaders, for **everything is yours** — whether Paul or Apollos or Cephas or the world or life or death or things present or things to come — **everything is yours**, and you belong to Christ, and Christ belongs to God.
+>1 Corinthians 3:18-23 Let no one deceive himself. If anyone among you thinks he is wise in this age, let him become a fool so that he can become wise. For the wisdom of this world is foolishness with God, since it is written, He catches the wise in their craftiness; and again, The Lord knows that the reasonings of the wise are futile. So let no one boast in human leaders, for **everything is yours** — whether Paul or Apollos or Cephas or the world or life or death or things present or things to come — **everything is yours**, and you belong to Christ, and Christ belongs to God.
 
 All things come from God and everything is now ours. But with God's common grace, he does provide for all.
 
@@ -135,7 +135,7 @@ Here is the gospel life.
 
 There is a choice before you.
 
->Joshua 24:15 (CSB)  But if it doesn’t please you to worship the LORD, choose for yourselves today: Which will you worship—the gods your ancestors worshiped beyond the Euphrates River or the gods of the Amorites in whose land you are living? As for me and my family, we will worship the LORD.”
+>Joshua 24:15  But if it doesn’t please you to worship the LORD, choose for yourselves today: Which will you worship—the gods your ancestors worshiped beyond the Euphrates River or the gods of the Amorites in whose land you are living? As for me and my family, we will worship the LORD.”
 
 Granted that this choice is before every son and daughter. Do you choose to go with the world or do you choose God? And it is a choice. But here is the grace and the power of God: in your old estate, you did not have enough life, provision, health, intelligence, knowledge, science, technology nor wisdom to choose God. You and I were not born with that ability because we were all born into sin. And you can all the riches, power, all degrees, discoveries, everything and yet our lives are dew on grass that evaporates in an instance as soon as the sun's rays fall on us.
 
@@ -143,7 +143,7 @@ God provides every thing to everyone--but those just material.
 
 For the spiritual? The absolute reality? That comes from God to those whom He has mercy upon.
 
->John 3:16 (CSB)  For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16  For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
 Who gets eternal life? Those who believe. How can we believe? God must give his heart and his spirit in order for us to live and believe.
 

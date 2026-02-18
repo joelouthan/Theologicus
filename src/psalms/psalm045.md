@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 45 (CSB)  
+>Psalm 45  
 ><sup></sup> For the choir director: according to “The Lilies.” A Maskil of the sons of Korah. A love song. 
 >
 ><sup>1</sup> My heart is moved by a noble theme as I recite my verses to the king; my tongue is the pen of a skillful writer. 

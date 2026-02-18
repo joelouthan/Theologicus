@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 63 (CSB)  
+>Psalm 63  
 ><sup></sup> A psalm of David. When he was in the Wilderness of Judah. 
 >
 ><sup>1</sup> God, you are my God; I eagerly seek you. I thirst for you; my body faints for you in a land that is dry, desolate, and without water. 

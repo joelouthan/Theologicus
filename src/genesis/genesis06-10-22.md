@@ -24,7 +24,7 @@ When you read through Genesis 4-6, I want you to see something. In the midst of 
 
 So many people say we cannot judge someone else's salvation even though Jesus clearly said:
 
->Luke 6:43-45 (CSB) “A good tree doesn’t produce bad fruit; on the other hand, a bad tree doesn’t produce good fruit. For each tree is known by its own fruit. Figs aren’t gathered from thornbushes, or grapes picked from a bramble bush. A good person produces good out of the good stored up in his heart. An evil person produces evil out of the evil stored up in his heart, for his mouth speaks from the overflow of the heart.
+>Luke 6:43-45 “A good tree doesn’t produce bad fruit; on the other hand, a bad tree doesn’t produce good fruit. For each tree is known by its own fruit. Figs aren’t gathered from thornbushes, or grapes picked from a bramble bush. A good person produces good out of the good stored up in his heart. An evil person produces evil out of the evil stored up in his heart, for his mouth speaks from the overflow of the heart.
 
 You want to know how you can tell the difference between a believer and unbeliever? Between the Christian and the sinner?
 
@@ -36,7 +36,7 @@ And not even the salvation of Noah was a big enough warning to everybody else ar
 
 ## The Text
 
-> Genesis 6:10–22 (CSB)  
+> Genesis 6:10–22  
 > 
 ><sup> 10 </sup> And Noah fathered three sons: Shem, Ham, and Japheth. 
 >
@@ -66,7 +66,7 @@ And not even the salvation of Noah was a big enough warning to everybody else ar
 
 ## The Support
 
->1 Peter 1:13-16 (CSB) Therefore, with your minds ready for action, be sober-minded and set your hope completely on the grace to be brought to you at the revelation of Jesus Christ. As obedient children, do not be conformed to the desires of your former ignorance. But as the one who called you is holy, you also are to be holy in all your conduct; for it is written, Be holy, because I am holy.
+>1 Peter 1:13-16 Therefore, with your minds ready for action, be sober-minded and set your hope completely on the grace to be brought to you at the revelation of Jesus Christ. As obedient children, do not be conformed to the desires of your former ignorance. But as the one who called you is holy, you also are to be holy in all your conduct; for it is written, Be holy, because I am holy.
 
 ## God
 
@@ -110,7 +110,7 @@ And this is unbelievers cannot see on their own: they still think that they are 
 
 And this what believers can see, although not perfectly--with bleared eyes, that anything good that they have ever done was because God is good and he has created us for good works that were prepared ahead of time by him.
 
->Ephesians 2:8-10 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift— not from works, so that no one can boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
+>Ephesians 2:8-10 For you are saved by grace through faith, and this is not from yourselves; it is God’s gift— not from works, so that no one can boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
 
 ### Holiness of God is revealing
 
@@ -122,7 +122,7 @@ God only shares his plans with those whom he calls friends--those who have place
 
 People without God revealing Scripture and what is contained in them will never understand them on their own. I don't care what your IQ is or how many skins you got hanging on your wall. It doesn't matter.
 
->1 Corinthians 2:12 (CSB) Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God.
+>1 Corinthians 2:12 Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God.
 
 Name off the things freely given to us by God: Himself, Jesus, Spirit, grace, love, kindness, mercy, salvation--what about his word? What about the Bible? He gave us his word--but we cannot understand it unless the Spirit of God dwells in us, reveals the word to us, and if the Father wills us to maturity.
 
@@ -136,7 +136,7 @@ Name off the things freely given to us by God: Himself, Jesus, Spirit, grace, lo
 
 This is not the last time we are going to receive a set of holy blueprints and instructions from God to us to show us what we must do in order to behold the Living God and his goodness. What so many people fail to understand is that they treat the Bible like these instructions to build an ark thinking that they will have joy, happiness, safety, even eternal life just by doing what the Scriptures say.
 
->John 5:39-40 (CSB) You pore over the Scriptures because you think you have eternal life in them, and yet they testify about me. But you are not willing to come to me so that you may have life.
+>John 5:39-40 You pore over the Scriptures because you think you have eternal life in them, and yet they testify about me. But you are not willing to come to me so that you may have life.
 
 The Scriptures reveal the plan of God: that is Jesus Christ. Call upon his holy name and what? You will be saved.
 
@@ -146,13 +146,13 @@ The Scriptures reveal the plan of God: that is Jesus Christ. Call upon his holy 
 
 As completely, utterly, perfectly devastatingly the Flood was upon the earth, this was nothing compared to the wrath that is coming for mankind in the end. And that wrath is two-fold:
 
->Revelation 6:15-17 (CSB) Then the kings of the earth, the nobles, the generals, the rich, the powerful, and every slave and free person hid in the caves and among the rocks of the mountains. And they said to the mountains and to the rocks, “Fall on us and hide us from the face of the one seated on the throne and from the wrath of the Lamb, because the great day of their wrath has come! And who is able to stand?”
+>Revelation 6:15-17 Then the kings of the earth, the nobles, the generals, the rich, the powerful, and every slave and free person hid in the caves and among the rocks of the mountains. And they said to the mountains and to the rocks, “Fall on us and hide us from the face of the one seated on the throne and from the wrath of the Lamb, because the great day of their wrath has come! And who is able to stand?”
 
 And if had just read Luke's Gospel, this sounds super familiar. Because after being beaten and mangled to within an inch of his life and not having enough life to carry his own instrument of torture and death, Jesus takes just enough spirit strength and prophesies this future.
 
 And here is the second part of that wrath--one that lasts forever:
 
->Matthew 24:45-51 (CSB) “Who then is a faithful and wise servant, whom his master has put in charge of his household, to give them food at the proper time? Blessed is that servant whom the master finds doing his job when he comes. Truly I tell you, he will put him in charge of all his possessions. But if that wicked servant says in his heart, ‘My master is delayed,’ and starts to beat his fellow servants, and eats and drinks with drunkards, that servant’s master will come on a day he does not expect him and at an hour he does not know. He will cut him to pieces and assign him a place with the hypocrites, where there will be weeping and gnashing of teeth.
+>Matthew 24:45-51 “Who then is a faithful and wise servant, whom his master has put in charge of his household, to give them food at the proper time? Blessed is that servant whom the master finds doing his job when he comes. Truly I tell you, he will put him in charge of all his possessions. But if that wicked servant says in his heart, ‘My master is delayed,’ and starts to beat his fellow servants, and eats and drinks with drunkards, that servant’s master will come on a day he does not expect him and at an hour he does not know. He will cut him to pieces and assign him a place with the hypocrites, where there will be weeping and gnashing of teeth.
 
 Don't let anybody try to tell you that Christ never talked about hell. Christ talked about hell and eternal damnation plenty of times. If you read the Gospels and you can't see it yourself, you might want to question your own salvation.
 
@@ -174,7 +174,7 @@ No. You are being presumptuous about the fact God is kind to you--that God is sl
 
 What is the kindness of God that comes from not his love but all rooted in his holiness?
 
->Romans 2:2-8 (CSB) Now we know that God’s judgment on those who do such things is based on the truth. Do you think—anyone of you who judges those who do such things yet do the same—that you will escape God’s judgment? Or do you despise the riches of his kindness, restraint, and patience, not recognizing that God’s kindness is intended to lead you to repentance? Because of your hardened and unrepentant heart you are storing up wrath for yourself in the day of wrath, when God’s righteous judgment is revealed. He will repay each one according to his works: eternal life to those who by persistence in doing good seek glory, honor, and immortality; but wrath and anger to those who are self-seeking and disobey the truth while obeying unrighteousness.
+>Romans 2:2-8 Now we know that God’s judgment on those who do such things is based on the truth. Do you think—anyone of you who judges those who do such things yet do the same—that you will escape God’s judgment? Or do you despise the riches of his kindness, restraint, and patience, not recognizing that God’s kindness is intended to lead you to repentance? Because of your hardened and unrepentant heart you are storing up wrath for yourself in the day of wrath, when God’s righteous judgment is revealed. He will repay each one according to his works: eternal life to those who by persistence in doing good seek glory, honor, and immortality; but wrath and anger to those who are self-seeking and disobey the truth while obeying unrighteousness.
 
 ### Holiness of God is eternal life for his people
 

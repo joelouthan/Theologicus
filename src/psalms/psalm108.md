@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 108 (CSB)  
+>Psalm 108  
 ><sup></sup> A song. A psalm of David. 
 >
 ><sup>1</sup> My heart is confident, God; I will sing; I will sing praises with the whole of my being. 

@@ -8,7 +8,7 @@
 
 ## The Text
 
->Psalm 19 (CSB)  
+>Psalm 19  
 ><sup> 1  </sup>The heavens declare the glory of God, and the expanse proclaims the work of his hands. 
 >
 ><sup> 2  </sup>Day after day they pour out speech; night after night they communicate knowledge. 
@@ -43,9 +43,9 @@
 
 ## The Confession
 
->2 Peter 1:19 (CSB) We also have the prophetic word strongly confirmed, and you will do well to pay attention to it, as to a lamp shining in a dark place, until the day dawns and the morning star rises in your hearts.
+>2 Peter 1:19 We also have the prophetic word strongly confirmed, and you will do well to pay attention to it, as to a lamp shining in a dark place, until the day dawns and the morning star rises in your hearts.
 
->John 1:4–5 (CSB) In him was life, and that life was the light of men. That light shines in the darkness, and yet the darkness did not overcome it.
+>John 1:4–5 In him was life, and that life was the light of men. That light shines in the darkness, and yet the darkness did not overcome it.
 
 In reading John Stott's *[Between Two Worlds](https://www.goodreads.com/book/show/34153596-between-two-worlds)*, I was moved by his compassion towards the theological liberal. Stott suggested that they were trying to make sense of the rational world in which they lived and what the Bible said. In other words, does an ancient text like the Bible, or for that matter, the religion of Christianity, have any place in today's modern world.
 
@@ -53,21 +53,21 @@ But this is where we see and receive the authority given by God to us for us. Go
 
 But rather, God himself has spoken. And his words were not merely touch upon the ears of man for one time. But those words were instructed by the same great God to be written down for his people in the ages to come.
 
->2 Timothy 3:16 (CSB) All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness,
+>2 Timothy 3:16 All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness,
 
 Because the Bible is the word of God, the Bible is supreme authority because it **wholly depends on God (who is truth itself)**
 
->John 1:1 (CSB) In the beginning was the Word, and the Word was with God, and the Word was God.
+>John 1:1 In the beginning was the Word, and the Word was with God, and the Word was God.
 
 This is why the Apostle John, in writing to the Greeks of his age, which would have a firm grasp on what is truth, rightly declares the Son of God, Jesus Christ, is the Logos, the Truth, the Word. And now, because of the appearance of Christ, the Truth is now revealed.
 
->John 1:18 (CSB) No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
+>John 1:18 No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
 
 We could say that the Bible is about anything. And for the most part, we would be right but in part. The word of God is about Jesus Christ, which this word did not originate with mankind but with God.
 
->1 Thessalonians 2:13 (CSB) This is why we constantly thank God, because when you received the word of God that you heard from us, you welcomed it not as a human message, but as it truly is, the word of God, which also works effectively in you who believe.
+>1 Thessalonians 2:13 This is why we constantly thank God, because when you received the word of God that you heard from us, you welcomed it not as a human message, but as it truly is, the word of God, which also works effectively in you who believe.
 
->1 John 5:9 (CSB) If we accept human testimony, God’s testimony is greater, because it is God’s testimony that he has given about his Son.
+>1 John 5:9 If we accept human testimony, God’s testimony is greater, because it is God’s testimony that he has given about his Son.
 
 Or let David sing of these truths:
 
@@ -81,7 +81,7 @@ Or let David sing of these truths:
 
 Let me speak to one thing: acknowledging the authority of Scripture is one thing. But receiving and believing it is another. In the day and age where we can look back in history all the way to Adam, where Satan continuously makes war against the word of God and will continue to send false teachers and false prophets to keep twisting the Bible for their own ill-gotten gains.
 
->Genesis 3:1 (CSB) Now the serpent was the most cunning of all the wild animals that the LORD God had made. He said to the woman, “Did God really say, ‘You can’t eat from any tree in the garden’?”
+>Genesis 3:1 Now the serpent was the most cunning of all the wild animals that the LORD God had made. He said to the woman, “Did God really say, ‘You can’t eat from any tree in the garden’?”
 
 In the Old Testament, false teachers and false prophets were to be executed on site by the people of God as decreed by God himself.
 

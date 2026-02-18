@@ -12,7 +12,7 @@ Let us examine the passage and get into it.
 
 ## The Text
 
->Genesis 10 (CSB)  
+>Genesis 10  
 ><sup> 1 </sup> These are the family records of Noah’s sons, Shem, Ham, and Japheth. They also had sons after the flood. 
 >
 ><sup> 2 </sup> Japheth’s sons: Gomer, Magog, Madai, Javan, Tubal, Meshech, and Tiras. 
@@ -87,11 +87,11 @@ This is almost a repeat of Genesis 4, 5, & 6 in the sense we are talking about g
 
 In Genesis 5, we spoke about the descendants from Adam to Noah. Right at the beginning of chapter 6, Moses writes about the rise of powerful men.
 
->Genesis 6:4 (CSB) The Nephilim were on the earth both in those days and afterward, when the sons of God came to the daughters of mankind, who bore children to them. They were the powerful men of old, the famous men.
+>Genesis 6:4 The Nephilim were on the earth both in those days and afterward, when the sons of God came to the daughters of mankind, who bore children to them. They were the powerful men of old, the famous men.
 
 What was God's response?
 
->Genesis 6:5-7 (CSB) When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, the LORD regretted that he had made man on the earth, and he was deeply grieved. Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky—for I regret that I made them.”
+>Genesis 6:5-7 When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, the LORD regretted that he had made man on the earth, and he was deeply grieved. Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky—for I regret that I made them.”
 
 You know what happens after that. God first saves his people from their sins--Noah and his family. God eliminates all evil, resets all circumstances, takes away all of Noah's problems off the face of the earth.
 
@@ -119,17 +119,17 @@ Notice something back in Genesis 9 that is the same as Genesis 3. What was Noah'
 
 Adam blamed Eve. Noah blamed and tries to curse his grandson?
 
->Genesis 9:24-25 (CSB) When Noah awoke from his drinking and learned what his youngest son had done to him, he said: Canaan is cursed. He will be the lowest of slaves to his brothers.
+>Genesis 9:24-25 When Noah awoke from his drinking and learned what his youngest son had done to him, he said: Canaan is cursed. He will be the lowest of slaves to his brothers.
 
 #### Born out of power
 
->Genesis 10:6-12 (CSB) Ham’s sons: Cush, Mizraim, Put, and Canaan. Cush’s sons: Seba, Havilah, Sabtah, Raamah, and Sabteca. And Raamah’s sons: Sheba and Dedan. Cush fathered Nimrod, who began to be powerful in the land. He was a powerful hunter in the sight of the LORD. That is why it is said, “Like Nimrod, a powerful hunter in the sight of the LORD.” His kingdom started with Babylon, Erech, Accad, and Calneh, in the land of Shinar. From that land he went to Assyria and built Nineveh, Rehoboth-ir, Calah, and Resen, between Nineveh and the great city Calah.
+>Genesis 10:6-12 Ham’s sons: Cush, Mizraim, Put, and Canaan. Cush’s sons: Seba, Havilah, Sabtah, Raamah, and Sabteca. And Raamah’s sons: Sheba and Dedan. Cush fathered Nimrod, who began to be powerful in the land. He was a powerful hunter in the sight of the LORD. That is why it is said, “Like Nimrod, a powerful hunter in the sight of the LORD.” His kingdom started with Babylon, Erech, Accad, and Calneh, in the land of Shinar. From that land he went to Assyria and built Nineveh, Rehoboth-ir, Calah, and Resen, between Nineveh and the great city Calah.
 
 In the kingdom of the world, on the strongest and most powerful get to rule. They get to be the oppressors and crush those underneath them. For what? A tiny bit of perceived power? What sense does that make?
 
 #### Sustains in depravity and immorality
 
->Genesis 10:13-19 (CSB) Mizraim fathered the people of Lud, Anam, Lehab, Naphtuh, Pathrus, Casluh (the Philistines came from them), and Caphtor. Canaan fathered Sidon his firstborn and Heth, as well as the Jebusites, the Amorites, the Girgashites, the Hivites, the Arkites, the Sinites, the Arvadites, the Zemarites, and the Hamathites. Afterward the Canaanite clans scattered. The Canaanite border went from Sidon going toward Gerar as far as Gaza, and going toward Sodom, Gomorrah, Admah, and Zeboiim as far as Lasha.
+>Genesis 10:13-19 Mizraim fathered the people of Lud, Anam, Lehab, Naphtuh, Pathrus, Casluh (the Philistines came from them), and Caphtor. Canaan fathered Sidon his firstborn and Heth, as well as the Jebusites, the Amorites, the Girgashites, the Hivites, the Arkites, the Sinites, the Arvadites, the Zemarites, and the Hamathites. Afterward the Canaanite clans scattered. The Canaanite border went from Sidon going toward Gerar as far as Gaza, and going toward Sodom, Gomorrah, Admah, and Zeboiim as far as Lasha.
 
 If you grew up in church, reading the Bible, these nations and these lands should sound familiar to you. Because we are blessed with complete word of God, this passage ends up being prophetic. But we will get to that later.
 
@@ -145,7 +145,7 @@ What will become of these powerful people who for a brief moment here on earth t
 
 #### Judged under the wrath of God
 
->Revelation 18:21-24 (CSB) Then a mighty angel picked up a stone like a large millstone and threw it into the sea, saying,  
+>Revelation 18:21-24 Then a mighty angel picked up a stone like a large millstone and threw it into the sea, saying,  
 >In this way, Babylon the great city  
 >will be thrown down violently  
 >and never be found again.  
@@ -172,13 +172,13 @@ What will become of these powerful people who for a brief moment here on earth t
 
 #### Existed before time in truth
 
->John 1:1-5 (CSB) In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created. In him was life, and that life was the light of men. That light shines in the darkness, and yet the darkness did not overcome it.
+>John 1:1-5 In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created. In him was life, and that life was the light of men. That light shines in the darkness, and yet the darkness did not overcome it.
 
 #### Born in a manger, weak, frail
 
->Luke 2:6-7 (CSB) While they were there, the time came for her to give birth. Then she gave birth to her firstborn son, and she wrapped him tightly in cloth and laid him in a manger, because there was no guest room available for them.
+>Luke 2:6-7 While they were there, the time came for her to give birth. Then she gave birth to her firstborn son, and she wrapped him tightly in cloth and laid him in a manger, because there was no guest room available for them.
 
->Philippians 2:5–8 (CSB)  
+>Philippians 2:5–8  
 ><sup> 5 </sup> Adopt the same attitude as that of Christ Jesus, 
 >
 ><sup> 6 </sup> who, existing in the form of God, did not consider equality with God as something to be exploited. 
@@ -189,7 +189,7 @@ What will become of these powerful people who for a brief moment here on earth t
 
 #### Includes the fringes, the lost, the orphan, the widow, the lost
 
->Matthew 5:1–12 (CSB)  
+>Matthew 5:1–12  
 ><sup> 1 </sup> When he saw the crowds, he went up on the mountain, and after he sat down, his disciples came to him. 
 >
 ><sup> 2 </sup> Then he began to teach them, saying: 
@@ -228,7 +228,7 @@ Read Ezekiel 12-35. The prophet Ezekiel prophesies the end of the nations around
 
 The kingdoms out of the lineage of Christ was also judged for their wickedness
 
->Jeremiah 22:25-30 (CSB) In fact, I will hand you over to those you dread, who intend to take your life, to Nebuchadnezzar king of Babylon and the Chaldeans. I will hurl you and the mother who gave birth to you into another land, where neither of you were born, and there you will both die. They will never return to the land they long to return to.”
+>Jeremiah 22:25-30 In fact, I will hand you over to those you dread, who intend to take your life, to Nebuchadnezzar king of Babylon and the Chaldeans. I will hurl you and the mother who gave birth to you into another land, where neither of you were born, and there you will both die. They will never return to the land they long to return to.”
 Is this man Coniah a despised, shattered pot,
 a jar no one wants?
 Why are he and his descendants hurled out
@@ -248,7 +248,7 @@ Reading through the Old Testament and then descending into the Prophets starting
 
 But you keep reading the Bible. You turn the page. You go from the Old to the New Testament and there it is: the rest for our weary soul, the righteousness that we so desperately needed, the holiness that calls us from the kingdom of the world, the grace and truth that opens our eyes, the mercy we need for life, and the love that has always been there from everlasting to everlasting.
 
->Matthew 1 (CSB)  
+>Matthew 1  
 ><sup> 1 </sup> An account of the genealogy of Jesus Christ, the Son of David, the Son of Abraham: 
 >
 ><sup> 2 </sup> Abraham fathered Isaac, Isaac fathered Jacob, Jacob fathered Judah and his brothers, 
@@ -299,7 +299,7 @@ But you keep reading the Bible. You turn the page. You go from the Old to the Ne
 >
 ><sup> 25 </sup> but did not have sexual relations with her until she gave birth to a son. And he named him Jesus.
 
->Luke 3:23–38 (CSB)  
+>Luke 3:23–38  
 ><sup> 23 </sup> As he began his ministry, Jesus was about thirty years old and was thought to be the son of Joseph, son of Heli, 
 >
 ><sup> 24 </sup> son of Matthat, son of Levi, son of Melchi, son of Jannai, son of Joseph, 
@@ -334,13 +334,13 @@ But you keep reading the Bible. You turn the page. You go from the Old to the Ne
 
 ### Lineage not of power, nor royalty, nor wealth but one of faith
 
->Hebrews 11:1-2 (CSB) Now faith is the reality of what is hoped for, the proof of what is not seen. For by this our ancestors were approved.
+>Hebrews 11:1-2 Now faith is the reality of what is hoped for, the proof of what is not seen. For by this our ancestors were approved.
 
->Galatians 2:20 (CSB) I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
+>Galatians 2:20 I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
 
 Not upon the strength of our faith but based on the strength of the Almighty God
 
->Ephesians 2:8-9 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift— not from works, so that no one can boast.
+>Ephesians 2:8-9 For you are saved by grace through faith, and this is not from yourselves; it is God’s gift— not from works, so that no one can boast.
 
 What is God's gift? Salvation, grace, faith? The answer is yes--all three.
 
@@ -354,7 +354,7 @@ We are not to live for power. We are to live in the power of the Almighty. We ar
 
 We are not born into this family by the blood of our ancestors but born again into this family by the blood of the Lamb and our testimony.
 
->John 1:12-13 (CSB) But to all who did receive him, he gave them the right to be children of God, to those who believe in his name, who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
+>John 1:12-13 But to all who did receive him, he gave them the right to be children of God, to those who believe in his name, who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
 
 My grandfather left his wife and kids to be with another woman. Came back home, stricken with prostate cancer and died in his 40s.
 

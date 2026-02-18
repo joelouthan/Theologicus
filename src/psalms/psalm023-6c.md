@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 23:6c (CSB)   will pursue me
+>Psalm 23:6c   will pursue me
 
 ## The Prayer
 

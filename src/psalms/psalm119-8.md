@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 119:8 (CSB) I will keep your statutes; never abandon me.
+>Psalm 119:8 I will keep your statutes; never abandon me.
 
 ## The Prayer
 

@@ -4,11 +4,11 @@
 
 ## The Text
 
->Romans 8:29 (CSB) For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
+>Romans 8:29 For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
 
 ## The Support
 
->Isaiah 48:9–11 (CSB) I will delay my anger for the sake of my name, and I will restrain myself for your benefit and for my praise, so that you will not be destroyed.  Look, I have refined you, but not as silver; I have tested you in the furnace of affliction.  I will act for my own sake, indeed, my own, for how can I be defiled? I will not give my glory to another.
+>Isaiah 48:9–11 I will delay my anger for the sake of my name, and I will restrain myself for your benefit and for my praise, so that you will not be destroyed.  Look, I have refined you, but not as silver; I have tested you in the furnace of affliction.  I will act for my own sake, indeed, my own, for how can I be defiled? I will not give my glory to another.
 
 
 
@@ -18,7 +18,7 @@
 
 But because God is so glorious, the overabundance of that glory is my joy:
 
->Psalm 16:11 (CSB) You reveal the path of life to me; in your presence is abundant joy; at your right hand are eternal pleasures.
+>Psalm 16:11 You reveal the path of life to me; in your presence is abundant joy; at your right hand are eternal pleasures.
 
 But how did God save us?
 
@@ -36,19 +36,19 @@ Anybody who has grown up in church all of their lives will shout the answer, “
 
 ## The Gospel
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
 But let us think about this: what if Christ came to live and die and no one believed? Would his life and death be in vain? Absolutely not, because Christ death on the cross on actually and factually accomplished something.
 
 The Bible speaks of this through and through.  I believe it is most evident in the Gospel of Matthew chapter 1 verse 21:
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 Read that verse. Does it give the mere possibility of saving his people from their sins or does it say distinctly will save? Does God fail in anything that he will set out to accomplish? Even if his word goes out, it will accomplish something and does not go out in vain , what more than God alone who all powerful, all knowing, and ever-present will perfectly set out what he wants to accomplish.
 
 We say believe but did God die for the possibility of saving everybody? If we have established that God will perfectly execute his plans then we know that even the mere possibility indicates possible failure. Even we can bring up a couple verses starting in 1 John:
 
->1 John 2:1 (CSB) My little children, I am writing you these things so that you may not sin. But if anyone does sin, we have an advocate with the Father—Jesus Christ the righteous one.
+>1 John 2:1 My little children, I am writing you these things so that you may not sin. But if anyone does sin, we have an advocate with the Father—Jesus Christ the righteous one.
 
 But reading 1 John as a whole especially starting with chapter 2 verse 1, we can see that John's intention was not to say “the whole world is saved” but rather that all brothers and sisters for all around the world are saved because of the propitiating work of Jesus Christ who is our advocate with the Father when and if we do sin. To even suggest that the whole world would be saved would directly contradict Matthew’s witness account of Jesus: “Enter by the narrow gate. For the gate is wide and the way is easy that leads to destruction, and those who enter by it are many.”[^1]
 
@@ -94,16 +94,16 @@ In this immense love and grace, receive the gift!
 
 ### Receive the gift of God's forgiveness
 
->Ezekiel 36:25–27 (CSB) I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. 26 I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. 27 I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
+>Ezekiel 36:25–27 I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. 26 I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. 27 I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
 
 
 ### Receive the gift of repentance
 
->Ephesians 2:8–9 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast.
+>Ephesians 2:8–9 For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast.
 
 ### Receive the gift of sight to see and behold God
 
->Mark 10:48-52 (CSB) Many warned him to keep quiet, but he was crying out all the more, “Have mercy on me, Son of David! ”
+>Mark 10:48-52 Many warned him to keep quiet, but he was crying out all the more, “Have mercy on me, Son of David! ”
 > 49 Jesus stopped and said, “Call him.”
 > So they called the blind man and said to him, “Have courage! Get up; he’s calling for you.” 50 He threw off his coat, jumped up, and came to Jesus.
 > 51 Then Jesus answered him, “What do you want me to do for you? ”
@@ -112,22 +112,22 @@ In this immense love and grace, receive the gift!
 
 ### Receive the gift that is God!
 
->Psalm 34:8-9 (CSB) Taste and see that the LORD is good.  
+>Psalm 34:8-9 Taste and see that the LORD is good.  
 >How happy is the person who takes refuge in him!  
 > You who are his holy ones, fear the LORD,  
 >for those who fear him lack nothing.
 
->Matthew 6:33 (CSB) But seek first the kingdom of God and his righteousness, and all these things will be provided for you.
+>Matthew 6:33 But seek first the kingdom of God and his righteousness, and all these things will be provided for you.
 
->Luke 11:13 (CSB) If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him? ”
+>Luke 11:13 If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him? ”
 
->Romans 8:32 (CSB) He did not even spare his own Son but gave him up for us all. How will he not also with him grant us everything?
+>Romans 8:32 He did not even spare his own Son but gave him up for us all. How will he not also with him grant us everything?
 
 Yours is to do nothing but sit still, know that He is God, that He is good, that His steadfast love endures forever and ever and receive Him.
 
 The moment we listen to the lies of Satan, this world, and our old hearts that we have to earn God's sweet, precious love is is anti-Christ--because Christ did it all.
 
->Zephaniah 3:17 (CSB) The LORD your God is among you, a warrior who saves. He will rejoice over you with gladness. He will be quiet in his love. He will delight in you with singing.”
+>Zephaniah 3:17 The LORD your God is among you, a warrior who saves. He will rejoice over you with gladness. He will be quiet in his love. He will delight in you with singing.”
 
 Do you know because of Christ, the Triune God looks upon you and delights you in singing and rejoices over you in gladness--continuously forever without ceasing. 
 

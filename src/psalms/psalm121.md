@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 121 (CSB)  
+>Psalm 121  
 ><sup></sup> A song of ascents. 
 >
 ><sup>1</sup> I lift my eyes toward the mountains. Where will my help come from? 

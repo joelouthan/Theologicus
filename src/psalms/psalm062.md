@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 62 (CSB)  
+>Psalm 62  
 ><sup></sup> For the choir director: according to Jeduthun. A psalm of David. 
 >
 ><sup>1</sup> I am at rest in God alone; my salvation comes from him. 

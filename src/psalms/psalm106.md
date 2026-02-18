@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 106 (CSB)  
+>Psalm 106  
 ><sup>1</sup> Hallelujah! Give thanks to the LORD, for he is good; his faithful love endures forever. 
 >
 ><sup>2</sup> Who can declare the LORD’s mighty acts or proclaim all the praise due him? 

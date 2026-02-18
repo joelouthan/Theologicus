@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 71 (CSB)  
+>Psalm 71  
 ><sup>1</sup> LORD, I seek refuge in you; let me never be disgraced. 
 >
 ><sup>2</sup> In your justice, rescue and deliver me; listen closely to me and save me. 

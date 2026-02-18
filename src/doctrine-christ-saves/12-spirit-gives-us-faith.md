@@ -22,7 +22,7 @@ The power to see God, the power to turn to God, the power to lift your eyes upon
 
 The power to believe that if you turn your eyes upon Jesus and live comes from the same Spirit who raised Christ from the dead. The Spirit must dwell in you to give you the power to lift your eyes upon him and see him.
 
->Numbers 21:4–9 (CSB)  
+>Numbers 21:4–9  
 
 ><sup>4-5</sup> Then they set out from Mount Hor by way of the Red Sea to bypass the land of Edom, but the people became impatient because of the journey. The people spoke against God and Moses: “Why have you led us up from Egypt to die in the wilderness? There is no bread or water, and we detest this wretched food!” 
 

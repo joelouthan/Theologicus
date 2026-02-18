@@ -4,7 +4,7 @@
 
 ## The Text
 
->Genesis 17 (CSB)  
+>Genesis 17  
 ><sup>1</sup> When Abram was ninety-nine years old, the LORD appeared to him, saying, “I am God Almighty. Live in my presence and be blameless. 
 >
 ><sup>2</sup> I will set up my covenant between me and you, and I will multiply you greatly.” 
@@ -275,9 +275,9 @@ It's not Abraham
 
 The actions of Abraham is because he believed God!
 
->**Romans 4:9-12** (CSB) Is this blessing only for the circumcised, then? Or is it also for the uncircumcised? For we say, Faith was credited to Abraham for righteousness. In what way, then, was it credited — while he was circumcised, or uncircumcised? It was not while he was circumcised, but uncircumcised. And he received the sign of circumcision as a seal of the righteousness that he had by faith while still uncircumcised. This was to make him the father of all who believe but are not circumcised, so that righteousness may be credited to them also. And he became the father of the circumcised, who are not only circumcised but who also follow in the footsteps of the faith our father Abraham had while he was still uncircumcised.
+>**Romans 4:9-12** Is this blessing only for the circumcised, then? Or is it also for the uncircumcised? For we say, Faith was credited to Abraham for righteousness. In what way, then, was it credited — while he was circumcised, or uncircumcised? It was not while he was circumcised, but uncircumcised. And he received the sign of circumcision as a seal of the righteousness that he had by faith while still uncircumcised. This was to make him the father of all who believe but are not circumcised, so that righteousness may be credited to them also. And he became the father of the circumcised, who are not only circumcised but who also follow in the footsteps of the faith our father Abraham had while he was still uncircumcised.
 
->**Genesis 15:6** (CSB) Abram believed the LORD, and he credited it to him as righteousness.
+>**Genesis 15:6** Abram believed the LORD, and he credited it to him as righteousness.
 
 >**Ephesians 2:8–10** For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—not from works, so that no one can boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
 

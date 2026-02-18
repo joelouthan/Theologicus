@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 117 (CSB)  
+>Psalm 117  
 ><sup>1</sup> Praise the LORD, all nations! Glorify him, all peoples! 
 >
 ><sup>2</sup> For his faithful love to us is great; the LORD’s faithfulness endures forever. Hallelujah!

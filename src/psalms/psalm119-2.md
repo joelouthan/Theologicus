@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 119:2 (CSB) Happy are those who keep his decrees and seek him with all their heart.
+>Psalm 119:2 Happy are those who keep his decrees and seek him with all their heart.
 
 ## The Prayer
 

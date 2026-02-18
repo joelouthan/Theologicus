@@ -4,7 +4,7 @@
 
 ## The Text
 
->Genesis 14:17–24 (CSB)  
+>Genesis 14:17–24  
 ><sup> 17 </sup> After Abram returned from defeating Chedorlaomer and the kings who were with him, the king of Sodom went out to meet him in the Shaveh Valley (that is, the King’s Valley). 
 >
 ><sup> 18 </sup> Melchizedek, king of Salem, brought out bread and wine; he was a priest to God Most High. 
@@ -24,7 +24,7 @@
 
 ### Who alone is our King of Righteousness?
 
->Psalm 24 (CSB)  
+>Psalm 24  
 ><sup></sup> A psalm of David. 
 >
 ><sup>1</sup> The earth and everything in it, the world and its inhabitants, belong to the LORD; 

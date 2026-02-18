@@ -22,7 +22,7 @@ Let us get into it.
 
 ## The Text
 
->Genesis 9:8–17 (CSB)  
+>Genesis 9:8–17  
 ><sup> 8 </sup> Then God said to Noah and his sons with him, 
 >
 ><sup> 9 </sup> “Understand that I am establishing my covenant with you and your descendants after you, 
@@ -45,7 +45,7 @@ Let us get into it.
 
 ## The Support
 
->1 Corinthians 7:22-24 (CSB) For he who is called by the Lord as a slave is the Lord’s freedman. Likewise he who is called as a free man is Christ’s slave. You were bought at a price; do not become slaves of people. Brothers and sisters, each person is to remain with God in the situation in which he was called.
+>1 Corinthians 7:22-24 For he who is called by the Lord as a slave is the Lord’s freedman. Likewise he who is called as a free man is Christ’s slave. You were bought at a price; do not become slaves of people. Brothers and sisters, each person is to remain with God in the situation in which he was called.
 
 To redeem is to purchase. That is appropriate when it comes to cashing in a coupon or a gift card.
 
@@ -91,15 +91,15 @@ God poured his wrath out on all living things but kept Noah, his wife, his famil
 
 Because of this new life, we get to go and live!
 
->2 Corinthians 5:16-19 (CSB) From now on, then, we do not know anyone from a worldly perspective. Even if we have known Christ from a worldly perspective, yet now we no longer know him in this way. Therefore, if anyone is in Christ, he is a new creation; the old has passed away, and see, the new has come!Everything is from God, who has reconciled us to himself through Christ and has given us the ministry of reconciliation. That is, in Christ, God was reconciling the world to himself, not counting their trespasses against them, and he has committed the message of reconciliation to us.
+>2 Corinthians 5:16-19 From now on, then, we do not know anyone from a worldly perspective. Even if we have known Christ from a worldly perspective, yet now we no longer know him in this way. Therefore, if anyone is in Christ, he is a new creation; the old has passed away, and see, the new has come!Everything is from God, who has reconciled us to himself through Christ and has given us the ministry of reconciliation. That is, in Christ, God was reconciling the world to himself, not counting their trespasses against them, and he has committed the message of reconciliation to us.
 
 Once God has wiped away the world, and he promised Noah that it would never happen like that ever again so Noah can go live in the grace of God. But what God does for his people: He washes us clean from the inside out so we can live in the righteousness of God and live to God forever.
 
->2 Corinthians 5:20-21 (CSB) Therefore, we are ambassadors for Christ, since God is making his appeal through us. We plead on Christ’s behalf, “Be reconciled to God.”He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+>2 Corinthians 5:20-21 Therefore, we are ambassadors for Christ, since God is making his appeal through us. We plead on Christ’s behalf, “Be reconciled to God.”He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
 And
 
->Titus 3:4-7 (CSB) But when the kindness of God our Savior and his love for mankind appeared,he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Saviorso that, having been justified by his grace, we may become heirs with the hope of eternal life.
+>Titus 3:4-7 But when the kindness of God our Savior and his love for mankind appeared,he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Saviorso that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
 ## Our Response
 
@@ -119,12 +119,12 @@ I don't care how atheistic or agnostic you might be, you cannot deny that Christ
 
 In all of that, when God saves you, it is a gift.
 
->Ephesians 2:8-9 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast.
+>Ephesians 2:8-9 For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast.
 
 Gifts are free. They are not earned.
 
 Here's the point of emphasizing God's free gift. Sometimes Christians upon being saved by God and with great rejoicing, they want to do all the things. But my brother and sister, just remember one sweet thing: you don't have to pay back God for your new life. You just need to go and live this new life.
 
->John 8:10-11 (CSB) When Jesus stood up, he said to her, “Woman, where are they? Has no one condemned you?”“No one, Lord,” she answered. “Neither do I condemn you,” said Jesus. “Go, and from now on do not sin anymore.”
+>John 8:10-11 When Jesus stood up, he said to her, “Woman, where are they? Has no one condemned you?”“No one, Lord,” she answered. “Neither do I condemn you,” said Jesus. “Go, and from now on do not sin anymore.”
 
 You have been redeemed. You have been brought with a price of the only begotten Son of God. Now, go and live freely.

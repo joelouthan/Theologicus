@@ -2,7 +2,7 @@
 
 # Genesis 20 The Gospel Delivery
 
->Genesis 20 (CSB)  
+>Genesis 20  
 ><sup>1</sup> From there Abraham traveled to the region of the Negev and settled between Kadesh and Shur. While he was staying in Gerar, 
 >
 ><sup>2</sup> Abraham said about his wife Sarah, “She is my sister.” So King Abimelech of Gerar had Sarah brought to him. 

@@ -56,33 +56,33 @@ There is a book out now called Whosoever Will. The one of the main premises of t
 
 But let us actually look at the all-time famous verse:
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
 It is not ‘whosever will’ but ‘whosever believes’.
 
 In other words, It is not ‘the gospel is the power of God in salvation for those who believe and do not believe’ but rather ‘for those who believe’. (Romans 1:16)
 
->Romans 1:16 (CSB) For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek.
+>Romans 1:16 For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek.
 
 It is not ‘for our sake and the sake of the unbelievers, that God made Christ to be sin who knew no sin so that in him we might be the righteousness of God’ but rather ‘for our sake—the sake of those believe’. (2 Corinthians 5:21)
 
 But what about 1 John 2:2?
 
->1 John 2:2 (CSB) He himself is the atoning sacrifice for our sins, and not only for ours, but also for those of the whole world.
+>1 John 2:2 He himself is the atoning sacrifice for our sins, and not only for ours, but also for those of the whole world.
 
 If that was the only passage in that epistle, then you would have a strong case. But it is not. Look at verse 3:
 
->1 John 2:3 (CSB) This is how we know that we know him: if we keep his commands.
+>1 John 2:3 This is how we know that we know him: if we keep his commands.
 
 I would be absolute remiss if I did not proclaim the gospel at this moment.
 
->James 2:10 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
+>James 2:10 For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
 
->Galatians 3:10 (CSB) For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
+>Galatians 3:10 For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
 
 And.
 
->John 3:36 (CSB) The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
+>John 3:36 The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 
 You and I never kept the law and do not possess the ability to keep all of the law. You and I are born of Adam and therefore, born into sin.
 

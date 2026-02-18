@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 32:3 (CSB)   When I kept silent, my bones became brittle from my groaning all day long.
+>Psalm 32:3   When I kept silent, my bones became brittle from my groaning all day long.
 
 ## The Prayer
 

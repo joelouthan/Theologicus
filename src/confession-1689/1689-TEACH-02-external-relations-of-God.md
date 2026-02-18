@@ -16,7 +16,7 @@ Revision 20240419.2030
 
 ## The Text
 
->Romans 11:33–36 (CSB)  
+>Romans 11:33–36  
 ><sup>33</sup> Oh, the depth of the riches and the wisdom and the knowledge of God! How unsearchable his judgments and untraceable his ways!
 >
 ><sup>34</sup> For who has known the mind of the Lord? Or who has been his counselor?
@@ -98,7 +98,7 @@ Like on my best day, I might be happy as a clam but then I am not wise with my r
 
 **is alone in and unto himself all-sufficient, not standing in need of any creature which he hath made, nor deriving any glory from them, but only manifesting his own glory in, by, unto, and upon them**
 
->Acts 17:23–28 (CSB)  
+>Acts 17:23–28  
 ><sup>24</sup> <bgy>The God who made the world and everything in it—he is Lord of heaven and earth—does not live in shrines made by hands.</bgy>
 >
 ><sup>25</sup> <bgy>Neither is he served by human hands, as though he needed anything, since he himself gives everyone life and breath and all things.</bgy>
@@ -109,7 +109,7 @@ Like on my best day, I might be happy as a clam but then I am not wise with my r
 
 Let me use one clearest example:
 
->Romans 6:1–2 (CSB) What should we say then? Should we continue in sin so that grace may multiply? Absolutely not! How can we who died to sin still live in it?
+>Romans 6:1–2 What should we say then? Should we continue in sin so that grace may multiply? Absolutely not! How can we who died to sin still live in it?
 
 Go back to the garden: Adam and Eve in perfect right standing with God in perfect worship to God and perfect obedience to God could not experience the kindness and mercy and grace of God. They knew God loved them and he was good and life and blessedness.
 
@@ -121,7 +121,7 @@ But how did God respond to them? Not in quick judgement and wrath and punishment
 
 **he is the alone fountain of all being, of whom, through whom, and to whom are all things**
 
->Romans 11:33–36 (CSB)  
+>Romans 11:33–36  
 ><sup>33</sup> Oh, the depth of the riches and the wisdom and the knowledge of God! How unsearchable his judgments and untraceable his ways!
 >
 ><sup>34</sup> For who has known the mind of the Lord? Or who has been his counselor?
@@ -140,13 +140,13 @@ For there is no other name by which we are saved.
 
 **in his sight all things are open and manifest, his knowledge is infinite, infallible, and independent upon the creature, so as nothing is to him contingent or uncertain**
 
->Hebrews 4:13 (CSB) No creature is hidden from him, but all things are naked and exposed to the eyes of him to whom we must give an account.
+>Hebrews 4:13 No creature is hidden from him, but all things are naked and exposed to the eyes of him to whom we must give an account.
 
 When I was freshly saved in 2007, there were still many errors and heresies still kicking around. One such heresy was the notion of that God does not know the future but he reacts to the actions and pleas of his creation. This heresy is called Open Theism. That the future is not determined by God but by the actions of his creation.
 
 Author and pastor Greg Boyd, wrote a book defending this heresy and hinged his entire argument upon one passage about King Hezekiah:
 
->2 Kings 20:1 (CSB) In those days Hezekiah became terminally ill. The prophet Isaiah son of Amoz came and said to him, “This is what the LORD says: ‘Set your house in order, for you are about to die; you will not recover.’ ”
+>2 Kings 20:1 In those days Hezekiah became terminally ill. The prophet Isaiah son of Amoz came and said to him, “This is what the LORD says: ‘Set your house in order, for you are about to die; you will not recover.’ ”
 
 Hezekiah, in response, prayed and wept bitterly for the Lord to extend his life.
 
@@ -162,7 +162,7 @@ Guess what? None of us have done the right things--we have all sinned and fallen
 
 How did God respond? He sent his only begotten Son!
 
->Romans 3:21-26 (CSB) But now, apart from the law, the righteousness of God has been revealed, attested by the Law and the Prophets. The righteousness of God is through faith in Jesus Christ to all who believe, since there is no distinction. For all have sinned and fall short of the glory of God. They are justified freely by his grace through the redemption that is in Christ Jesus. God presented him as an atoning sacrifice in his blood, received through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be righteous and declare righteous the one who has faith in Jesus.
+>Romans 3:21-26 But now, apart from the law, the righteousness of God has been revealed, attested by the Law and the Prophets. The righteousness of God is through faith in Jesus Christ to all who believe, since there is no distinction. For all have sinned and fall short of the glory of God. They are justified freely by his grace through the redemption that is in Christ Jesus. God presented him as an atoning sacrifice in his blood, received through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be righteous and declare righteous the one who has faith in Jesus.
 
 Shockingly enough, Mr. Boyd does not mention the Romans 3 passage in his book.
 
@@ -170,7 +170,7 @@ Shockingly enough, Mr. Boyd does not mention the Romans 3 passage in his book.
 
 **he is most holy in all his counsels, in all his works, and in all his commands**
 
->Psalm 145:17 (CSB) The Lord is righteous in all his ways and faithful in all his acts.
+>Psalm 145:17 The Lord is righteous in all his ways and faithful in all his acts.
 
 ## So what?
 
@@ -178,9 +178,9 @@ Shockingly enough, Mr. Boyd does not mention the Romans 3 passage in his book.
 
 #### He is our All in all
 
->1 Corinthians 15:28 (CSB) When everything is subject to Christ, then the Son himself will also be subject to the one who subjected everything to him, so that God may be all in all.
+>1 Corinthians 15:28 When everything is subject to Christ, then the Son himself will also be subject to the one who subjected everything to him, so that God may be all in all.
 
->Psalm 16:11 (CSB) You reveal the path of life to me; in your presence is abundant joy; at your right hand are eternal pleasures.
+>Psalm 16:11 You reveal the path of life to me; in your presence is abundant joy; at your right hand are eternal pleasures.
 
 When God deals with you, he deals out of maxed out goodness and wisdom--full good and full wisdom. Nothing less and nothing more is possible.
 
@@ -192,9 +192,9 @@ For everything that we need--beyond food, shelter, provision, or protection--we 
 
 Take a look at both Matthew and Luke's accounts of the Lord's Prayer. 
 
->Matthew 6:7-8 (CSB) When you pray, don’t babble like the Gentiles, since they imagine they’ll be heard for their many words. Don’t be like them, because your Father knows the things you need before you ask him.
+>Matthew 6:7-8 When you pray, don’t babble like the Gentiles, since they imagine they’ll be heard for their many words. Don’t be like them, because your Father knows the things you need before you ask him.
 
->Luke 11:13 (CSB) If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him? ”
+>Luke 11:13 If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him? ”
 
 Put this all together: the Father knows what you need before you can even ask--and how much more will the heavenly Father give the Holy Spirit to those who ask him?
 
@@ -202,7 +202,7 @@ Beyond food, provision, shelter, relationships, joy, happiness, and peace--any o
 
 #### He is most Sovereign
 
->Isaiah 46:10 (CSB) I declare the end from the beginning, and from long ago what is not yet done, saying: my plan will take place, and I will do all my will.
+>Isaiah 46:10 I declare the end from the beginning, and from long ago what is not yet done, saying: my plan will take place, and I will do all my will.
 
 All of mankind since Adam and Eve have been at odds with the idea of the sovereignty of God. I am not going to bog down on this point but just to say this one thing.
 
@@ -222,10 +222,10 @@ He created us for his good pleasure.
 
 **he hath most sovereign dominion over all creatures, to do by them, for them, or upon them, whatsoever himself pleaseth**
 
->Psalm 115:3 (CSB) Our God is in heaven
+>Psalm 115:3 Our God is in heaven
 >and does whatever he pleases.
 
->Psalm 135:6 (CSB) The LORD does whatever he pleases  
+>Psalm 135:6 The LORD does whatever he pleases  
 >in heaven and on earth,  
 >in the seas and all the depths.
 
@@ -235,15 +235,15 @@ When God does something, anything, he does so because it pleases him.
 
 Why create the heavens and the earth? Doing so pleased him.
 
->Revelation 4:11 (CSB) Our Lord and God, you are worthy to receive glory and honor and power, because you have created all things, and by your will they exist and were created.
+>Revelation 4:11 Our Lord and God, you are worthy to receive glory and honor and power, because you have created all things, and by your will they exist and were created.
 
->Colossians 1:16 (CSB) For everything was created by him, in heaven and on earth, the visible and the invisible, whether thrones or dominions or rulers or authorities— all things have been created through him and for him.
+>Colossians 1:16 For everything was created by him, in heaven and on earth, the visible and the invisible, whether thrones or dominions or rulers or authorities— all things have been created through him and for him.
 
 So why create us? To be image bearers. To be weak and frail and always running away and scared. Why?
 
 Because it pleased him even more so--
 
->Genesis 1:27 (CSB) So God created man in his own image; he created him in the image of God; he created them male and female. (...) God saw all that he had made, and it was very good indeed. Evening came and then morning: the sixth day.
+>Genesis 1:27 So God created man in his own image; he created him in the image of God; he created them male and female. (...) God saw all that he had made, and it was very good indeed. Evening came and then morning: the sixth day.
 
 #### We are to worship, serve, and obey him
 
@@ -251,7 +251,7 @@ In other words, we were made to worship. One way or another, we are going to wor
 
 This is the damned exchange in Romans 1:
 
->Romans 1:21-23 (CSB) For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. Claiming to be wise, they became fools and exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles.
+>Romans 1:21-23 For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. Claiming to be wise, they became fools and exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles.
 
 #### We are to be perfect
 
@@ -261,16 +261,16 @@ Not just "in order to be with God, you must be perfect". No, because we are his 
 
 #### Yet we have completely, totally, immensely, failed him in everything we have done
 
->Romans 3:10–12 (CSB)  
+>Romans 3:10–12  
 ><sup>10</sup> as it is written: There is no one righteous, not even one. 
 >
 ><sup>11</sup> There is no one who understands; there is no one who seeks God. 
 >
 ><sup>12</sup> All have turned away; all alike have become worthless. There is no one who does what is good, not even one.
 
->Titus 3:3 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
+>Titus 3:3 For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
 
->Ephesians 2:1 (CSB) And you were dead in your trespasses and sins
+>Ephesians 2:1 And you were dead in your trespasses and sins
 
 #### We need him
 
@@ -286,7 +286,7 @@ This perfect Triune God, in His perfect relation between the Father, Son, and Sp
 
 No! He looked into the future, he looked upon me and you and saw that we were depraved and wicked and worthless. Nonetheless, he already made up his mind about us. What was his relationship to us--to his people--before the foundations of the world were laid and before he called time and space into existence.
 
->Romans 5:8 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us.
+>Romans 5:8 But God proves his own love for us in that while we were still sinners, Christ died for us.
 
 Yes, he pleased him more to create us.
 
@@ -294,13 +294,13 @@ Yet, in his great love for us, while we were yet sinners, he sent is Son to die 
 
 It never says, "He saw us on our good days and picked us because we were awesome." No! He saw our helpless estate and proclaimed, "I want that one. That is mine. That is my child. I love them and I want them. And I will spare no expense to bring this child to me."
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
->Titus 3:3-7 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior so that, having been justified by his grace, we may become heirs with the hope of eternal life.
+>Titus 3:3-7 For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior so that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
->Ephesians 2:1-7 (CSB) And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. But God, who is rich in mercy, because of his great love that he had for us, made us alive with Christ even though we were dead in trespasses. You are saved by grace! He also raised us up with him and seated us with him in the heavens in Christ Jesus, so that in the coming ages he might display the immeasurable riches of his grace through his kindness to us in Christ Jesus.
+>Ephesians 2:1-7 And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. But God, who is rich in mercy, because of his great love that he had for us, made us alive with Christ even though we were dead in trespasses. You are saved by grace! He also raised us up with him and seated us with him in the heavens in Christ Jesus, so that in the coming ages he might display the immeasurable riches of his grace through his kindness to us in Christ Jesus.
 
->Romans 8:31-32 (CSB) What, then, are we to say about these things? If God is for us, who is against us? He did not even spare his own Son but gave him up for us all. How will he not also with him grant us everything?
+>Romans 8:31-32 What, then, are we to say about these things? If God is for us, who is against us? He did not even spare his own Son but gave him up for us all. How will he not also with him grant us everything?
 
 ### Closing
 
@@ -314,7 +314,7 @@ And even though the damned exchange swapped what should have been good worship t
 
 Yet, in his pleasure and his great love for us, Christ came to this earth for the Greatest Exchange. Christ exchanged our sins for his righteousness, our punishment for his reward, our death for his life, and our destiny of hell for his predestination of life with our holy Father forever and ever.
 
->Colossians 1:13-14 (CSB)  
+>Colossians 1:13-14  
 ><sup>13</sup> [God] has rescued us from the domain of darkness and transferred us into the kingdom of the Son he loves. 
 >
 ><sup>14</sup> In him we have redemption, the forgiveness of sins.

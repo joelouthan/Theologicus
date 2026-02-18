@@ -4,7 +4,7 @@
 
 ## The Text
 
->Genesis 18:16–33 (CSB)  
+>Genesis 18:16–33  
 ><sup>16</sup> The men got up from there and looked out over Sodom, and Abraham was walking with them to see them off. 
 >
 ><sup>17</sup> Then the LORD said, “Should I hide what I am about to do from Abraham? 
@@ -49,7 +49,7 @@
 
 It is a fool's errand for us mere mortals to figure out what that number is. That is not for us to know nor worry about. God knows that number, for:
 
->**2 Corinthians 5:10-15** (CSB) For we must all appear before the judgment seat of Christ, so that each may be repaid for what he has done in the body, whether good or evil.
+>**2 Corinthians 5:10-15** For we must all appear before the judgment seat of Christ, so that each may be repaid for what he has done in the body, whether good or evil.
 
 That's the knowledge that God has told us when it comes to the number who is saved. That all will appear before the judgment seat of Christ, so that we repay for what we have done.
 
@@ -67,7 +67,7 @@ We preach and proclaim this good news because of the love of God for us and from
 
 ### We are called to hear the gospel, not once but for all time and live our lives in light of his love for us.
 
->**2 Corinthians 5:16-21** (CSB) From now on, then, we do not know anyone from a worldly perspective. Even if we have known Christ from a worldly perspective, yet now we no longer know him in this way. Therefore, if anyone is in Christ, he is a new creation; the old has passed away, and see, the new has come! Everything is from God, who has reconciled us to himself through Christ and has given us the ministry of reconciliation. That is, in Christ, God was reconciling the world to himself, not counting their trespasses against them, and he has committed the message of reconciliation to us.
+>**2 Corinthians 5:16-21** From now on, then, we do not know anyone from a worldly perspective. Even if we have known Christ from a worldly perspective, yet now we no longer know him in this way. Therefore, if anyone is in Christ, he is a new creation; the old has passed away, and see, the new has come! Everything is from God, who has reconciled us to himself through Christ and has given us the ministry of reconciliation. That is, in Christ, God was reconciling the world to himself, not counting their trespasses against them, and he has committed the message of reconciliation to us.
 >
 >Therefore, we are ambassadors for Christ, since God is making his appeal through us. We plead on Christ’s behalf, “Be reconciled to God.” 
 
@@ -115,7 +115,7 @@ For those called to preach, preach this word. For those who teach, teach this do
 
 Speak the gospel with the sense of urgency, for:
 
->**2 Corinthians 6:1-2** (CSB) Working together with him, we also appeal to you, “Don’t receive the grace of God in vain.” For he says:
+>**2 Corinthians 6:1-2** Working together with him, we also appeal to you, “Don’t receive the grace of God in vain.” For he says:
 >At an acceptable time I listened to you,
 >and in the day of salvation I helped you.
 >See, now is the acceptable time; now is the day of salvation!

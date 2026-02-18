@@ -4,11 +4,11 @@
 
 ## The Word
 
->Hebrews 11:3 (CSB) By faith we understand that the universe was created by the word of God, so that what is seen was 
+>Hebrews 11:3 By faith we understand that the universe was created by the word of God, so that what is seen was 
 
 ## The Text
 
->Genesis 1:6-13 (CSB) Then God said, “Let there be an expanse between the waters, separating water from water.” So God made the expanse and separated the water under the expanse from the water above the expanse. And it was so. God called the expanse “sky.” Evening came and then morning: the second day.
+>Genesis 1:6-13 Then God said, “Let there be an expanse between the waters, separating water from water.” So God made the expanse and separated the water under the expanse from the water above the expanse. And it was so. God called the expanse “sky.” Evening came and then morning: the second day.
 >
 >Then God said, “Let the water under the sky be gathered into one place, and let the dry land appear.” And it was so. God called the dry land “earth,” and the gathering of the water he called “seas.” And God saw that it was good. Then God said, “Let the earth produce vegetation: seed-bearing plants and fruit trees on the earth bearing fruit with seed in it according to their kinds.” And it was so. The earth produced vegetation: seed-bearing plants according to their kinds and trees bearing fruit with seed in it according to their kinds. And God saw that it was good. Evening came and then morning: the third day.
 
@@ -40,11 +40,11 @@
 
 ><sup>28</sup>For in him we live and move and have our being, as even some of your own poets have said, ‘For we are also his offspring.’ Since, then, we are God’s offspring, we shouldn’t think that the divine nature is like gold or silver or stone, an image fashioned by human art and imagination.
 
->Psalm 72:19 (CSB) Blessed be his glorious name forever;
+>Psalm 72:19 Blessed be his glorious name forever;
 >the whole earth is filled with his glory.
 >Amen and amen.
 
->Habakkuk 2:14 (CSB) For the earth will be filled
+>Habakkuk 2:14 For the earth will be filled
 >with the knowledge of the LORD’s glory,
 >as the water covers the sea.
 
@@ -62,7 +62,7 @@ Why are we to be His "witnesses" in our city, our nation, and all over the world
 
 ### Here is the gospel command
 
->Acts 17:30-31 (CSB) Therefore, having overlooked the times of ignorance, God now commands all people everywhere to repent, because he has set a day when he is going to judge the world in righteousness by the man he has appointed. He has provided proof of this to everyone by raising him from the dead.”
+>Acts 17:30-31 Therefore, having overlooked the times of ignorance, God now commands all people everywhere to repent, because he has set a day when he is going to judge the world in righteousness by the man he has appointed. He has provided proof of this to everyone by raising him from the dead.”
 
 Now, I have said it once, I will say it a hundred times: the commands of the Lord are easier said than done.
 
@@ -70,7 +70,7 @@ When you preach, share, proclaim the gospel--when you share your testimony and t
 
 ### You will be ridiculed and mocked
 
->Acts 17:32-34 (CSB) When they heard about the resurrection of the dead, some began to ridicule him...
+>Acts 17:32-34 When they heard about the resurrection of the dead, some began to ridicule him...
 
 ### You will get some with good intentions with a hundred questions or just some lookee-lous
 
@@ -111,7 +111,7 @@ There is nothing else ever--not your life, being married, sex, success, power, w
 
 Once God opens our eyes, renews our minds, and exchanges our hearts, we worship like the sons of Korah once sang:
 
->Psalm 84:10 (CSB) Better a day in your courts  
+>Psalm 84:10 Better a day in your courts  
 >than a thousand anywhere else.  
 >I would rather stand at the threshold of the house of my God  
 >than live in the tents of wicked people.

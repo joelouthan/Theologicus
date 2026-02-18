@@ -16,7 +16,7 @@ Addicted to Porn? Try working in porn so you can get more porn. That is my story
 
 God, in his perfect timing, would snatch the hearts of all three men--and I have no doubt it was on the praying knees of my faithful grandmother, Frances. My mom was a devout Christian but she ended up abandoning me and my brother to leave my violent, abusive, sexual addicted, perverse husband.
 
->2 Timothy 1:5 (CSB) I recall your sincere faith that first lived in your grandmother Lois and in your mother Eunice and now, I am convinced, is in you also.
+>2 Timothy 1:5 I recall your sincere faith that first lived in your grandmother Lois and in your mother Eunice and now, I am convinced, is in you also.
 
 Fast-forward my life some time later, through marriages, divorces, porn addictions, working in porn and all of that, God saved me. In the midst of my sorrow, sin, and depravity, God saved me. And by God's grace and in his provision of the internet, I got to meet so many other Christians outside of AoG. Oh my heart. Oh what joy.
 

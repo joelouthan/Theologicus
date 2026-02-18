@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 101 (CSB)  
+>Psalm 101  
 ><sup></sup> A psalm of David. 
 >
 ><sup>1</sup> I will sing of faithful love and justice; I will sing praise to you, LORD. 

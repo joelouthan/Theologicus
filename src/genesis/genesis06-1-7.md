@@ -30,7 +30,7 @@ But what is the end of sin? We are just six chapters in the Bible itself and God
 
 Let us start off by reading the text first and then go to God in prayer:
 
->Genesis 6:1-7 (CSB) When mankind began to multiply on the earth and daughters were born to them,<sup> 2 </sup>the sons of God saw that the daughters of mankind were beautiful, and they took any they chose as wives for themselves.<sup> 3 </sup>And the LORD said, “My Spirit will not remain with mankind forever, because they are corrupt. Their days will be 120 years.”<sup> 4 </sup>The Nephilim were on the earth both in those days and afterward, when the sons of God came to the daughters of mankind, who bore children to them. They were the powerful men of old, the famous men.
+>Genesis 6:1-7 When mankind began to multiply on the earth and daughters were born to them,<sup> 2 </sup>the sons of God saw that the daughters of mankind were beautiful, and they took any they chose as wives for themselves.<sup> 3 </sup>And the LORD said, “My Spirit will not remain with mankind forever, because they are corrupt. Their days will be 120 years.”<sup> 4 </sup>The Nephilim were on the earth both in those days and afterward, when the sons of God came to the daughters of mankind, who bore children to them. They were the powerful men of old, the famous men.
 >
 ><sup> 5 </sup>When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time,<sup> 6 </sup>the LORD regretted that he had made man on the earth, and he was deeply grieved.<sup> 7 </sup>Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky—for I regret that I made them.”
 
@@ -38,11 +38,11 @@ Let us start off by reading the text first and then go to God in prayer:
 
 Before we even mention Noah's name, we must stop here and examine the effects of sin for:
 
->Romans 6:23a (CSB) For the wages of sin is death...
+>Romans 6:23a For the wages of sin is death...
 
 ### Before we get to death, sin will lead us straight to the demonic
 
->Genesis 6:1-2 (CSB) When mankind began to multiply on the earth and daughters were born to them, the sons of God saw that the daughters of mankind were beautiful, and they took any they chose as wives for themselves.
+>Genesis 6:1-2 When mankind began to multiply on the earth and daughters were born to them, the sons of God saw that the daughters of mankind were beautiful, and they took any they chose as wives for themselves.
 
 Compare: Angelic/Demonic vs. Royals vs. Sethite debates.
 
@@ -50,7 +50,7 @@ Remember Gen 3 to 4 to 5.
 
 I have said this time and time before: the supernatural forces has more to do with your life than you can possible see and imagine. You cannot see but it has a great impact on your life than anything circumstance within the material plane.
 
->Ephesians 6:12 (CSB) For our struggle is not against flesh and blood, but against the rulers, against the authorities, against the cosmic powers of this darkness, against evil, spiritual forces in the heavens.
+>Ephesians 6:12 For our struggle is not against flesh and blood, but against the rulers, against the authorities, against the cosmic powers of this darkness, against evil, spiritual forces in the heavens.
 
 Without God, you are fighting the wrong fight and against the wrong people. You spend your time being hateful and hating one another instead waging war on the real enemies of God--namely Satan and demons, hell, sin, and death. 
 
@@ -62,7 +62,7 @@ We already know the spirit within mankind departed mankind when Adam and Eve sin
 
 This is not Holy Spirit but rather, the breath of life of God by God. Don't forget that God was still in the business of multiplying mankind despite our sinful ways. God declared that Man shall die. In this decree in verse 3, God declares that man will not live forever nor even for a long time. (The life expectancy of man starts to decline after God makes this decree.)
 
->Romans 5:12-14 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned. In fact, sin was in the world before the law, but sin is not charged to a person’s account when there is no law. Nevertheless, death reigned from Adam to Moses, even over those who did not sin in the likeness of Adam’s transgression. He is a type of the Coming One.
+>Romans 5:12-14 Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned. In fact, sin was in the world before the law, but sin is not charged to a person’s account when there is no law. Nevertheless, death reigned from Adam to Moses, even over those who did not sin in the likeness of Adam’s transgression. He is a type of the Coming One.
 
 ## God
 
@@ -78,7 +78,7 @@ Did you catch that? What did mention the multiplication of sin in Genesis 3, 4, 
 
 >They were the powerful men of old, the famous men.
 
->Proverbs 16:5 (CSB) Everyone with a proud heart is detestable to the LORD; be assured, he will not go unpunished.
+>Proverbs 16:5 Everyone with a proud heart is detestable to the LORD; be assured, he will not go unpunished.
 
 We live in a culture that celebrates the powerful and the famous. If we are not too careful we might look at that line and think nothing of it. But God declares prideful men and women "detestable".
 
@@ -120,17 +120,17 @@ Here's something else that's crystal clear:
 
 Let us, once and for all, dismiss the foolish notion of "Old Testament God / New Testament God." There is one God and he is the maker of heaven and hell. Let us also dismiss the wrong notion of "Father is the God in the Old Testament and Jesus is the God of the New Testament because the Father is so angry and Jesus just preaches love one another.
 
->John 3:36 (CSB) The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
+>John 3:36 The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 
 Also, go and read Acts 5 and see what the Holy Spirit does to Ananias and Sapphira for lying to God.
 
 And after Christ was beaten within an inch of his life, as he began his death march towards the excruciating, blood-curdling pain and torture, Jesus takes precious energy to prophesy in this one moment to the women who were mourning and lamenting him:
 
->Luke 23:28-30 (CSB) But turning to them, Jesus said, “Daughters of Jerusalem, do not weep for me, but weep for yourselves and your children. Look, the days are coming when they will say, ‘Blessed are the women without children, the wombs that never bore, and the breasts that never nursed!’Then they will begin to say to the mountains, ‘Fall on us!’ and to the hills, ‘Cover us!’
+>Luke 23:28-30 But turning to them, Jesus said, “Daughters of Jerusalem, do not weep for me, but weep for yourselves and your children. Look, the days are coming when they will say, ‘Blessed are the women without children, the wombs that never bore, and the breasts that never nursed!’Then they will begin to say to the mountains, ‘Fall on us!’ and to the hills, ‘Cover us!’
 
 Christ prophesied and fulfilled his own judgment:
 
->Revelation 6:15-17 (CSB) Then the kings of the earth, the nobles, the generals, the rich, the powerful, and every slave and free person hid in the caves and among the rocks of the mountains. And they said to the mountains and to the rocks, “Fall on us and hide us from the face of the one seated on the throne and from the wrath of the Lamb,because the great day of their wrath has come! And who is able to stand?
+>Revelation 6:15-17 Then the kings of the earth, the nobles, the generals, the rich, the powerful, and every slave and free person hid in the caves and among the rocks of the mountains. And they said to the mountains and to the rocks, “Fall on us and hide us from the face of the one seated on the throne and from the wrath of the Lamb,because the great day of their wrath has come! And who is able to stand?
 
 Has it happened yet? No, not yet. Not in our timeline. But because God is perfect and cannot lie, this promises is as good as done. Past tense.
 
@@ -140,7 +140,7 @@ This is a lot of death. And that is what sin is. Do you think it is even a coinc
 
 Christian? What does God say? How is God going to save us now?
 
->Romans 6:23 (CSB) For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord
+>Romans 6:23 For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord
 
 ## Our Response
 

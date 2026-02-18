@@ -8,7 +8,7 @@
 
 ## The Text
 
->1 Corinthians 12:3 (CSB) Therefore I want you to know that no one speaking by the Spirit of God says, “Jesus is cursed,” and no one can say, “Jesus is Lord,” except by the Holy Spirit.
+>1 Corinthians 12:3 Therefore I want you to know that no one speaking by the Spirit of God says, “Jesus is cursed,” and no one can say, “Jesus is Lord,” except by the Holy Spirit.
 
 ## The Chapter
 
@@ -18,11 +18,11 @@
 
 ### Others not elected, although they may be called by the ministry of the Word, and may have some common operations of the Spirit,
 
->Matthew 22:14 (CSB) “For many are invited, but few are chosen.”
+>Matthew 22:14 “For many are invited, but few are chosen.”
 
->Matthew 13:20–21 (CSB) And the one sown on rocky ground—this is one who hears the word and immediately receives it with joy. But he has no root and is short-lived. When distress or persecution comes because of the word, immediately he falls away.
+>Matthew 13:20–21 And the one sown on rocky ground—this is one who hears the word and immediately receives it with joy. But he has no root and is short-lived. When distress or persecution comes because of the word, immediately he falls away.
 
->Hebrews 6:4–5 (CSB) For it is impossible to renew to repentance those who were once enlightened, who tasted the heavenly gift, who shared in the Holy Spirit, who tasted God’s good word and the powers of the coming age,
+>Hebrews 6:4–5 For it is impossible to renew to repentance those who were once enlightened, who tasted the heavenly gift, who shared in the Holy Spirit, who tasted God’s good word and the powers of the coming age,
 
 You have to deal with the magnitude, vastness and the *almight* of the Lord God Almighty. Start with the Triuneness of God. Each of the persons of the Godhead--Father, Son, and Spirit--are, by themselves, the fullness of God.
 
@@ -40,15 +40,15 @@ If you and I know that the almighty power of God will have residual effects, you
 
 If you have been in church for longer than a moment, you have already seen people attracted to the things of God, do the things of God, and then fall away from the holiness of God for one reason or another. Christians often are perplexed that something like this could have happened. Mostly perplexed because this falling away from grace has happened to someone they know and love--like their dad, or brother, or child.
 
->Hebrews 6:4–6 (CSB) For it is impossible to renew to repentance those who were once enlightened, who tasted the heavenly gift, who shared in the Holy Spirit, who tasted God’s good word and the powers of the coming age, and who have fallen away. This is because, to their own harm, they are recrucifying the Son of God and holding him up to contempt.
+>Hebrews 6:4–6 For it is impossible to renew to repentance those who were once enlightened, who tasted the heavenly gift, who shared in the Holy Spirit, who tasted God’s good word and the powers of the coming age, and who have fallen away. This is because, to their own harm, they are recrucifying the Son of God and holding him up to contempt.
 
 God said they have merely tasted the heavenly gift. Christ explains this in two places:
 
->Matthew 13:20–21 (CSB) And the one sown on rocky ground—this is one who hears the word and immediately receives it with joy. But he has no root and is short-lived. When distress or persecution comes because of the word, immediately he falls away.
+>Matthew 13:20–21 And the one sown on rocky ground—this is one who hears the word and immediately receives it with joy. But he has no root and is short-lived. When distress or persecution comes because of the word, immediately he falls away.
 
 And
 
->Matthew 7:21–23 (CSB) “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father in heaven. On that day many will say to me, ‘Lord, Lord, didn’t we prophesy in your name, drive out demons in your name, and do many miracles in your name?’ Then I will announce to them, ‘I never knew you. Depart from me, you lawbreakers!’
+>Matthew 7:21–23 “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father in heaven. On that day many will say to me, ‘Lord, Lord, didn’t we prophesy in your name, drive out demons in your name, and do many miracles in your name?’ Then I will announce to them, ‘I never knew you. Depart from me, you lawbreakers!’
 
 Christ preaches these sermons not to shake the assurance of his people but rather, to show his people the power of God. When God does something, it will come to pass. And when it does, there are affects on the fringes of that power.
 
@@ -58,9 +58,9 @@ But for his people, to the believer, to you and I, God saves us and holds us to 
 
 ### yet not being effectually drawn by the Father, they neither will nor can truly come to Christ, and therefore cannot be saved:
 
->John 6:44–65 (CSB) No one can come to me unless the Father who sent me draws him, and I will raise him up on the last day. It is written in the Prophets: And they will all be taught by God. Everyone who has listened to and learned from the Father comes to me—not that anyone has seen the Father except the one who is from God. He has seen the Father. “Truly I tell you, anyone who believes has eternal life. I am the bread of life. Your ancestors ate the manna in the wilderness, and they died. This is the bread that comes down from heaven so that anyone may eat of it and not die. I am the living bread that came down from heaven. If anyone eats of this bread he will live forever. The bread that I will give for the life of the world is my flesh.” At that, the Jews argued among themselves, “How can this man give us his flesh to eat?” So Jesus said to them, “Truly I tell you, unless you eat the flesh of the Son of Man and drink his blood, you do not have life in yourselves. The one who eats my flesh and drinks my blood has eternal life, and I will raise him up on the last day, because my flesh is true food and my blood is true drink. The one who eats my flesh and drinks my blood remains in me, and I in him. Just as the living Father sent me and I live because of the Father, so the one who feeds on me will live because of me. This is the bread that came down from heaven; it is not like the manna your ancestors ate—and they died. The one who eats this bread will live forever.” He said these things while teaching in the synagogue in Capernaum. Therefore, when many of his disciples heard this, they said, “This teaching is hard. Who can accept it?” Jesus, knowing in himself that his disciples were grumbling about this, asked them, “Does this offend you? Then what if you were to observe the Son of Man ascending to where he was before? The Spirit is the one who gives life. The flesh doesn’t help at all. The words that I have spoken to you are spirit and are life. But there are some among you who don’t believe.” (For Jesus knew from the beginning those who did not believe and the one who would betray him.) He said, “This is why I told you that no one can come to me unless it is granted to him by the Father.”
+>John 6:44–65 No one can come to me unless the Father who sent me draws him, and I will raise him up on the last day. It is written in the Prophets: And they will all be taught by God. Everyone who has listened to and learned from the Father comes to me—not that anyone has seen the Father except the one who is from God. He has seen the Father. “Truly I tell you, anyone who believes has eternal life. I am the bread of life. Your ancestors ate the manna in the wilderness, and they died. This is the bread that comes down from heaven so that anyone may eat of it and not die. I am the living bread that came down from heaven. If anyone eats of this bread he will live forever. The bread that I will give for the life of the world is my flesh.” At that, the Jews argued among themselves, “How can this man give us his flesh to eat?” So Jesus said to them, “Truly I tell you, unless you eat the flesh of the Son of Man and drink his blood, you do not have life in yourselves. The one who eats my flesh and drinks my blood has eternal life, and I will raise him up on the last day, because my flesh is true food and my blood is true drink. The one who eats my flesh and drinks my blood remains in me, and I in him. Just as the living Father sent me and I live because of the Father, so the one who feeds on me will live because of me. This is the bread that came down from heaven; it is not like the manna your ancestors ate—and they died. The one who eats this bread will live forever.” He said these things while teaching in the synagogue in Capernaum. Therefore, when many of his disciples heard this, they said, “This teaching is hard. Who can accept it?” Jesus, knowing in himself that his disciples were grumbling about this, asked them, “Does this offend you? Then what if you were to observe the Son of Man ascending to where he was before? The Spirit is the one who gives life. The flesh doesn’t help at all. The words that I have spoken to you are spirit and are life. But there are some among you who don’t believe.” (For Jesus knew from the beginning those who did not believe and the one who would betray him.) He said, “This is why I told you that no one can come to me unless it is granted to him by the Father.”
 
->1 John 2:24–25 (CSB) What you have heard from the beginning is to remain in you. If what you have heard from the beginning remains in you, then you will remain in the Son and in the Father. And this is the promise that he himself made to us: eternal life.
+>1 John 2:24–25 What you have heard from the beginning is to remain in you. If what you have heard from the beginning remains in you, then you will remain in the Son and in the Father. And this is the promise that he himself made to us: eternal life.
 
 And that is the hard truth we must know of God: God saves whom he will save.
 
@@ -68,11 +68,11 @@ And immediately, one might think, "Why doesn't he just save everyone?"
 
 But we know:
 
->Romans 3:10–12 (CSB) as it is written: There is no one righteous, not even one. There is no one who understands; there is no one who seeks God. All have turned away; all alike have become worthless. There is no one who does what is good, not even one.
+>Romans 3:10–12 as it is written: There is no one righteous, not even one. There is no one who understands; there is no one who seeks God. All have turned away; all alike have become worthless. There is no one who does what is good, not even one.
 
 And
 
->Romans 3:23 (CSB) For all have sinned and fall short of the glory of God;
+>Romans 3:23 For all have sinned and fall short of the glory of God;
 
 We have all sinned mightily and completely against the Holy One of God. That sin deserves death.
 
@@ -86,17 +86,17 @@ But our mistakes have consequences. The bigger the mistake, the more severe the 
 
 But I have some good news to this bad news:
 
->Romans 6:23 (CSB) For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
+>Romans 6:23 For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
 
 God knew. God knew we were far because he knows our hearts. God knew we were too far from him and we were utterly helpless in getting back to him. God knew this.
 
 God knew this and he knew that. He knew that the wages of sin is death. And he knew that we would die in our sins and be apart from him forever. He saw the wickedness of our state and then sent his Son not only to live for us but to conquer sin and hell and Satan and demons by dying for us. Not only to die for us but to resurrect back to live and conquer death for us. Not only to resurrect for us but to ascend to the heavens in power to the right hand of the Father in order to intercede for us and rule and reign over all of creation.
 
->Romans 8:30 (CSB) And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
+>Romans 8:30 And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
 
 So what shall we say to these things?
 
->Romans 9:15 (CSB) For he tells Moses, I will show mercy to whom I will show mercy, and I will have compassion on whom I will have compassion.
+>Romans 9:15 For he tells Moses, I will show mercy to whom I will show mercy, and I will have compassion on whom I will have compassion.
 
 God is both perfectly in kindness and in wisdom. This plan of salvation? No way could we have concocted this scheme! How do I know? If we came up with the plan of salvation, then somehow, someway, we would make ourselves the hero of the story.
 
@@ -106,35 +106,35 @@ But you have best look at our God!
 
 For here is love:
 
->Genesis 3:15 (CSB) I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
+>Genesis 3:15 I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
 
 And here is love: 
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 And here is love:
 
->2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+>2 Corinthians 5:21 He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
 And here is love:
 
->Ezekiel 11:19–20 (CSB) I will give them integrity of heart and put a new spirit within them; I will remove their heart of stone from their bodies and give them a heart of flesh, so that they will follow my statutes, keep my ordinances, and practice them. They will be my people, and I will be their God.
+>Ezekiel 11:19–20 I will give them integrity of heart and put a new spirit within them; I will remove their heart of stone from their bodies and give them a heart of flesh, so that they will follow my statutes, keep my ordinances, and practice them. They will be my people, and I will be their God.
 
 And here is love:
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
 And here is love:
 
->Romans 8:1 (CSB) Therefore, there is now no condemnation for those in Christ Jesus,
+>Romans 8:1 Therefore, there is now no condemnation for those in Christ Jesus,
 
 And here is love:
 
->Romans 8:38–39 (CSB) For I am persuaded that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
+>Romans 8:38–39 For I am persuaded that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
 
 And here is love:
 
->Romans 9:25-26 (CSB) As it also says in Hosea,  
+>Romans 9:25-26 As it also says in Hosea,  
 >I will call Not My People, My People,  
 >and she who is Unloved, Beloved.  
 >And it will be in the place where they were told,  
@@ -147,7 +147,7 @@ And here is love:
 
 And here is love!
 
->Romans 5:8 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us.
+>Romans 5:8 But God proves his own love for us in that while we were still sinners, Christ died for us.
 
 Christ has not come for the heroes of the story--the strong, the brave, the might!
 
@@ -157,11 +157,11 @@ Christ has come to save his people!
 
 ### much less can men that do not receive the Christian religion be saved; be they never so diligent to frame their lives according to the light of nature and the law of that religion they do profess.
 
->Acts 4:12 (CSB) There is salvation in no one else, for there is no other name under heaven given to people by which we must be saved.”
+>Acts 4:12 There is salvation in no one else, for there is no other name under heaven given to people by which we must be saved.”
 
->John 4:22 (CSB) You Samaritans worship what you do not know. We worship what we do know, because salvation is from the Jews.
+>John 4:22 You Samaritans worship what you do not know. We worship what we do know, because salvation is from the Jews.
 
->John 17:3 (CSB) This is eternal life: that they may know you, the only true God, and the one you have sent—Jesus Christ.
+>John 17:3 This is eternal life: that they may know you, the only true God, and the one you have sent—Jesus Christ.
 
 It is not the church nor the pastor nor denomination nor the movement nor the theology nor your parents nor your family nor your baptism in water nor your filling of the Spirit nor anything is what saves you to God.
 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 122 (CSB)  
+>Psalm 122  
 ><sup></sup> A song of ascents. Of David. 
 >
 ><sup>1</sup> I rejoiced with those who said to me, “Let’s go to the house of the LORD.” 

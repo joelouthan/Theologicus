@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 145 (CSB)  
+>Psalm 145  
 ><sup></sup> A hymn of David. 
 >
 ><sup>1</sup> I exalt you, my God the King, and bless your name forever and ever. 

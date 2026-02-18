@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 41 (CSB)  
+>Psalm 41  
 ><sup></sup> For the choir director. A psalm of David. 
 >
 ><sup>1</sup> Happy is one who is considerate of the poor; the LORD will save him in a day of adversity. 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 23:4a (CSB)   Even when I go through the darkest valley
+>Psalm 23:4a   Even when I go through the darkest valley
 
 ## The Prayer
 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 134 (CSB)  
+>Psalm 134  
 ><sup></sup> A song of ascents. 
 >
 ><sup>1</sup> Now bless the LORD, all you servants of the LORD who stand in the LORD’s house at night! 

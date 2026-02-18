@@ -4,7 +4,7 @@
 
 ## The Text
 
->1 Timothy 3:1–7 (CSB)  
+>1 Timothy 3:1–7  
 ><sup> 1 </sup> This saying is trustworthy: “If anyone aspires to be an overseer, he desires a noble work.” 
 >
 ><sup> 2 </sup> An overseer, therefore, must be above reproach, the husband of one wife, self-controlled, sensible, respectable, hospitable, able to teach, 
@@ -57,17 +57,17 @@ I read this not as strictly "must be married" and to wholesale reject any single
 
 You know how I would read this in light of the entire Bible?
 
->1 Corinthians 6:18 (CSB) Flee sexual immorality! Every other sin a person commits is outside the body, but the person who is sexually immoral sins against his own body.
+>1 Corinthians 6:18 Flee sexual immorality! Every other sin a person commits is outside the body, but the person who is sexually immoral sins against his own body.
 
 An elder is one who flees from sexual sin. Single. Divorced. Married. Widowed. It matters not. If you are bought with the blood of Christ, we have the power of the Spirit to flee all sin including sexual sin.
 
 I don't think it is a coincidence that this passage from the end of 1 Corinthians 6 came to mind. If you are familiar with Paul's first letter to the church in Corinth, he just said:
 
->1 Corinthians 6:15-17 (CSB) Don’t you know that your bodies are a part of Christ’s body? So should I take a part of Christ’s body and make it part of a prostitute? Absolutely not! Don’t you know that anyone joined to a prostitute is one body with her? For Scripture says, The two will become one flesh. But anyone joined to the Lord is one spirit with him.
+>1 Corinthians 6:15-17 Don’t you know that your bodies are a part of Christ’s body? So should I take a part of Christ’s body and make it part of a prostitute? Absolutely not! Don’t you know that anyone joined to a prostitute is one body with her? For Scripture says, The two will become one flesh. But anyone joined to the Lord is one spirit with him.
 
 And then he will go on to say:
 
->1 Corinthians 6:19-20 (CSB) Don’t you know that your body is a temple of the Holy Spirit who is in you, whom you have from God? You are not your own, for you were bought at a price. So glorify God with your body.
+>1 Corinthians 6:19-20 Don’t you know that your body is a temple of the Holy Spirit who is in you, whom you have from God? You are not your own, for you were bought at a price. So glorify God with your body.
 
 And then finally address married and unmarried folk in chapter 7.
 
@@ -75,7 +75,7 @@ I don't think that is a coincidence.
 
 #### self-controlled, sensible, respectable
 
->Galatians 5:22-23 (CSB) But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control. The law is not against such things.
+>Galatians 5:22-23 But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control. The law is not against such things.
 
 These qualifications alone filters out the unqualified. These are not throwaway qualifications. I dare you to ask the Holy Spirit if He would call you self-controlled, sensible and respectable. Are you so at home? What about with your wife? What about with your kids? What about with the wait staff at your favorite restaurant?
 

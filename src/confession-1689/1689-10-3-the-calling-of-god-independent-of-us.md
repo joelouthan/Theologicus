@@ -8,7 +8,7 @@
 
 ## The Text
 
->Romans 1:18-19 (CSB) For God’s wrath is revealed from heaven against all godlessness and unrighteousness of people who by their unrighteousness suppress the truth, since what can be known about God is evident among them, because God has shown it to them.
+>Romans 1:18-19 For God’s wrath is revealed from heaven against all godlessness and unrighteousness of people who by their unrighteousness suppress the truth, since what can be known about God is evident among them, because God has shown it to them.
 
 ## The Chapter
 
@@ -16,9 +16,9 @@
 
 ## The Confession
 
->John 3:3–6 (CSB) Jesus replied, “Truly I tell you, unless someone is born again, he cannot see the kingdom of God.” “How can anyone be born when he is old?” Nicodemus asked him. “Can he enter his mother’s womb a second time and be born?” Jesus answered, “Truly I tell you, unless someone is born of water and the Spirit, he cannot enter the kingdom of God. Whatever is born of the flesh is flesh, and whatever is born of the Spirit is spirit.
+>John 3:3–6 Jesus replied, “Truly I tell you, unless someone is born again, he cannot see the kingdom of God.” “How can anyone be born when he is old?” Nicodemus asked him. “Can he enter his mother’s womb a second time and be born?” Jesus answered, “Truly I tell you, unless someone is born of water and the Spirit, he cannot enter the kingdom of God. Whatever is born of the flesh is flesh, and whatever is born of the Spirit is spirit.
 
->Matthew 6:33 (CSB) But seek first the kingdom of God and his righteousness, and all these things will be provided for you.
+>Matthew 6:33 But seek first the kingdom of God and his righteousness, and all these things will be provided for you.
 
 When you depart from right, proper, historical, orthodox theology, you end up having to make up some additional theories in order to cover what your new theology has left behind. Departure and rejection of Calvinistic soteriology and placed the salvation of man on man himself now exposes the question:
 
@@ -40,6 +40,6 @@ To tell you the truth, when it comes to the power of our wills and whether we ca
 
 We are just like the infant. We are just like the mentally handicap. All the IQ and EQ and knowledge and smarts and wisdom will not save us. God must have mercy on our souls. God must choose us. God must save us.
 
->John 3:8 (CSB) The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.”
+>John 3:8 The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.”
 
 The Spirit must give life. And to the elect--that would include the miscarried, the stillborn, the mentally handicap, dare I say, the emotionally handicap, the infant, the child, the teenager, the adult, or the elderly--the Spirit gives life so that God's people will now seek first the kingdom of God and his righteousness.

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 129 (CSB)  
+>Psalm 129  
 ><sup></sup> A song of ascents. 
 >
 ><sup>1</sup> Since my youth they have often attacked me— let Israel say— 

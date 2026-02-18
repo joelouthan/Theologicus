@@ -10,7 +10,7 @@
 # Praying Through: Psalm 16
 
 ## The Psalm
->Psalm 16 (CSB)  
+>Psalm 16  
 ><sup></sup> A Miktam of David. 
 >
 ><sup>1</sup> Protect me, God, for I take refuge in you. 

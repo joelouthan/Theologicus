@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 37 (CSB)  
+>Psalm 37  
 ><sup>4</sup> Take delight in the LORD, and he will give you your heart’s desires. 
 
 ## The Prayer

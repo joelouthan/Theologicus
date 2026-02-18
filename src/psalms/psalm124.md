@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 124 (CSB)  
+>Psalm 124  
 ><sup></sup> A song of ascents. Of David. 
 >
 ><sup>1</sup> If the LORD had not been on our side— let Israel say— 

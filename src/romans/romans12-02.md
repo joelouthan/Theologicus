@@ -4,7 +4,7 @@
 
 ## The Text
 
->Romans 12:2 (CSB) Do not be conformed to this age, but be transformed by the renewing of your mind, so that you may discern what is the good, pleasing, and perfect will of God. 
+>Romans 12:2 Do not be conformed to this age, but be transformed by the renewing of your mind, so that you may discern what is the good, pleasing, and perfect will of God. 
 
 ## The Introduction
 
@@ -12,7 +12,7 @@ I come into Romans 12 with much fear and trepidation. What do I mean by that? I 
 
 Romans 12:1 called his people to worship. We know that explicitly that Paul was not just speaking of singing but it can include singing unto the Lord. For:
 
->1 Corinthians 10:31 (CSB) So, whether you eat or drink, or whatever you do, do everything for the glory of God.
+>1 Corinthians 10:31 So, whether you eat or drink, or whatever you do, do everything for the glory of God.
 
 In other words, the entire life, essence, and being of the Christian is to "glorify God and enjoy him forever", as famously taught in the Westminster Catechism. Our lives are a worship to God. That is why Paul states that if what he wrote at the beginning of Romans is true (it is), then present your bodies as living sacrifices unto God--this is true worship.
 
@@ -40,17 +40,17 @@ Here is one more don't that I think neatly sums of the don'ts of the Ten Command
 
 ### Ours to Do: Do not be conformed to this age
 
->Colossians 2:8 (CSB) Be careful that no one takes you captive through philosophy and empty deceit based on human tradition, based on the elements of the world, rather than Christ.
+>Colossians 2:8 Be careful that no one takes you captive through philosophy and empty deceit based on human tradition, based on the elements of the world, rather than Christ.
 
->1 Timothy 1:3–4 (CSB) As I urged you when I went to Macedonia, remain in Ephesus so that you may instruct certain people not to teach false doctrine or to pay attention to myths and endless genealogies. These promote empty speculations rather than God’s plan, which operates by faith.
+>1 Timothy 1:3–4 As I urged you when I went to Macedonia, remain in Ephesus so that you may instruct certain people not to teach false doctrine or to pay attention to myths and endless genealogies. These promote empty speculations rather than God’s plan, which operates by faith.
 
->1 Timothy 4:7 (CSB) But have nothing to do with pointless and silly myths. Rather, train yourself in godliness.
+>1 Timothy 4:7 But have nothing to do with pointless and silly myths. Rather, train yourself in godliness.
 
->2 Peter 1:16 (CSB) For we did not follow cleverly contrived myths when we made known to you the power and coming of our Lord Jesus Christ; instead, we were eyewitnesses of his majesty.
+>2 Peter 1:16 For we did not follow cleverly contrived myths when we made known to you the power and coming of our Lord Jesus Christ; instead, we were eyewitnesses of his majesty.
 
 And if you don't think that God is most serious about his children not thinking the way of the word, look at the charge he gives preachers of the word:
 
->2 Timothy 4:1–5 (CSB) I solemnly charge you before God and Christ Jesus, who is going to judge the living and the dead, and because of his appearing and his kingdom: Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching. **For the time will come when people will not tolerate sound doctrine, but according to their own desires, will multiply teachers for themselves because they have an itch to hear what they want to hear. They will turn away from hearing the truth and will turn aside to myths.** But as for you, exercise self-control in everything, endure hardship, do the work of an evangelist, fulfill your ministry.
+>2 Timothy 4:1–5 I solemnly charge you before God and Christ Jesus, who is going to judge the living and the dead, and because of his appearing and his kingdom: Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching. **For the time will come when people will not tolerate sound doctrine, but according to their own desires, will multiply teachers for themselves because they have an itch to hear what they want to hear. They will turn away from hearing the truth and will turn aside to myths.** But as for you, exercise self-control in everything, endure hardship, do the work of an evangelist, fulfill your ministry.
 
 God says: Don't be conformed to this age.
 
@@ -64,7 +64,7 @@ So, I have written sixty-nine chapters expositing Romans and you think all of su
 
 ### Ours to Do: Be transformed by the renewing of your mind
 
->1 Corinthians 1:18–25 (CSB)  
+>1 Corinthians 1:18–25  
 ><sup>18</sup> For the word of the cross is foolishness to those who are perishing, but it is the power of God to us who are being saved. 
 >
 ><sup>19</sup> For it is written, I will destroy the wisdom of the wise, and I will set aside the intelligence of the intelligent. 
@@ -83,15 +83,15 @@ So, I have written sixty-nine chapters expositing Romans and you think all of su
 
 And
 
->1 Corinthians 2:12 (CSB) Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God.
+>1 Corinthians 2:12 Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God.
 
 And
 
->1 Corinthians 12:1–3 (CSB) Now concerning spiritual gifts: brothers and sisters, I do not want you to be unaware. You know that when you were pagans, you used to be enticed and led astray by mute idols. Therefore I want you to know that no one speaking by the Spirit of God says, “Jesus is cursed,” and no one can say, “Jesus is Lord,” except by the Holy Spirit.
+>1 Corinthians 12:1–3 Now concerning spiritual gifts: brothers and sisters, I do not want you to be unaware. You know that when you were pagans, you used to be enticed and led astray by mute idols. Therefore I want you to know that no one speaking by the Spirit of God says, “Jesus is cursed,” and no one can say, “Jesus is Lord,” except by the Holy Spirit.
 
 Or as Paul said earlier:
 
->Romans 7:24–25 (CSB) What a wretched man I am! Who will rescue me from this body of death? Thanks be to God through Jesus Christ our Lord! So then, with my mind I myself am serving the law of God, but with my flesh, the law of sin.
+>Romans 7:24–25 What a wretched man I am! Who will rescue me from this body of death? Thanks be to God through Jesus Christ our Lord! So then, with my mind I myself am serving the law of God, but with my flesh, the law of sin.
 
 How can Paul serve the law of God with his mind when members of his flesh are still at war with each other?
 
@@ -133,15 +133,15 @@ But doing the what you suggest? I promise you that this person you speak of is n
 
 ### Ours to Do: Discern what is the good, pleasing, and perfect will of God. 
 
->Ephesians 5:6–14 (CSB) Let no one deceive you with empty arguments, for God’s wrath is coming on the disobedient because of these things. Therefore, do not become their partners. For you were once darkness, but now you are light in the Lord. Walk as children of light—for the fruit of the light consists of all goodness, righteousness, and truth—testing what is pleasing to the Lord. Don’t participate in the fruitless works of darkness, but instead expose them. For it is shameful even to mention what is done by them in secret. Everything exposed by the light is made visible, for what makes everything visible is light. Therefore it is said: Get up, sleeper, and rise up from the dead, and Christ will shine on you.
+>Ephesians 5:6–14 Let no one deceive you with empty arguments, for God’s wrath is coming on the disobedient because of these things. Therefore, do not become their partners. For you were once darkness, but now you are light in the Lord. Walk as children of light—for the fruit of the light consists of all goodness, righteousness, and truth—testing what is pleasing to the Lord. Don’t participate in the fruitless works of darkness, but instead expose them. For it is shameful even to mention what is done by them in secret. Everything exposed by the light is made visible, for what makes everything visible is light. Therefore it is said: Get up, sleeper, and rise up from the dead, and Christ will shine on you.
 
->Philippians 4:8 (CSB) Finally brothers and sisters, whatever is true, whatever is honorable, whatever is just, whatever is pure, whatever is lovely, whatever is commendable—if there is any moral excellence and if there is anything praiseworthy—dwell on these things.
+>Philippians 4:8 Finally brothers and sisters, whatever is true, whatever is honorable, whatever is just, whatever is pure, whatever is lovely, whatever is commendable—if there is any moral excellence and if there is anything praiseworthy—dwell on these things.
 
->Colossians 1:9–14 (CSB) For this reason also, since the day we heard this, we haven’t stopped praying for you. We are asking that you may be filled with the knowledge of his will in all wisdom and spiritual understanding, so that you may walk worthy of the Lord, fully pleasing to him: bearing fruit in every good work and growing in the knowledge of God, being strengthened with all power, according to his glorious might, so that you may have great endurance and patience, joyfully giving thanks to the Father, who has enabled you to share in the saints’ inheritance in the light. He has rescued us from the domain of darkness and transferred us into the kingdom of the Son he loves. In him we have redemption, the forgiveness of sins.
+>Colossians 1:9–14 For this reason also, since the day we heard this, we haven’t stopped praying for you. We are asking that you may be filled with the knowledge of his will in all wisdom and spiritual understanding, so that you may walk worthy of the Lord, fully pleasing to him: bearing fruit in every good work and growing in the knowledge of God, being strengthened with all power, according to his glorious might, so that you may have great endurance and patience, joyfully giving thanks to the Father, who has enabled you to share in the saints’ inheritance in the light. He has rescued us from the domain of darkness and transferred us into the kingdom of the Son he loves. In him we have redemption, the forgiveness of sins.
 
 God does the saving. God does the transforming. God does the conforming. God does the renewing. God literally does it all. Why?
 
->Matthew 22:37–39 (CSB) He said to him, “Love the Lord your God with all your heart, with all your soul, and with all your mind. This is the greatest and most important command. The second is like it: Love your neighbor as yourself.
+>Matthew 22:37–39 He said to him, “Love the Lord your God with all your heart, with all your soul, and with all your mind. This is the greatest and most important command. The second is like it: Love your neighbor as yourself.
 
 So that you would love the Lord your God. So that you would love your neighbor as yourself.
 
@@ -151,7 +151,7 @@ Do not fret or worry or be anxious on how to love your neighbor. It will come to
 
 Trust in the Lord and in his work in you. And his work in you to change your mind about what you once were. 
 
->1 Corinthians 2:16 (CSB) For who has known the Lord’s mind, that he may instruct him? **But we have the mind of Christ.**
+>1 Corinthians 2:16 For who has known the Lord’s mind, that he may instruct him? **But we have the mind of Christ.**
 
 Now, we a mind by God, you can discern what is good, pleasing and the perfect will of God. And then you get to go do those things.
 

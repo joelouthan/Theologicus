@@ -4,7 +4,7 @@
 
 ## The Word
 
->Psalm 1:2-3 (CSB) Instead, his delight is in the LORD’s instruction,  
+>Psalm 1:2-3 Instead, his delight is in the LORD’s instruction,  
 >and he meditates on it day and night.  
 >He is like a tree planted beside flowing streams  
 >that bears its fruit in its season,  
@@ -13,7 +13,7 @@
 
 ## The Text
 
->Genesis 2:4-25 (CSB) These are the records of the heavens and the earth, concerning their creation. At the time that the LORD God made the earth and the heavens, no shrub of the field had yet grown on the land, and no plant of the field had yet sprouted, for the LORD God had not made it rain on the land, and there was no man to work the ground. But mist would come up from the earth and water all the ground. Then the LORD God formed the man out of the dust from the ground and breathed the breath of life into his nostrils, and the man became a living being.
+>Genesis 2:4-25 These are the records of the heavens and the earth, concerning their creation. At the time that the LORD God made the earth and the heavens, no shrub of the field had yet grown on the land, and no plant of the field had yet sprouted, for the LORD God had not made it rain on the land, and there was no man to work the ground. But mist would come up from the earth and water all the ground. Then the LORD God formed the man out of the dust from the ground and breathed the breath of life into his nostrils, and the man became a living being.
 >
 >The LORD God planted a garden in Eden, in the east, and there he placed the man he had formed. The LORD God caused to grow out of the ground every tree pleasing in appearance and good for food, including the tree of life in the middle of the garden, as well as the tree of the knowledge of good and evil.
 >
@@ -50,7 +50,7 @@ Life does not come from sin. Only death comes from sin. God is righteous--God is
 
 ><sup>4</sup> These are the records of the heavens and the earth, concerning their creation. At the time that the LORD God made the earth and the heavens, no shrub of the field had yet grown on the land, and no plant of the field had yet sprouted, for the LORD God had not made it rain on the land, and there was no man to work the ground. But mist would come up from the earth and water all the ground. Then the LORD God formed the man out of the dust from the ground and breathed the breath of life into his nostrils, and the man became a living being.
 
->John 1:1-5 (CSB) In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created. In him was life, and that life was the light of men. That light shines in the darkness, and yet the darkness did not overcome it.
+>John 1:1-5 In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created. In him was life, and that life was the light of men. That light shines in the darkness, and yet the darkness did not overcome it.
 
 ### God is righteous in our provision
 
@@ -58,14 +58,14 @@ If God, who is righteous, gives literal life, God is righteous in the provision 
 
 ><sup>8</sup> The LORD God planted a garden in Eden, in the east, and there he placed the man he had formed. The LORD God caused to grow out of the ground every tree pleasing in appearance and good for food, including the tree of life in the middle of the garden, as well as the tree of the knowledge of good and evil.
 
->Psalm 16:5-6 (CSB) LORD, you are my portion  
+>Psalm 16:5-6 LORD, you are my portion  
 >and my cup of blessing;  
 >you hold my future.  
 >The boundary lines have fallen for me  
 >in pleasant places;  
 >indeed, I have a beautiful inheritance.
 
->Matthew 6:31-34 (CSB) So don’t worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’ For the Gentiles eagerly seek all these things, and your heavenly Father knows that you need them. But seek first the kingdom of God and his righteousness, and all these things will be provided for you. Therefore don’t worry about tomorrow, because tomorrow will worry about itself. Each day has enough trouble of its own.
+>Matthew 6:31-34 So don’t worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’ For the Gentiles eagerly seek all these things, and your heavenly Father knows that you need them. But seek first the kingdom of God and his righteousness, and all these things will be provided for you. Therefore don’t worry about tomorrow, because tomorrow will worry about itself. Each day has enough trouble of its own.
 
 ### God is righteous despite the sin in the world
 
@@ -75,7 +75,7 @@ In other words, God is right standing and free from sin despite the brokenness o
 
 The psalmist describes creation and righteousness in this way:
 
->Psalm 1 (CSB) How happy is the one who does not  
+>Psalm 1 How happy is the one who does not  
 >walk in the advice of the wicked  
 >or stand in the pathway with sinners  
 >or sit in the company of mockers!  
@@ -94,11 +94,11 @@ The psalmist describes creation and righteousness in this way:
 
 That should sound familiar based on what John the Baptist said about Christ:
 
->Matthew 3:11-12 (CSB) “I baptize you with water for repentance, but the one who is coming after me is more powerful than I. I am not worthy to remove his sandals. He himself will baptize you with the Holy Spirit and fire. His winnowing shovel is in his hand, and he will clear his threshing floor and gather his wheat into the barn. But the chaff he will burn with fire that never goes out.”
+>Matthew 3:11-12 “I baptize you with water for repentance, but the one who is coming after me is more powerful than I. I am not worthy to remove his sandals. He himself will baptize you with the Holy Spirit and fire. His winnowing shovel is in his hand, and he will clear his threshing floor and gather his wheat into the barn. But the chaff he will burn with fire that never goes out.”
 
 Here's Paul explaining it all the way home:
 
->Romans 8:5-8 (CSB) For those who live according to the flesh have their minds set on the things of the flesh, but those who live according to the Spirit have their minds set on the things of the Spirit. Now the mindset of the flesh is death, but the mindset of the Spirit is life and peace. The mindset of the flesh is hostile to God because it does not submit to God’s law. Indeed, it is unable to do so. Those who are in the flesh cannot please God.
+>Romans 8:5-8 For those who live according to the flesh have their minds set on the things of the flesh, but those who live according to the Spirit have their minds set on the things of the Spirit. Now the mindset of the flesh is death, but the mindset of the Spirit is life and peace. The mindset of the flesh is hostile to God because it does not submit to God’s law. Indeed, it is unable to do so. Those who are in the flesh cannot please God.
 
 ### God is righteous in our vocation, calling, and work
 
@@ -108,7 +108,7 @@ We were not simply made to exist and merely survive. No, God has given us a purp
 
 Sin changed all of that. We must still work. We must still respond to the calling of God but God promises that it would be difficult.
 
->Genesis 3:17-19 (CSB) And he said to the man, “Because you listened to your wife and ate from the tree about which I commanded you, ‘Do not eat from it’:  
+>Genesis 3:17-19 And he said to the man, “Because you listened to your wife and ate from the tree about which I commanded you, ‘Do not eat from it’:  
 >The ground is cursed because of you.  
 >You will eat from it by means of painful labor  
 >all the days of your life.  
@@ -122,7 +122,7 @@ Sin changed all of that. We must still work. We must still respond to the callin
 
 God in Genesis 3 calls it "toil" and "painful labor". Look how Jesus describes his calling and purpose upon us:
 
->Acts 9:13-16 (CSB) “Lord,” Ananias answered, “I have heard from many people about this man, how much harm he has done to your saints in Jerusalem. And he has authority here from the chief priests to arrest all who call on your name.”
+>Acts 9:13-16 “Lord,” Ananias answered, “I have heard from many people about this man, how much harm he has done to your saints in Jerusalem. And he has authority here from the chief priests to arrest all who call on your name.”
 >
 >But the Lord said to him, “Go, for this man is my chosen instrument to take my name to Gentiles, kings, and Israelites. I will show him how much he must suffer for my name.”
 
@@ -134,7 +134,7 @@ God is free from sin. God is righteous. From that righteousness, God sets our bo
 
 ><sup>16</sup> And the LORD God commanded the man, “You are free to eat from any tree of the garden, but you must not eat from the tree of the knowledge of good and evil, for on the day you eat from it, you will certainly die.”
 
->2 Timothy 2:11-13 (CSB) This saying is trustworthy:  
+>2 Timothy 2:11-13 This saying is trustworthy:  
 >For if we died with him,  
 >we will also live with him;  
 >if we endure, we will also reign with him;  
@@ -162,7 +162,7 @@ I almost wanted to call this "vulnerability". But invulnerability didn't exist i
 
 Let me put it in another way:
 
->Song of Songs 1:2-4 (CSB)  
+>Song of Songs 1:2-4  
 >Oh, that he would kiss me with the kisses of his mouth!  
 >For your caresses are more delightful than wine.  
 >The fragrance of your perfume is intoxicating;  
@@ -183,7 +183,7 @@ That connection that a husband and wife feels, from sibling to sibling, to frien
 
 In other words:
 
->Ezekiel 11:19 (CSB) I will give them integrity of heart and put a new spirit within them; I will remove their heart of stone from their bodies and give them a heart of flesh,
+>Ezekiel 11:19 I will give them integrity of heart and put a new spirit within them; I will remove their heart of stone from their bodies and give them a heart of flesh,
 
 Why do you think Eve was taken from the rib of Adam? What is closest to the heart without ripping the heart out.
 
@@ -193,7 +193,7 @@ But what does God do for his people? Rips there sin-filled hearts and puts his r
 
 >This is why a man leaves his father and mother and bonds with his wife, and they become one flesh. Both the man and his wife were naked, yet felt no shame.
 
->Matthew 19:1-8 (CSB) When Jesus had finished saying these things, he departed from Galilee and went to the region of Judea across the Jordan. Large crowds followed him, and he healed them there. Some Pharisees approached him to test him. They asked, “Is it lawful for a man to divorce his wife on any grounds?”
+>Matthew 19:1-8 When Jesus had finished saying these things, he departed from Galilee and went to the region of Judea across the Jordan. Large crowds followed him, and he healed them there. Some Pharisees approached him to test him. They asked, “Is it lawful for a man to divorce his wife on any grounds?”
 >
 >“Haven’t you read,” he replied, “that he who created them in the beginning made them male and female, and he also said, ‘For this reason a man will leave his father and mother and be joined to his wife, and the two will become one flesh’? So they are no longer two, but one flesh. Therefore, what God has joined together, let no one separate.”
 >
@@ -211,7 +211,7 @@ The hard truth: we don't have this. None of it. Not intrinsically. Not automatic
 
 But here is the good news:
 
->2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+>2 Corinthians 5:21 He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
 Spell this out: The Father made Jesus, who did not know sin, to be sin for us so that in Christ, we might become the righteousness of God.
 
@@ -237,7 +237,7 @@ What are we to do?
 
 Believe in, trust, and obey the one who is True and Right and has, is, and will make all things right with Him--Jesus Christ.
 
->Revelation 22:8-21 (CSB) I, John, am the one who heard and saw these things. When I heard and saw them, I fell down to worship at the feet of the angel who had shown them to me. But he said to me, “Don’t do that! I am a fellow servant with you, your brothers the prophets, and those who keep the words of this book. Worship God!”
+>Revelation 22:8-21 I, John, am the one who heard and saw these things. When I heard and saw them, I fell down to worship at the feet of the angel who had shown them to me. But he said to me, “Don’t do that! I am a fellow servant with you, your brothers the prophets, and those who keep the words of this book. Worship God!”
 >
 >Then he said to me, “Don’t seal up the words of the prophecy of this book, because the time is near. Let the unrighteous go on in unrighteousness; let the filthy still be filthy; let the righteous go on in righteousness; let the holy still be holy.”
 >

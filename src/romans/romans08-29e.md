@@ -4,7 +4,7 @@
 
 ## The Text
 
->Romans 8:29 (CSB) For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
+>Romans 8:29 For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
 
 ## The Introduction
 
@@ -28,7 +28,7 @@ Not to Sunday School this and end it quickly, but the immediate and correct gues
 
 For
 
->Romans 8:14–17 (CSB)  For all those led by God’s Spirit are God’s sons. 15 For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” 16 The Spirit himself testifies together with our spirit that we are God’s children, 17 and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
+>Romans 8:14–17  For all those led by God’s Spirit are God’s sons. 15 For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” 16 The Spirit himself testifies together with our spirit that we are God’s children, 17 and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
 
 And just so we are clear: the term firstborn might be a weird adjective to describe the Word of God who has always been from eternally past. But remember that Christ is the Alpha and the Omega, the Beginning and the End —the creator, founder, begetter, and perfecter of our faith.
 
@@ -38,7 +38,7 @@ So, we see He is first and preeminent. But God did not just merely save us in or
 
 More than just merely saved from Hell and sin but to the presence of God himself: 
 
->Psalm 16:9–11 (CSB)  
+>Psalm 16:9–11  
 ><sup> 9 </sup> Therefore my heart is glad and my whole being rejoices; my body also rests securely. 
 >
 ><sup> 10 </sup> For you will not abandon me to Sheol; you will not allow your faithful one to see decay. 
@@ -47,11 +47,11 @@ More than just merely saved from Hell and sin but to the presence of God himself
 
 That we won’t simply die in sin, or stay the same but we will look like Him: 
 
->Psalm 17:15 (CSB) But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
+>Psalm 17:15 But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
 
 That once belong to Him, no one can take us away from him: 
 
->John 10:28-30 (CSB) I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
+>John 10:28-30 I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
 
 ## The Gospel
 
@@ -65,7 +65,7 @@ In a strange sense, the salvation plan of God was two-fold: to himself forever a
 
 Now, if you grew up in church, you have heard this verse thrown out just in mere passing that is sometimes used as some sort of heavy-handed law of God. “Don’t you dare miss church OR ELSE!” And I am going to repeat it here just to get it out of the way but not in mere passing but within context. Let us look at the entire passage.
 
->Hebrews 10:19-25 (CSB) Therefore, brothers and sisters, since we have boldness to enter the sanctuary through the blood of Jesus — he has inaugurated for us a new and living way through the curtain (that is, through his flesh) — and since we have a great high priest over the house of God, let us draw near with a true heart in full assurance of faith, with our hearts sprinkled clean from an evil conscience and our bodies washed in pure water. Let us hold on to the confession of our hope without wavering, since he who promised is faithful. And let us consider one another in order to provoke love and good works, not neglecting to gather together, as some are in the habit of doing, but encouraging each other, and all the more as you see the day approaching.
+>Hebrews 10:19-25 Therefore, brothers and sisters, since we have boldness to enter the sanctuary through the blood of Jesus — he has inaugurated for us a new and living way through the curtain (that is, through his flesh) — and since we have a great high priest over the house of God, let us draw near with a true heart in full assurance of faith, with our hearts sprinkled clean from an evil conscience and our bodies washed in pure water. Let us hold on to the confession of our hope without wavering, since he who promised is faithful. And let us consider one another in order to provoke love and good works, not neglecting to gather together, as some are in the habit of doing, but encouraging each other, and all the more as you see the day approaching.
 
 We are to meet together not to throw guilt, shame, and condemnation at one another but to build up each other in encouragement. (Sounds familiar? That’s why we have the gifts of the Spirit, particular with the gifts of encouragement and prophecy. )
 

@@ -8,7 +8,7 @@
 
 ## The Text
 
->Romans 5:12 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.
+>Romans 5:12 Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.
 
 ## The Chapter
 
@@ -18,7 +18,7 @@
 
 ### As God hath appointed the elect unto glory, so he hath, by the eternal and most free purpose of his will
 
->1 Peter 1:2 (CSB) according to the foreknowledge of God the Father, through the sanctifying work of the Spirit, to be obedient and to be sprinkled with the blood of Jesus Christ. May grace and peace be multiplied to you.
+>1 Peter 1:2 according to the foreknowledge of God the Father, through the sanctifying work of the Spirit, to be obedient and to be sprinkled with the blood of Jesus Christ. May grace and peace be multiplied to you.
 
 It is this point, I want to jump on a table and yell, "Have you not known!"
 
@@ -38,7 +38,7 @@ And because all of that, you have not your filthy self-righteousness but rather 
 
 Your most grievous sins? Cleansed.
 
->Isaiah 1:18 (CSB) Come, let’s settle this,”  
+>Isaiah 1:18 Come, let’s settle this,”  
 >says the LORD.  
 >“Though your sins are scarlet,  
 >they will be as white as snow;  
@@ -47,33 +47,33 @@ Your most grievous sins? Cleansed.
 
 Your most wicked sins? Covered.
 
->Psalm 85:2 (CSB) You forgave your people’s guilt;you covered all their sin. *Selah*
+>Psalm 85:2 You forgave your people’s guilt;you covered all their sin. *Selah*
 
 Your most vile sins? Removed.
 
->Psalm 103:12 (CSB) As far as the east is from the west, so far has he removed our transgressions from us.
+>Psalm 103:12 As far as the east is from the west, so far has he removed our transgressions from us.
 
 Your most monstrous sins? Forgiven.
 
->Psalm 103:3 (CSB) He forgives all your iniquity;he heals all your diseases.
+>Psalm 103:3 He forgives all your iniquity;he heals all your diseases.
 
 And because of what God has done through Jesus Christ his Son by the power of the Holy Spirit alone, you are his elect.
 
 ### foreordained all the means thereunto
 
->2 Thessalonians 2:13 (CSB) But we ought to thank God always for you, brothers and sisters loved by the Lord, because from the beginning God has chosen you for salvation through sanctification by the Spirit and through belief in the truth.
+>2 Thessalonians 2:13 But we ought to thank God always for you, brothers and sisters loved by the Lord, because from the beginning God has chosen you for salvation through sanctification by the Spirit and through belief in the truth.
 
->Acts 17:26-27 (CSB) From one man he has made every nationality to live over the whole earth and has determined their appointed times and the boundaries of where they live. He did this so that they might seek God, and perhaps they might reach out and find him, though he is not far from each one of us.
+>Acts 17:26-27 From one man he has made every nationality to live over the whole earth and has determined their appointed times and the boundaries of where they live. He did this so that they might seek God, and perhaps they might reach out and find him, though he is not far from each one of us.
 
 From the preaching of the gospel to Adam and Eve, through the Law and the Prophets and through the birth of the Church through the Protestant Reformation to the churches you have attended and under the preached word of God, God has foreordained from the beginning all the means so that you would look upon his Son and be saved. Salvation is of the Lord and his sanctifying work in your life is of the Lord.
 
 ### wherefore they who are elected, being fallen in Adam, are redeemed by Christ
 
->1 Thessalonians 5:9–10 (CSB) For God did not appoint us to wrath, but to obtain salvation through our Lord Jesus Christ, who died for us, so that whether we are awake or asleep, we may live together with him.
+>1 Thessalonians 5:9–10 For God did not appoint us to wrath, but to obtain salvation through our Lord Jesus Christ, who died for us, so that whether we are awake or asleep, we may live together with him.
 
 And:
 
->Romans 5:12-16 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned. In fact, sin was in the world before the law, but sin is not charged to a person’s account when there is no law. Nevertheless, death reigned from Adam to Moses, even over those who did not sin in the likeness of Adam’s transgression. He is a type of the Coming One.
+>Romans 5:12-16 Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned. In fact, sin was in the world before the law, but sin is not charged to a person’s account when there is no law. Nevertheless, death reigned from Adam to Moses, even over those who did not sin in the likeness of Adam’s transgression. He is a type of the Coming One.
 >
 >But the gift is not like the trespass. For if by the one man’s trespass the many died, how much more have the grace of God and the gift which comes through the grace of the one man Jesus Christ overflowed to the many. And the gift is not like the one man’s sin, because from one sin came the judgment, resulting in condemnation, but from many trespasses came the gift, resulting in justification.
 
@@ -93,7 +93,7 @@ Adam sinned. Christ redeems.
 
 ### are effectually called unto faith in Christ
 
->Romans 8:30 (CSB) And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
+>Romans 8:30 And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
 
 So God predestines. From there, God calls. When He actually calls, He actually saves. Salvation includes and new heart that springs forth new desires for God and His Spirit dwells within us.
 
@@ -101,7 +101,7 @@ If God charged a prophet to a call out to the valley of dry bones and they live,
 
 Consider the ultimate calling of God from death unto life.
 
->John 11:38–44 (CSB) Then Jesus, deeply moved again, came to the tomb. It was a cave, and a stone was lying against it. “Remove the stone,” Jesus said. Martha, the dead man’s sister, told him, “Lord, there is already a stench because he has been dead four days.” Jesus said to her, “Didn’t I tell you that if you believed you would see the glory of God?” So they removed the stone. Then Jesus raised his eyes and said, “Father, I thank you that you heard me. I know that you always hear me, but because of the crowd standing here I said this, so that they may believe you sent me.” After he said this, he shouted with a loud voice, “Lazarus, come out!” The dead man came out bound hand and foot with linen strips and with his face wrapped in a cloth. Jesus said to them, “Unwrap him and let him go.”
+>John 11:38–44 Then Jesus, deeply moved again, came to the tomb. It was a cave, and a stone was lying against it. “Remove the stone,” Jesus said. Martha, the dead man’s sister, told him, “Lord, there is already a stench because he has been dead four days.” Jesus said to her, “Didn’t I tell you that if you believed you would see the glory of God?” So they removed the stone. Then Jesus raised his eyes and said, “Father, I thank you that you heard me. I know that you always hear me, but because of the crowd standing here I said this, so that they may believe you sent me.” After he said this, he shouted with a loud voice, “Lazarus, come out!” The dead man came out bound hand and foot with linen strips and with his face wrapped in a cloth. Jesus said to them, “Unwrap him and let him go.”
 
 We know Jesus has raised those who were extremely ill to the point of being thought of as death. But Jesus quickly corrects with, “She’s just asleep”. But Lazarus was someone who was dead for four days. His body was wrapped and laid in the tomb.
 
@@ -117,7 +117,7 @@ Let us theorized that we know the number of the elect. That number is 92,203,292
 
 ### by his Spirit working in due season
 
->John 3:5-8 (CSB) Jesus answered, “Truly I tell you, unless someone is born of water and the Spirit, he cannot enter the kingdom of God. Whatever is born of the flesh is flesh, and whatever is born of the Spirit is spirit. Do not be amazed that I told you that you must be born again. **The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.**”
+>John 3:5-8 Jesus answered, “Truly I tell you, unless someone is born of water and the Spirit, he cannot enter the kingdom of God. Whatever is born of the flesh is flesh, and whatever is born of the Spirit is spirit. Do not be amazed that I told you that you must be born again. **The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.**”
 
 It is the work of the Spirit that brings us to faith in Christ. We don't know when the Spirit starts or just how he does it. But the moment you first believe, that is evident of the work of the Spirit.
 
@@ -127,23 +127,23 @@ There is no second baptism. There is no second or third or forth baptism of the 
 
 ### are justified, adopted, sanctified
 
->Romans 8:14–17 (CSB) For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
+>Romans 8:14–17 For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
 
->Philippians 1:6 (CSB) I am sure of this, that he who started a good work in you will carry it on to completion until the day of Christ Jesus.
+>Philippians 1:6 I am sure of this, that he who started a good work in you will carry it on to completion until the day of Christ Jesus.
 
->Hebrews 12:1–2 (CSB) Therefore, since we also have such a large cloud of witnesses surrounding us, let us lay aside every hindrance and the sin that so easily ensnares us. Let us run with endurance the race that lies before us, keeping our eyes on **Jesus, the pioneer and perfecter of our faith**. For the joy that lay before him, he endured the cross, despising the shame, and sat down at the right hand of the throne of God.
+>Hebrews 12:1–2 Therefore, since we also have such a large cloud of witnesses surrounding us, let us lay aside every hindrance and the sin that so easily ensnares us. Let us run with endurance the race that lies before us, keeping our eyes on **Jesus, the pioneer and perfecter of our faith**. For the joy that lay before him, he endured the cross, despising the shame, and sat down at the right hand of the throne of God.
 
 What God has started in you, God will finish in you. It is a done deal. We start things all the time and not finish them. God is not like us. What he starts, he completes it. If he started this work in you, he will bring it to completion. For:
 
->Psalm 17:15 (CSB) But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
+>Psalm 17:15 But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
 
 God will bring us all the way home. That is the gospel.
 
 ### kept by his power through faith unto salvation
 
->1 Peter 1:5 (CSB) You are being guarded by God’s power through faith for a salvation that is ready to be revealed in the last time.
+>1 Peter 1:5 You are being guarded by God’s power through faith for a salvation that is ready to be revealed in the last time.
 
->Ephesians 2:8–9 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—not from works, so that no one can boast.
+>Ephesians 2:8–9 For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—not from works, so that no one can boast.
 
 Pop quiz: What is God's gift to us in Ephesians 2:8-9? Is it:
 
@@ -159,7 +159,7 @@ Did that faith come from within you or is it because God gave you a new heart an
 
 Because God gives the gifts to his children to save them unto himself and it's not dependent on us at all to keep ourselves to God, we are locked in forever.
 
->John 10:25-30 (CSB) “I did tell you and you don’t believe,” Jesus answered them. “The works that I do in my Father’s name testify about me. But you don’t believe because you are not of my sheep. My sheep hear my voice, I know them, and they follow me. I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
+>John 10:25-30 “I did tell you and you don’t believe,” Jesus answered them. “The works that I do in my Father’s name testify about me. But you don’t believe because you are not of my sheep. My sheep hear my voice, I know them, and they follow me. I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
 
 This is the double snatch almighty grip of Almighty God the Father and the Almighty Lord Jesus Christ sealed by the Almighty Holy Spirit.
 
@@ -169,11 +169,11 @@ God has three times infinite grip on you. God is the perfect Father who does not
 
 ### neither are any other redeemed by Christ, or effectually called, justified, adopted, sanctified, and saved, but the elect only.
 
->John 10:26 (CSB) But you don’t believe because you are not of my sheep.
+>John 10:26 But you don’t believe because you are not of my sheep.
 
->John 17:9 (CSB) “I pray for them. I am not praying for the world but for those you have given me, because they are yours.
+>John 17:9 “I pray for them. I am not praying for the world but for those you have given me, because they are yours.
 
->John 6:64 (CSB) But there are some among you who don’t believe.” (For Jesus knew from the beginning those who did not believe and the one who would betray him.)
+>John 6:64 But there are some among you who don’t believe.” (For Jesus knew from the beginning those who did not believe and the one who would betray him.)
 
 Remember, election is not of us. It is not dependent on us. This is the secret counsel of God in his most holy and most wise. 
 
@@ -185,7 +185,7 @@ If God did any bit less than what he did to save you, my friend you would not be
 
 Consider this.
 
->Romans 8:34 (CSB) Who is the one who condemns? Christ Jesus is the one who died, but even more, has been raised; he also is at the right hand of God and intercedes for us.
+>Romans 8:34 Who is the one who condemns? Christ Jesus is the one who died, but even more, has been raised; he also is at the right hand of God and intercedes for us.
 
 Whom is Christ intercedes for the elect and non-elect? No, he intercedes for his people alone.
 
@@ -201,7 +201,7 @@ You are going to take your destiny based on your comparison to someone like Adol
 
 Do you want God? Do you want to believe? Do you trust and believe that God has done it all to save you from yourself and unto him?
 
->2 Corinthians 6:2 (CSB) For he says:  
+>2 Corinthians 6:2 For he says:  
 >At an acceptable time I listened to you,  
 >and in the day of salvation I helped you.  
 >See, now is the acceptable time; now is the day   of salvation!

@@ -6,13 +6,13 @@ Under the preaching of the Apostles
 
 Full of the Holy Spirit:
 
->Acts 6:5 (CSB)  This proposal pleased the whole company. So they chose Stephen, a man full of faith and the Holy Spirit, and Philip, Prochorus, Nicanor, Timon, Parmenas, and Nicolaus, a convert from Antioch.
+>Acts 6:5  This proposal pleased the whole company. So they chose Stephen, a man full of faith and the Holy Spirit, and Philip, Prochorus, Nicanor, Timon, Parmenas, and Nicolaus, a convert from Antioch.
 
 Taught and preached informally
 
 ### Powerfully
 
->Acts 6:8–15 (CSB)  Now Stephen, full of grace and power, was performing great wonders and signs among the people. 9 Opposition arose, however, from some members of the Freedmen’s Synagogue, composed of both Cyrenians and Alexandrians, and some from Cilicia and Asia, and they began to argue with Stephen. 10 But they were unable to stand up against his wisdom and the Spirit by whom he was speaking. 11 Then they secretly persuaded some men to say, “We heard him speaking blasphemous words against Moses and God.” 12 They stirred up the people, the elders, and the scribes; so they came, seized him, and took him to the Sanhedrin. 13 They also presented false witnesses who said, “This man never stops speaking against this holy place and the law. 14 For we heard him say that this Jesus of Nazareth will destroy this place and change the customs that Moses handed down to us.” 15 And all who were sitting in the Sanhedrin looked intently at him and saw that his face was like the face of an angel.
+>Acts 6:8–15  Now Stephen, full of grace and power, was performing great wonders and signs among the people. 9 Opposition arose, however, from some members of the Freedmen’s Synagogue, composed of both Cyrenians and Alexandrians, and some from Cilicia and Asia, and they began to argue with Stephen. 10 But they were unable to stand up against his wisdom and the Spirit by whom he was speaking. 11 Then they secretly persuaded some men to say, “We heard him speaking blasphemous words against Moses and God.” 12 They stirred up the people, the elders, and the scribes; so they came, seized him, and took him to the Sanhedrin. 13 They also presented false witnesses who said, “This man never stops speaking against this holy place and the law. 14 For we heard him say that this Jesus of Nazareth will destroy this place and change the customs that Moses handed down to us.” 15 And all who were sitting in the Sanhedrin looked intently at him and saw that his face was like the face of an angel.
 
 >Acts 6:10 (NASB95)  But **they were unable to cope with the wisdom and the Spirit with which he was speaking.**
 
@@ -27,7 +27,7 @@ Calm, confident, full of the Spirit:
 
 Exposits the Old Testament:
 
->Acts 7 (CSB)  
+>Acts 7  
 ><sup> 1 </sup> “Are these things true?” the high priest asked. 
 
 ><sup> 2 </sup> “Brothers and fathers,” he replied, “listen: The God of glory appeared to our father Abraham when he was in Mesopotamia, before he settled in Haran, 
@@ -138,9 +138,9 @@ Exposits the Old Testament:
 
 The results cut to the heart:
 
->Acts 7:54–60 (CSB)  When they heard these things, they were enraged and gnashed their teeth at him. 55 Stephen, full of the Holy Spirit, gazed into heaven. He saw the glory of God, and Jesus standing at the right hand of God. 
+>Acts 7:54–60  When they heard these things, they were enraged and gnashed their teeth at him. 55 Stephen, full of the Holy Spirit, gazed into heaven. He saw the glory of God, and Jesus standing at the right hand of God. 
 
->2 Timothy 4:1–5 (CSB)  I solemnly charge you before God and Christ Jesus, who is going to judge the living and the dead, and because of his appearing and his kingdom: 2 Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching. 3 For the time will come when people will not tolerate sound doctrine, but according to their own desires, will multiply teachers for themselves because they have an itch to hear what they want to hear. 4 They will turn away from hearing the truth and will turn aside to myths. 5 But as for you, exercise self-control in everything, endure hardship, do the work of an evangelist, fulfill your ministry.
+>2 Timothy 4:1–5  I solemnly charge you before God and Christ Jesus, who is going to judge the living and the dead, and because of his appearing and his kingdom: 2 Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching. 3 For the time will come when people will not tolerate sound doctrine, but according to their own desires, will multiply teachers for themselves because they have an itch to hear what they want to hear. 4 They will turn away from hearing the truth and will turn aside to myths. 5 But as for you, exercise self-control in everything, endure hardship, do the work of an evangelist, fulfill your ministry.
 
 ### Humbly
 
@@ -150,11 +150,11 @@ The results cut to the heart:
 
 ### Obediently
 
->Acts 8:26–40 (CSB)  An angel of the Lord spoke to Philip: “Get up and go south to the road that goes down from Jerusalem to Gaza.” (This is the desert road.) 
+>Acts 8:26–40  An angel of the Lord spoke to Philip: “Get up and go south to the road that goes down from Jerusalem to Gaza.” (This is the desert road.) 
 
 We go where God sends us.
 
->Revelation 1:16 (CSB)  He had seven stars in his right hand; a sharp double-edged sword came from his mouth, and his face was shining like the sun at full strength.
+>Revelation 1:16  He had seven stars in his right hand; a sharp double-edged sword came from his mouth, and his face was shining like the sun at full strength.
 
 >27 So he got up and went. There was an Ethiopian man, a eunuch and high official of Candace, queen of the Ethiopians, who was in charge of her entire treasury. He had come to worship in Jerusalem 28 and was sitting in his chariot on his way home, reading the prophet Isaiah aloud. 29 The Spirit told Philip, “Go and join that chariot.” 
 
@@ -170,7 +170,7 @@ We go where God sends us.
 
 ### Theologically
 
->Acts 15:13–21 (CSB)  After they stopped speaking, James responded, “Brothers, listen to me. 14 Simeon has reported how God first intervened to take from the Gentiles a people for his name.
+>Acts 15:13–21  After they stopped speaking, James responded, “Brothers, listen to me. 14 Simeon has reported how God first intervened to take from the Gentiles a people for his name.
 
 ### Doctrinally
 
@@ -184,12 +184,12 @@ When you speak, Scripture flows out and teaches doctrinally
 
 ### Soberly
 
->James 3:1 (CSB)  Not many should become teachers, my brothers, because you know that we will receive a stricter judgment.
+>James 3:1  Not many should become teachers, my brothers, because you know that we will receive a stricter judgment.
 
->2 Timothy 2:15 (CSB)  Be diligent to present yourself to God as one approved, a worker who doesn’t need to be ashamed, correctly teaching the word of truth.
+>2 Timothy 2:15  Be diligent to present yourself to God as one approved, a worker who doesn’t need to be ashamed, correctly teaching the word of truth.
 
 We will give an account to God for our preaching. Period.
 
->1 Corinthians 3:10–15 (CSB)  According to God’s grace that was given to me, I have laid a foundation as a skilled master builder, and another builds on it. But each one is to be careful how he builds on it. 11 For no one can lay any foundation other than what has been laid down. That foundation is Jesus Christ. 12 If anyone builds on the foundation with gold, silver, costly stones, wood, hay, or straw, 13 each one’s work will become obvious. For the day will disclose it, because it will be revealed by fire; the fire will test the quality of each one’s work. 14 If anyone’s work that he has built survives, he will receive a reward. 15 If anyone’s work is burned up, he will experience loss, but he himself will be saved—but only as through fire.
+>1 Corinthians 3:10–15  According to God’s grace that was given to me, I have laid a foundation as a skilled master builder, and another builds on it. But each one is to be careful how he builds on it. 11 For no one can lay any foundation other than what has been laid down. That foundation is Jesus Christ. 12 If anyone builds on the foundation with gold, silver, costly stones, wood, hay, or straw, 13 each one’s work will become obvious. For the day will disclose it, because it will be revealed by fire; the fire will test the quality of each one’s work. 14 If anyone’s work that he has built survives, he will receive a reward. 15 If anyone’s work is burned up, he will experience loss, but he himself will be saved—but only as through fire.
 
 All the crap that we preach will go up in flames and smoke

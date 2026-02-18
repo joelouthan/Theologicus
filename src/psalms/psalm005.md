@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 5 (CSB)  
+>Psalm 5  
 ><sup></sup> For the choir director: with the flutes. A psalm of David. 
 >
 ><sup>1</sup> Listen to my words, LORD; consider my sighing. 

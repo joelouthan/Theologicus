@@ -4,7 +4,7 @@
 
 ## The Text
 
->2 Timothy 1:8–12 (CSB)  
+>2 Timothy 1:8–12  
 ><sup> 8 </sup> So don’t be ashamed of the testimony about our Lord, or of me his prisoner. Instead, share in suffering for the gospel, relying on the power of God. 
 >
 ><sup> 9 </sup> He has saved us and called us with a holy calling, not according to our works, but according to his own purpose and grace, which was given to us in Christ Jesus before time began. 
@@ -35,7 +35,7 @@ And you you want to know what it looks like if you are not? Either going your ow
 
 But because Christ has suffered for us, so too we are going to suffer for the sake of his name:
 
->Romans 8:16-18 (CSB) The Spirit himself testifies together with our spirit that we are God’s children, 17 and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him. 18 For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us.
+>Romans 8:16-18 The Spirit himself testifies together with our spirit that we are God’s children, 17 and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him. 18 For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us.
 
 We have a temporary moment here on earth. Do you want to make it easy or do you want to suffer for the sake of the gospel? Would you actually want to do something that would change the eternal destination of every one around you? That you saw that person--your family member, your friend, you spouse, your kid, you co-worker, your neighbor, your enemy--and hope and pray and ask God that you would get to see them again in the presence of God worshipping God for all of our days?
 
@@ -45,15 +45,15 @@ You say, "I don't know how to evangelize. I don't know the Bible that well. I ca
 
 Do you know how to love one another? Start with loving your brother and sister, for:
 
->John 13:34-35 (CSB) I give you a new command: Love one another. Just as I have loved you, you are also to love one another. 35 By this everyone will know that you are my disciples, if you love one another.”
+>John 13:34-35 I give you a new command: Love one another. Just as I have loved you, you are also to love one another. 35 By this everyone will know that you are my disciples, if you love one another.”
 
 and
 
->John 15:12-17 (CSB) “This is my command: Love one another as I have loved you. 13 No one has greater love than this: to lay down his life for his friends. 14 You are my friends if you do what I command you. 15 I do not call you servants anymore, because a servant doesn’t know what his master is doing. I have called you friends, because I have made known to you everything I have heard from my Father. 16 You did not choose me, but I chose you. I appointed you to go and produce fruit and that your fruit should remain, so that whatever you ask the Father in my name, he will give you. 17 “This is what I command you: Love one another.
+>John 15:12-17 “This is my command: Love one another as I have loved you. 13 No one has greater love than this: to lay down his life for his friends. 14 You are my friends if you do what I command you. 15 I do not call you servants anymore, because a servant doesn’t know what his master is doing. I have called you friends, because I have made known to you everything I have heard from my Father. 16 You did not choose me, but I chose you. I appointed you to go and produce fruit and that your fruit should remain, so that whatever you ask the Father in my name, he will give you. 17 “This is what I command you: Love one another.
 
 and
 
->1 John 4:11-14 (CSB) Dear friends, if God loved us in this way, we also must love one another. 12 No one has ever seen God. If we love one another, God remains in us and his love is made complete in us. 13 This is how we know that we remain in him and he in us: He has given us of his Spirit. 14 And we have seen and we testify that the Father has sent his Son as the world’s Savior.
+>1 John 4:11-14 Dear friends, if God loved us in this way, we also must love one another. 12 No one has ever seen God. If we love one another, God remains in us and his love is made complete in us. 13 This is how we know that we remain in him and he in us: He has given us of his Spirit. 14 And we have seen and we testify that the Father has sent his Son as the world’s Savior.
 
 Start there. Out of your love for one another will the world know that you are a disciples of Christ.
 
@@ -69,7 +69,7 @@ Go read John 21.
 
 ### Build out your life upon the gospel of God
 
->Matthew 7:24-29 (CSB) “Therefore, everyone who hears these words of mine and acts on them will be like a wise man who built his house on the rock. 25 The rain fell, the rivers rose, and the winds blew and pounded that house. Yet it didn’t collapse, because its foundation was on the rock. 26 But everyone who hears these words of mine and doesn’t act on them will be like a foolish man who built his house on the sand. 27 The rain fell, the rivers rose, the winds blew and pounded that house, and it collapsed. It collapsed with a great crash.” 28 When Jesus had finished saying these things, the crowds were astonished at his teaching, 29 because he was teaching them like one who had authority, and not like their scribes.
+>Matthew 7:24-29 “Therefore, everyone who hears these words of mine and acts on them will be like a wise man who built his house on the rock. 25 The rain fell, the rivers rose, and the winds blew and pounded that house. Yet it didn’t collapse, because its foundation was on the rock. 26 But everyone who hears these words of mine and doesn’t act on them will be like a foolish man who built his house on the sand. 27 The rain fell, the rivers rose, the winds blew and pounded that house, and it collapsed. It collapsed with a great crash.” 28 When Jesus had finished saying these things, the crowds were astonished at his teaching, 29 because he was teaching them like one who had authority, and not like their scribes.
 
 There are two ways to do this: do it your own way or rest, lean, build, and trust in the purposes, grace, holiness of God that is only found in the Jesus Christ our Lord.
 
@@ -81,7 +81,7 @@ How is anything in we do in love and ministering, caring for, thinking about, pr
 
 But God sent his Son to live and minister to others so that we might live and minister to one another.
 
->John 1:45-46 (CSB) Philip found Nathanael and told him, “We have found the one Moses wrote about in the law (and so did the prophets): Jesus the son of Joseph, from Nazareth.” 46 “Can anything good come out of Nazareth?” Nathanael asked him. “Come and see,” Philip answered.
+>John 1:45-46 Philip found Nathanael and told him, “We have found the one Moses wrote about in the law (and so did the prophets): Jesus the son of Joseph, from Nazareth.” 46 “Can anything good come out of Nazareth?” Nathanael asked him. “Come and see,” Philip answered.
 
 God is not asking you to be perfect or have it figured it out. He is calling you to obey His Son and do what he does in the power of the Spirit. God is inviting you along with the Spirit and the Church to, "Come and see." Come and see his glory and fall more in love with God every day of your life.
 
@@ -89,7 +89,7 @@ God is not asking you to be perfect or have it figured it out. He is calling you
 
 ### Proclaim through your life for the gospel of God
 
->1 Corinthians 15:1-8 (CSB) Now I want to make clear for you, brothers and sisters, the gospel I preached to you, which you received, on which you have taken your stand 2 and by which you are being saved, if you hold to the message I preached to you—unless you believed in vain. 3 For I passed on to you as most important what I also received: that Christ died for our sins according to the Scriptures, 4 that he was buried, that he was raised on the third day according to the Scriptures, 5 and that he appeared to Cephas, then to the Twelve. 6 Then he appeared to over five hundred brothers and sisters at one time; most of them are still alive, but some have fallen asleep. 7 Then he appeared to James, then to all the apostles. 8 Last of all, as to one born at the wrong time, he also appeared to me.
+>1 Corinthians 15:1-8 Now I want to make clear for you, brothers and sisters, the gospel I preached to you, which you received, on which you have taken your stand 2 and by which you are being saved, if you hold to the message I preached to you—unless you believed in vain. 3 For I passed on to you as most important what I also received: that Christ died for our sins according to the Scriptures, 4 that he was buried, that he was raised on the third day according to the Scriptures, 5 and that he appeared to Cephas, then to the Twelve. 6 Then he appeared to over five hundred brothers and sisters at one time; most of them are still alive, but some have fallen asleep. 7 Then he appeared to James, then to all the apostles. 8 Last of all, as to one born at the wrong time, he also appeared to me.
 
 If you don't believe this gospel, there is nothing to be ashamed. I don't care if you have been going to church all of your life and you still don't get it. But you not reaching out to someone on your right or your left or any pastor or anybody else in church and just yell out, "I don't know God." Don't presume everything is going to work itself out in end. You take that route and you will end up under the eternal wrath of Jesus Christ. Don't be like that. You no longer have to pretend. Call out to God. Ask for help. All the ministers and saints of God have the rest of our lives to show you the love and grace of God. Some are going to do it in their own way. That is the goodness of God.
 
@@ -99,6 +99,6 @@ Now, for those who hear the gospel in the past and believe, you heard this gospe
 
 ### Rejoice with your life for the gospel of God
 
->Romans 15:14-19 (CSB) My brothers and sisters, I myself am convinced about you that you also are full of goodness, filled with all knowledge, and able to instruct one another. 15 Nevertheless, I have written to remind you more boldly on some points because of the grace given me by God 16 to be a minister of Christ Jesus to the Gentiles, serving as a priest of the gospel of God. God’s purpose is that the Gentiles may be an acceptable offering, sanctified by the Holy Spirit. 17 Therefore I have reason to boast in Christ Jesus regarding what pertains to God. 18 For I would not dare say anything except what Christ has accomplished through me by word and deed for the obedience of the Gentiles, 19 by the power of miraculous signs and wonders, and by the power of God’s Spirit. As a result, I have fully proclaimed the gospel of Christ from Jerusalem all the way around to Illyricum.
+>Romans 15:14-19 My brothers and sisters, I myself am convinced about you that you also are full of goodness, filled with all knowledge, and able to instruct one another. 15 Nevertheless, I have written to remind you more boldly on some points because of the grace given me by God 16 to be a minister of Christ Jesus to the Gentiles, serving as a priest of the gospel of God. God’s purpose is that the Gentiles may be an acceptable offering, sanctified by the Holy Spirit. 17 Therefore I have reason to boast in Christ Jesus regarding what pertains to God. 18 For I would not dare say anything except what Christ has accomplished through me by word and deed for the obedience of the Gentiles, 19 by the power of miraculous signs and wonders, and by the power of God’s Spirit. As a result, I have fully proclaimed the gospel of Christ from Jerusalem all the way around to Illyricum.
 
 Paul tells Timothy, you and me: It takes all of the Triune God to save his people from their sins. From the sovereign grace of the Father through the blood drained and broken body of his precious Son by the Almighty power of his Spirit, it wasn't easy, fast nor cheap. But to rescue you and me from death, it was all worth.

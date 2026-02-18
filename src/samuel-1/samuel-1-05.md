@@ -4,7 +4,7 @@
 
 ## The Word
 
->Isaiah 45:4-7 (CSB) I call you by your name,  
+>Isaiah 45:4-7 I call you by your name,  
 >for the sake of my servant Jacob  
 >and Israel my chosen one.  
 >I give a name to you,  
@@ -22,7 +22,7 @@
 
 ## The Passage
 
->1 Samuel 5 (CSB)  
+>1 Samuel 5  
 ><sup>1</sup> After the Philistines had captured the ark of God, they took it from Ebenezer to Ashdod, 
 >
 ><sup>2</sup> brought it into the temple of Dagon and placed it next to his statue. 
@@ -57,11 +57,11 @@
 
 ### There Are No Other Gods: The Head of Every Other Religion is a Demon
 
->Exodus 20:2 (CSB) I am the LORD your God, who brought you out of the land of Egypt, out of the place of slavery.
+>Exodus 20:2 I am the LORD your God, who brought you out of the land of Egypt, out of the place of slavery.
 
->1 Corinthians 10:20 (CSB) No, but I do say that what they sacrifice, they sacrifice to demons and not to God. I do not want you to be participants with demons!
+>1 Corinthians 10:20 No, but I do say that what they sacrifice, they sacrifice to demons and not to God. I do not want you to be participants with demons!
 
->Deuteronomy 32:16-17 (CSB) They provoked his jealousy with different gods;  
+>Deuteronomy 32:16-17 They provoked his jealousy with different gods;  
 >they enraged him with detestable practices.  
 >They sacrificed to demons, not God,
 >to gods they had not known,  
@@ -78,14 +78,14 @@
 
 ### There Are No Other Gods: The Demons Know Who God Is
 
->Exodus 20:3 (CSB) Do not have other gods besides me.
+>Exodus 20:3 Do not have other gods besides me.
 
->Luke 8:27-33 (CSB) When he got out on land, a demon-possessed man from the town met him. For a long time he had worn no clothes and did not stay in a house but in the tombs. When he saw Jesus, he cried out, fell down before him, and said in a loud voice, “What do you have to do with me, Jesus, Son of the Most High God? I beg you, don’t torment me! ” For he had commanded the unclean spirit to come out of the man. Many times it had seized him, and though he was guarded, bound by chains and shackles, he would snap the restraints and be driven by the demon into deserted places.
+>Luke 8:27-33 When he got out on land, a demon-possessed man from the town met him. For a long time he had worn no clothes and did not stay in a house but in the tombs. When he saw Jesus, he cried out, fell down before him, and said in a loud voice, “What do you have to do with me, Jesus, Son of the Most High God? I beg you, don’t torment me! ” For he had commanded the unclean spirit to come out of the man. Many times it had seized him, and though he was guarded, bound by chains and shackles, he would snap the restraints and be driven by the demon into deserted places.
 >“What is your name? ” Jesus asked him.
 >“Legion,” he said, because many demons had entered him. And they begged him not to banish them to the abyss.
 >A large herd of pigs was there, feeding on the hillside. The demons begged him to permit them to enter the pigs, and he gave them permission. The demons came out of the man and entered the pigs, and the herd rushed down the steep bank into the lake and drowned.
 
->James 2:19 (CSB) You believe that God is one. Good! Even the demons believe — and they shudder.
+>James 2:19 You believe that God is one. Good! Even the demons believe — and they shudder.
 
 ---
 
@@ -95,11 +95,11 @@
 
 ### There Are No Other Gods: The Wages of Our Idolatry is Death
 
->Exodus 20:4 (CSB) Do not make an idol for yourself, whether in the shape of anything in the heavens above or on the earth below or in the waters under the earth.
+>Exodus 20:4 Do not make an idol for yourself, whether in the shape of anything in the heavens above or on the earth below or in the waters under the earth.
 
->Romans 6:23 (CSB) For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
+>Romans 6:23 For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
 
->1 Corinthians 10:21-22 (CSB) You cannot drink the cup of the Lord and the cup of demons. You cannot share in the Lord’s table and the table of demons. Or are we provoking the Lord to jealousy? Are we stronger than he?
+>1 Corinthians 10:21-22 You cannot drink the cup of the Lord and the cup of demons. You cannot share in the Lord’s table and the table of demons. Or are we provoking the Lord to jealousy? Are we stronger than he?
 
 ---
 
@@ -113,18 +113,18 @@
 
 ### There Are No Other Gods: We Cannot Worship Any Other Gods
 
->Exodus 20:5 (CSB) Do not bow in worship to them, and do not serve them; for I, the LORD your God, am a jealous God, bringing the consequences of the fathers’ iniquity on the children to the third and fourth generations of those who hate me,
+>Exodus 20:5 Do not bow in worship to them, and do not serve them; for I, the LORD your God, am a jealous God, bringing the consequences of the fathers’ iniquity on the children to the third and fourth generations of those who hate me,
 
->1 Corinthians 10:14 (CSB) Therefore, my dear friends, flee from idolatry.
+>1 Corinthians 10:14 Therefore, my dear friends, flee from idolatry.
 
->Psalm 97:9-10 (CSB) For you, LORD,  
+>Psalm 97:9-10 For you, LORD,  
 >are the Most High over the whole earth;  
 >you are exalted above all the gods.  
 >You who love the LORD, hate evil!  
 >He protects the lives of his faithful ones;  
 >he rescues them from the power of the wicked.
 
->John 6:66-69 (CSB) From that moment many of his disciples turned back and no longer accompanied him. So Jesus said to the Twelve, “You don’t want to go away too, do you? ” Simon Peter answered, “Lord, to whom will we go? You have the words of eternal life. We have come to believe and know that you are the Holy One of God.”
+>John 6:66-69 From that moment many of his disciples turned back and no longer accompanied him. So Jesus said to the Twelve, “You don’t want to go away too, do you? ” Simon Peter answered, “Lord, to whom will we go? You have the words of eternal life. We have come to believe and know that you are the Holy One of God.”
 
 ---
 
@@ -132,13 +132,13 @@
 
 ### There Are No Other Gods: The Lord God is Holy and Steadfast Love For His People
 
->Exodus 20:6-7 (CSB) but showing faithful love to a thousand generations of those who love me and keep my commands. Do not misuse the name of the LORD your God, because the LORD will not leave anyone unpunished who misuses his name.
+>Exodus 20:6-7 but showing faithful love to a thousand generations of those who love me and keep my commands. Do not misuse the name of the LORD your God, because the LORD will not leave anyone unpunished who misuses his name.
 
 ---
 
 ## The Song
 
->Isaiah 42:5–9 (CSB)  
+>Isaiah 42:5–9  
 ><sup>5</sup> This is what God, the LORD, says— who created the heavens and stretched them out, who spread out the earth and what comes from it, who gives breath to the people on it and spirit to those who walk on it— 
 >
 ><sup>6</sup> “I am the LORD. I have called you for a righteous purpose, and I will hold you by your hand. I will watch over you, and I will appoint you to be a covenant for the people and a light to the nations, 

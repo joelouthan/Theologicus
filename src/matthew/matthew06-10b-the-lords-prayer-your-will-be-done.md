@@ -9,7 +9,7 @@
 ## The Devotion
 ## Pray Then Like This
 
->Matthew 6:10b (CSB) Your will be done
+>Matthew 6:10b Your will be done
 
 ## Your Will Be Done
 

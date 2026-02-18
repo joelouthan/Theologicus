@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 33:8 (CSB)   Let the whole earth fear the LORD; let all the inhabitants of the world stand in awe of him.
+>Psalm 33:8   Let the whole earth fear the LORD; let all the inhabitants of the world stand in awe of him.
 
 ## The Prayer
 

@@ -4,7 +4,7 @@
 
 ## The Text
 
->1 Timothy 2:8–15 (CSB)  
+>1 Timothy 2:8–15  
 ><sup>8</sup> Therefore, I want the men in every place to pray, lifting up holy hands without anger or argument. 
 >
 ><sup>9</sup> Also, the women are to dress themselves in modest clothing, with decency and good sense, not with elaborate hairstyles, gold, pearls, or expensive apparel, 
@@ -53,7 +53,7 @@ Let us deal with the elephant in the room. Because I don't think any other passa
 
 Let us not forget the beginning of the chapter where Paul tells Timothy:
 
->1 Timothy 2:1-2 (CSB) First of all, then, I urge that petitions, prayers, intercessions, and thanksgivings be made for everyone, for kings and all those who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity.
+>1 Timothy 2:1-2 First of all, then, I urge that petitions, prayers, intercessions, and thanksgivings be made for everyone, for kings and all those who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity.
 
 Men, you lead a tranquil and quiet life in all godliness and dignity.
 
@@ -69,19 +69,19 @@ So when I read:
 
 And yet I am charged by God with keep all of the Scripture in mind and here are just a few examples throughout the Bible:
 
->Judges 4:4 (CSB) Deborah, a prophetess and the wife of Lappidoth, was judging Israel at that time.
+>Judges 4:4 Deborah, a prophetess and the wife of Lappidoth, was judging Israel at that time.
 
->Romans 16:1-6 (CSB) I commend to you our sister Phoebe, who is a servant of the church in Cenchreae. So you should welcome her in the Lord in a manner worthy of the saints and assist her in whatever matter she may require your help. For indeed she has been a benefactor of many—and of me also.
+>Romans 16:1-6 I commend to you our sister Phoebe, who is a servant of the church in Cenchreae. So you should welcome her in the Lord in a manner worthy of the saints and assist her in whatever matter she may require your help. For indeed she has been a benefactor of many—and of me also.
 >
 >Give my greetings to Prisca and Aquila, my coworkers in Christ Jesus, who risked their own necks for my life. Not only do I thank them, but so do all the Gentile churches. Greet also the church that meets in their home. Greet my dear friend Epaenetus, who is the first convert to Christ from Asia. Greet Mary, who has worked very hard for you.
 
 Many translations call Phoebe a deaconess.
 
->Acts 18:24-26 (CSB) Now a Jew named Apollos, a native Alexandrian, an eloquent man who was competent in the use of the Scriptures, arrived in Ephesus. He had been instructed in the way of the Lord; and being fervent in spirit, he was speaking and teaching accurately about Jesus, although he knew only John’s baptism. He began to speak boldly in the synagogue. After Priscilla and Aquila heard him, they took him aside and explained the way of God to him more accurately.
+>Acts 18:24-26 Now a Jew named Apollos, a native Alexandrian, an eloquent man who was competent in the use of the Scriptures, arrived in Ephesus. He had been instructed in the way of the Lord; and being fervent in spirit, he was speaking and teaching accurately about Jesus, although he knew only John’s baptism. He began to speak boldly in the synagogue. After Priscilla and Aquila heard him, they took him aside and explained the way of God to him more accurately.
 
 Both wife and husband took Apollos aside and gave him some theological and doctrinal teaching and sent him on his way.
 
->John 20:17-18 (CSB) “Don’t cling to me,” Jesus told her, “since I have not yet ascended to the Father. But go to my brothers and tell them that I am ascending to my Father and your Father, to my God and your God.”
+>John 20:17-18 “Don’t cling to me,” Jesus told her, “since I have not yet ascended to the Father. But go to my brothers and tell them that I am ascending to my Father and your Father, to my God and your God.”
 >
 >Mary Magdalene went and announced to the disciples, “I have seen the Lord!” And she told them what he had said to her.
 
@@ -103,13 +103,13 @@ That is where I land: men and women of the body, don't become disruptive nor unr
 
 We keep this in mind with Romans 5:12-21. In other words, no one in their right mind would suggest that Paul is saying that Adam did not sin. Woman was deceived and transgressed. Paul is not saying anything controversial here. He is quoting Eve:
 
->Genesis 3:13 (CSB) So the LORD God asked the woman, “What have you done? ” And the woman said, “The serpent deceived me, and I ate.”
+>Genesis 3:13 So the LORD God asked the woman, “What have you done? ” And the woman said, “The serpent deceived me, and I ate.”
 
 Adam was passively not protecting his wife and transgressed. I know because of Genesis 3 and Romans 5:12-21.
 
 As far as being saved through childbearing. This ties straight back to Genesis 3:
 
->Genesis 3:20 (CSB) The man named his wife Eve because she was the mother of all the living.
+>Genesis 3:20 The man named his wife Eve because she was the mother of all the living.
 
 That is exclusively for all believers. This ties right back to the first proclamation of the gospel:
 
@@ -121,7 +121,7 @@ That is exclusively for all believers. This ties right back to the first proclam
 
 And
 
->Galatians 3:16 (CSB) Now the promises were spoken to Abraham and to his seed. He does not say “and to seeds,” as though referring to many, but referring to one, and to your seed, who is Christ.
+>Galatians 3:16 Now the promises were spoken to Abraham and to his seed. He does not say “and to seeds,” as though referring to many, but referring to one, and to your seed, who is Christ.
 
 What is the Bible about? Jesus Christ. When in doubt, ask yourself, "What does this say about God?"
 
@@ -129,7 +129,7 @@ What is the Bible about? Jesus Christ. When in doubt, ask yourself, "What does t
 
 How do we know that Adam and Eve were saved?
 
->Genesis 3:21 (CSB) The LORD God made clothing from skins for the man and his wife, and he clothed them.
+>Genesis 3:21 The LORD God made clothing from skins for the man and his wife, and he clothed them.
 
 This is the mark of the every believer. There is one thing to struggle with faith, love, holiness, and good sense. But there is one other thing not to display those traits as all. This is why I keep coming back to you and pleading with you to let yourself be known by loved and friends. Married couples, don't tune me out. I meet married people all the time who have been married years and yet, they really don't know each other. God calls us to community. God has called us to search out others that are safe and invite them into your life. This is to be done in mutuality--that is, you look into my life and I will look in yours and let us see if there is something in us that doesn't look like God. You won't get this in isolation. Yep, it is scary as heck. But as much as God as saved us to Himself, he has saved us to each other--from believer to believer.
 
