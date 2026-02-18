@@ -36,6 +36,8 @@ So too has he prepared a place for demons and the wicked:
 
 ### some men and angels are predestinated, or foreordained to eternal life through Jesus Christ, to the praise of his glorious grace
 
+>Romans 8:29-30 For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
+
 >Ephesians 1:5-6 (CSB) He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
 
 We were saved for one thing: to the praise of the God's glorious grace upon grace that he gives us all we need and want through his Son, Jesus Christ.
