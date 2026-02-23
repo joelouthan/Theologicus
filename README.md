@@ -31,7 +31,7 @@ of my only, only Lord Jesus.
 
 ![Crates.io](https://img.shields.io/crates/v/mdbook)
 ![Crates.io](https://img.shields.io/crates/v/mdbook-toc)
-![Word Count](https://img.shields.io/badge/Word%20Count-659630-brightgreen)
+![Word Count](https://img.shields.io/badge/Word%20Count-662085-brightgreen)
 
 ## using
 
