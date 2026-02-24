@@ -6,7 +6,7 @@
 
 ## The Text
 
->Matthew 3:7–12 (CSB)  
+>Matthew 3:7–12  
 ><sup>7</sup> When he saw many of the Pharisees and Sadducees coming to his baptism, he said to them, “Brood of vipers! Who warned you to flee from the coming wrath? 
 >
 ><sup>8</sup> Therefore produce fruit consistent with repentance. 
@@ -21,13 +21,13 @@
 
 ## The Devotion
 
->John 1:12–13 (CSB) But to all who did receive him, he gave them the right to be children of God, to those who believe in his name, who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
+>John 1:12–13 But to all who did receive him, he gave them the right to be children of God, to those who believe in his name, who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
 
->1 John 5:1 (CSB) Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father also loves the one born of him.
+>1 John 5:1 Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father also loves the one born of him.
 
 If we are command by God empowered by God to turn to God and be with God, don't think for a moment that you and I can obey God without God. It is impossible.
 
->John 15:5 (CSB) “I am the vine; you are the branches. The one who remains in me and I in him produces much fruit, because you can do nothing without me.
+>John 15:5 “I am the vine; you are the branches. The one who remains in me and I in him produces much fruit, because you can do nothing without me.
 
 I saw a disturbing poll just the other day. It was on the Internet so it must be true. Evangelicals were asked a basic question, "What is more prevalent problem im the church: the carnal 'Christian' who claims faith and yet goes on continuing to sin or is it is the legalistic 'Christian' who claims to be believes but strives to gain favor with God?" What do you think our brothers and sister said? You guessed it! "Oh the carnal Christian. There are church pews that are filled with those who come rolling in on the Sunday morning fresh from the strip clubs the night before."
 

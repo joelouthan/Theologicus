@@ -25,7 +25,7 @@
 
 ## The Word
 
->Luke 24:44-49 (CSB) He told them, “These are my words that I spoke to you while I was still with you — that everything written about me in the Law of Moses, the Prophets, and the Psalms must be fulfilled.” Then he opened their minds to understand the Scriptures. He also said to them, “This is what is written: The Messiah will suffer and rise from the dead the third day, and repentance for forgiveness of sins will be proclaimed in his name to all the nations, beginning at Jerusalem. You are witnesses of these things. And look, I am sending you what my Father promised. As for you, stay in the city until you are empowered from on high.”
+>Luke 24:44-49 He told them, “These are my words that I spoke to you while I was still with you — that everything written about me in the Law of Moses, the Prophets, and the Psalms must be fulfilled.” Then he opened their minds to understand the Scriptures. He also said to them, “This is what is written: The Messiah will suffer and rise from the dead the third day, and repentance for forgiveness of sins will be proclaimed in his name to all the nations, beginning at Jerusalem. You are witnesses of these things. And look, I am sending you what my Father promised. As for you, stay in the city until you are empowered from on high.”
 
 ## The Belief
 
@@ -33,9 +33,9 @@ Taken from the [1689 Baptist Confession of Faith, Chapter 1.2 The Old and New Te
 
 ### All of which are given by the inspiration of God, to be the rule of faith and life
 
->2 Timothy 3:16-17 (CSB) All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
+>2 Timothy 3:16-17 All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
 
->Luke 16:29-31 (CSB) But Abraham said, ‘They have Moses and the prophets; they should listen to them.’ “‘No, father Abraham,’ he said. ‘But if someone from the dead goes to them, they will repent.’ “But he told him, ‘If they don’t listen to Moses and the prophets, they will not be persuaded if someone rises from the dead.’”
+>Luke 16:29-31 But Abraham said, ‘They have Moses and the prophets; they should listen to them.’ “‘No, father Abraham,’ he said. ‘But if someone from the dead goes to them, they will repent.’ “But he told him, ‘If they don’t listen to Moses and the prophets, they will not be persuaded if someone rises from the dead.’”
 
 But there is one who returned from the dead, who breathed out the words of God by the power of the Holy Spirit from the sovereign grace and mercy of God our Father--that is, Jesus Christ our Lord.
 
@@ -43,15 +43,15 @@ Christ has returned from the dead. Will you repent of your sins? Will you trust 
 
 ### The authority of the Holy Scripture, for which it ought to be believed, dependeth not upon the testimony of any man or church, but wholly upon God (who is truth itself), the author thereof; therefore it is to be received because it is the Word of God.
 
->2 Peter 1:19 (CSB) We also have the prophetic word strongly confirmed, and you will do well to pay attention to it, as to a lamp shining in a dark place, until the day dawns and the morning star rises in your hearts.
+>2 Peter 1:19 We also have the prophetic word strongly confirmed, and you will do well to pay attention to it, as to a lamp shining in a dark place, until the day dawns and the morning star rises in your hearts.
 
->John 1:4–5 (CSB) In him was life, and that life was the light of men. That light shines in the darkness, and yet the darkness did not overcome it.
+>John 1:4–5 In him was life, and that life was the light of men. That light shines in the darkness, and yet the darkness did not overcome it.
 
 ### yet notwithstanding, our full persuasion and assurance of the infallible truth, and divine authority thereof, is from the inward work of the Holy Spirit bearing witness by and with the Word in our hearts
 
 But it is only dependent on God who wills us to understanding and maturity:
 
->Hebrews 5:11–6:3 (CSB)  
+>Hebrews 5:11–6:3  
 ><sup>11</sup> We have a great deal to say about this, and it is difficult to explain, since you have become too lazy to understand. 
 >
 ><sup>12</sup> Although by this time you ought to be teachers, you need someone to teach you the basic principles of God’s revelation again. You need milk, not solid food. 
@@ -68,4 +68,4 @@ But it is only dependent on God who wills us to understanding and maturity:
 
 ### Everything that God has said in his word is true
 
->2 Corinthians 1:20 (CSB) For every one of God’s promises is “Yes” in him. Therefore, through him we also say “Amen” to the glory of God.
+>2 Corinthians 1:20 For every one of God’s promises is “Yes” in him. Therefore, through him we also say “Amen” to the glory of God.

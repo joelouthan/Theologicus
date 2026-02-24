@@ -4,7 +4,7 @@
 
 ## The Word
 
->Numbers 21:4-9 (CSB) Then they set out from Mount Hor by way of the Red Sea to bypass the land of Edom, but the people became impatient because of the journey. The people spoke against God and Moses: “Why have you led us up from Egypt to die in the wilderness? There is no bread or water, and we detest this wretched food!”Then the LORD sent poisonous snakes among the people, and they bit them so that many Israelites died.
+>Numbers 21:4-9 Then they set out from Mount Hor by way of the Red Sea to bypass the land of Edom, but the people became impatient because of the journey. The people spoke against God and Moses: “Why have you led us up from Egypt to die in the wilderness? There is no bread or water, and we detest this wretched food!”Then the LORD sent poisonous snakes among the people, and they bit them so that many Israelites died.
 >
 >7 The people then came to Moses and said, “We have sinned by speaking against the LORD and against you. Intercede with the LORD so that he will take the snakes away from us.” And Moses interceded for the people.
 >
@@ -12,7 +12,7 @@
 
 ## The Text
 
->Genesis 3:14-24 (CSB) So the LORD God said to the serpent:  
+>Genesis 3:14-24 So the LORD God said to the serpent:  
 >Because you have done this,  
 >you are cursed more than any livestock  
 >and more than any wild animal.  
@@ -50,15 +50,15 @@
 
 ### Christ is cursed for our sins
 
->John 3:14-15 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up,so that everyone who believes in him may have eternal life.
+>John 3:14-15 “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up,so that everyone who believes in him may have eternal life.
 
->John 12:32-33 (CSB) As for me, if I am lifted up from the earth I will draw all people to myself.”He said this to indicate what kind of death he was about to die.
+>John 12:32-33 As for me, if I am lifted up from the earth I will draw all people to myself.”He said this to indicate what kind of death he was about to die.
 
-## The Gospel
+## His Gospel
 
 ### Christ gives the law to be cursed
 
->Deuteronomy 21:22-23 (CSB) If anyone is found guilty of an offense deserving the death penalty and is executed, and you hang his body on a tree,you are not to leave his corpse on the tree overnight but are to bury him that day, for anyone hung on a tree is under God’s curse.
+>Deuteronomy 21:22-23 If anyone is found guilty of an offense deserving the death penalty and is executed, and you hang his body on a tree,you are not to leave his corpse on the tree overnight but are to bury him that day, for anyone hung on a tree is under God’s curse.
 
 ### Christ gives his life over to be cursed
 
@@ -67,15 +67,15 @@
 >He will strike your head,  
 >and you will strike his heel.
 
->John 3:16-17 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
+>John 3:16-17 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
 
 ### Christ is our curse for our sin
 
->Galatians 3:13 (CSB) Christ redeemed us from the curse of the law by becoming a curse for us, because it is written, Cursed is everyone who is hung on a tree.
+>Galatians 3:13 Christ redeemed us from the curse of the law by becoming a curse for us, because it is written, Cursed is everyone who is hung on a tree.
 
 ### The Father gave Christ Our Sin So We Can Gain His Righteousness
 
->2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+>2 Corinthians 5:21 He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
 ## Our Response
 
@@ -103,31 +103,31 @@ One side note: I don't know why Complementarians use this as a way to defend the
 >For you are dust,  
 >and you will return to dust.”
 
->Acts 9:15-16 (CSB) But the Lord said to him, “Go, for this man is my chosen instrument to take my name to Gentiles, kings, and Israelites. I will show him how much he must suffer for my name.”
+>Acts 9:15-16 But the Lord said to him, “Go, for this man is my chosen instrument to take my name to Gentiles, kings, and Israelites. I will show him how much he must suffer for my name.”
 
->Romans 8:16-18 (CSB) The Spirit himself testifies together with our spirit that we are God’s children,and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him. For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us.
+>Romans 8:16-18 The Spirit himself testifies together with our spirit that we are God’s children,and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him. For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us.
 
 And yet, Christ subjected himself to that same suffering--even to the point of death.
 
->Isaiah 53:3–5 (CSB) He was despised and rejected by men, a man of suffering who knew what sickness was. He was like someone people turned away from; he was despised, and we didn’t value him. Yet he himself bore our sicknesses, and he carried our pains; but we in turn regarded him stricken, struck down by God, and afflicted. But he was pierced because of our rebellion, crushed because of our iniquities; punishment for our peace was on him, and we are healed by his wounds.
+>Isaiah 53:3–5 He was despised and rejected by men, a man of suffering who knew what sickness was. He was like someone people turned away from; he was despised, and we didn’t value him. Yet he himself bore our sicknesses, and he carried our pains; but we in turn regarded him stricken, struck down by God, and afflicted. But he was pierced because of our rebellion, crushed because of our iniquities; punishment for our peace was on him, and we are healed by his wounds.
 
->Philippians 2:5–8 (CSB) Adopt the same attitude as that of Christ Jesus, who, existing in the form of God, did not consider equality with God as something to be exploited. Instead he emptied himself by assuming the form of a servant, taking on the likeness of humanity. And when he had come as a man, he humbled himself by becoming obedient to the point of death— even to death on a cross.
+>Philippians 2:5–8 Adopt the same attitude as that of Christ Jesus, who, existing in the form of God, did not consider equality with God as something to be exploited. Instead he emptied himself by assuming the form of a servant, taking on the likeness of humanity. And when he had come as a man, he humbled himself by becoming obedient to the point of death— even to death on a cross.
 
 ### God still blesses us despite the curse
 
->Genesis 3:20 (CSB) The man named his wife Eve because she was the mother of all the living.
+>Genesis 3:20 The man named his wife Eve because she was the mother of all the living.
 
 ### God still saves us despite the curse
 
->Genesis 3:21 (CSB) The LORD God made clothing from skins for the man and his wife, and he clothed them.
+>Genesis 3:21 The LORD God made clothing from skins for the man and his wife, and he clothed them.
 
 ### God is still holy despite the curse
 
->Genesis 3:22-24 (CSB) The LORD God said, “Since the man has become like one of us, knowing good and evil, he must not reach out, take from the tree of life, eat, and live forever.”So the LORD God sent him away from the garden of Eden to work the ground from which he was taken. He drove the man out and stationed the cherubim and the flaming, whirling sword east of the garden of Eden to guard the way to the tree of life.
+>Genesis 3:22-24 The LORD God said, “Since the man has become like one of us, knowing good and evil, he must not reach out, take from the tree of life, eat, and live forever.”So the LORD God sent him away from the garden of Eden to work the ground from which he was taken. He drove the man out and stationed the cherubim and the flaming, whirling sword east of the garden of Eden to guard the way to the tree of life.
 
 ### This is not the end
 
->Psalm 32:1-2 (CSB) How joyful is the one
+>Psalm 32:1-2 How joyful is the one
 >whose transgression is forgiven,
 >whose sin is covered!
 >2 How joyful is a person whom

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 96 (CSB)  
+>Psalm 96  
 ><sup> 1  </sup>Sing a new song to the LORD; let the whole earth sing to the LORD. 
 >
 ><sup> 2  </sup>Sing to the LORD, bless his name; proclaim his salvation from day to day. 

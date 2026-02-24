@@ -4,7 +4,7 @@
 
 ## The Text
 
->Titus 1:5–9 (CSB)  
+>Titus 1:5–9  
 ><sup> 5 </sup>The reason I left you in Crete was to set right what was left undone and, as I directed you, to appoint elders in every town. 
 >
 ><sup> 6 </sup>An elder must be blameless, the husband of one wife, with faithful children who are not accused of wildness or rebellion. 
@@ -23,11 +23,11 @@
 
 Every Christian is under the authority of Christ under the power of the Almighty Spirit within the Father's sovereign grace and mercy. Those are basic facts.
 
->Ephesians 1:22-23 (CSB) And he subjected everything under his feet and appointed him as head over everything for the church, which is his body, the fullness of the one who fills all things in every way.
+>Ephesians 1:22-23 And he subjected everything under his feet and appointed him as head over everything for the church, which is his body, the fullness of the one who fills all things in every way.
 
->Ephesians 5:22-23 (CSB) Wives, submit to your husbands as to the Lord, because the husband is the head of the wife as Christ is the head of the church. He is the Savior of the body.
+>Ephesians 5:22-23 Wives, submit to your husbands as to the Lord, because the husband is the head of the wife as Christ is the head of the church. He is the Savior of the body.
 
->Colossians 1:18 (CSB) He is also the head of the body, the church;
+>Colossians 1:18 He is also the head of the body, the church;
 he is the beginning,
 the firstborn from the dead,
 so that he might come to have
@@ -83,7 +83,7 @@ From my commentary on 1 Timothy 3:2:
 >
 >You know how I would read this in light of the entire Bible?
 >
->1 Corinthians 6:18 (CSB) Flee sexual immorality! Every other sin a person commits is outside the body, but the person who is sexually immoral sins against his own body.
+>1 Corinthians 6:18 Flee sexual immorality! Every other sin a person commits is outside the body, but the person who is sexually immoral sins against his own body.
 >
 >An elder is one who flees from sexual sin. Single. Divorced. Married. Widowed. It matters not. If you are bought with the blood of Christ, we have the power of the Spirit to flee all sin including sexual sin.
 
@@ -95,7 +95,7 @@ What I am going to give you is completely my experience only.
 
 Churches who abide in the strict reading of 1 Timothy 3 and Titus 1 will almost always read in light of this infamous verse in the most strictest sense:
 
->1 Timothy 2:11-15 (CSB) A woman is to learn quietly with full submission. I do not allow a woman to teach or to have authority over a man; instead, she is to remain quiet. For Adam was formed first, then Eve. And Adam was not deceived, but the woman was deceived and transgressed. But she will be saved through childbearing, if they continue in faith, love, and holiness, with good sense.
+>1 Timothy 2:11-15 A woman is to learn quietly with full submission. I do not allow a woman to teach or to have authority over a man; instead, she is to remain quiet. For Adam was formed first, then Eve. And Adam was not deceived, but the woman was deceived and transgressed. But she will be saved through childbearing, if they continue in faith, love, and holiness, with good sense.
 
 (I say, "almost always", I have yet to see an exception to this.)
 
@@ -138,7 +138,7 @@ And this passage even gives grace for wherever we are at. For some Christians--i
 
 It is really a man marked with the fruit of the Spirit:
 
->Galatians 5:22-23 (CSB) But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control.
+>Galatians 5:22-23 But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control.
 
 Which of us would be a mark of kindness or gentleness or joy? Which of us are patient? Have you met someone marked with faithfulness? These men might be make great elders if they desire to serve as one.
 
@@ -158,7 +158,7 @@ How does that training, education, and equipping looks like will look different 
 
 And it all starts from one single premise:
 
->1 Corinthians 15:1-5 (CSB) Now I want to make clear for you, brothers and sisters, the gospel I preached to you, which you received, on which you have taken your stand and by which you are being saved, if you hold to the message I preached to you — unless you believed in vain. For I passed on to you as most important what I also received: that Christ died for our sins according to the Scriptures, that he was buried, that he was raised on the third day according to the Scriptures, and that he appeared to Cephas, then to the Twelve.
+>1 Corinthians 15:1-5 Now I want to make clear for you, brothers and sisters, the gospel I preached to you, which you received, on which you have taken your stand and by which you are being saved, if you hold to the message I preached to you — unless you believed in vain. For I passed on to you as most important what I also received: that Christ died for our sins according to the Scriptures, that he was buried, that he was raised on the third day according to the Scriptures, and that he appeared to Cephas, then to the Twelve.
 
 Believe on this and you shall be saved.
 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 119:5 (CSB) If only my ways were committed to keeping your statutes!
+>Psalm 119:5 If only my ways were committed to keeping your statutes!
 
 ## The Prayer
 

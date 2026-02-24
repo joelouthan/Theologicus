@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 87 (CSB)    
+>Psalm 87    
 > A psalm of the sons of Korah. A song. 
 >
 ><sup> 1 </sup> The city he founded is on the holy mountains. 

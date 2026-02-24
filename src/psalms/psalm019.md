@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 19 (CSB)  
+>Psalm 19  
 ><sup></sup> For the choir director. A psalm of David. 
 >
 ><sup>1</sup> The heavens declare the glory of God, and the expanse proclaims the work of his hands. 

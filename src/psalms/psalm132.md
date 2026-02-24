@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 132 (CSB)  
+>Psalm 132  
 ><sup></sup> A song of ascents. 
 >
 ><sup>1</sup> LORD, remember David and all the hardships he endured, 

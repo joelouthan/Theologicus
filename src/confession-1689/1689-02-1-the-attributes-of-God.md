@@ -8,7 +8,7 @@
 
 ## The Text
 
->Psalm 97:9 (CSB) For you, LORD, are the Most High over the whole earth; you are exalted above all the gods.
+>Psalm 97:9 For you, LORD, are the Most High over the whole earth; you are exalted above all the gods.
 
 ## The Chapter
 
@@ -32,29 +32,29 @@ To learn these attributes, we must examine them bit by bit and connect them with
 
 ### The Lord our God
 
->Deuteronomy 6:4-9 (CSB) “Listen, Israel: The LORD our God, the LORD is one. Love the LORD your God with all your heart, with all your soul, and with all your strength. These words that I am giving you today are to be in your heart. Repeat them to your children. Talk about them when you sit in your house and when you walk along the road, when you lie down and when you get up. Bind them as a sign on your hand and let them be a symbol on your forehead. Write them on the doorposts of your house and on your city gates.
+>Deuteronomy 6:4-9 “Listen, Israel: The LORD our God, the LORD is one. Love the LORD your God with all your heart, with all your soul, and with all your strength. These words that I am giving you today are to be in your heart. Repeat them to your children. Talk about them when you sit in your house and when you walk along the road, when you lie down and when you get up. Bind them as a sign on your hand and let them be a symbol on your forehead. Write them on the doorposts of your house and on your city gates.
 
 From his book, *Baptist Symbolics Volume 2.*, Dr. Renihan spots something that I missed, "the paragraph begins with a personalized assertion about God—He is ours.”[^renihan-ours] Whatever God wants to reveal about himself to us, it will not be everything about God but it will be *truly* about God and we, as his people, know him truly. Let the world say what they want about our God. But the maker of the heavens and the earth, the Almighty God, from everlasting to everlasting, belongs to his people. God belongs to me. For I am my Beloved's and He is mine forever. [^songs216] God personally belongs to me and I personally belong to him. For:
 
->Exodus 19:5-6 (CSB) Now if you will carefully listen to me and keep my covenant, you will be my own possession out of all the peoples, although the whole earth is mine, and you will be my kingdom of priests and my holy nation.’ These are the words that you are to say to the Israelites.”
+>Exodus 19:5-6 Now if you will carefully listen to me and keep my covenant, you will be my own possession out of all the peoples, although the whole earth is mine, and you will be my kingdom of priests and my holy nation.’ These are the words that you are to say to the Israelites.”
 
 And
 
->Exodus 34:8-9 (CSB) Moses immediately knelt low on the ground and worshiped. Then he said, “My Lord, if I have indeed found favor with you, my Lord, please go with us (even though this is a stiff-necked people), forgive our iniquity and our sin, and accept us as your own possession.”
+>Exodus 34:8-9 Moses immediately knelt low on the ground and worshiped. Then he said, “My Lord, if I have indeed found favor with you, my Lord, please go with us (even though this is a stiff-necked people), forgive our iniquity and our sin, and accept us as your own possession.”
 
 And
 
->Deuteronomy 26:16-19 (CSB) “The LORD your God is commanding you this day to follow these statutes and ordinances. Follow them carefully with all your heart and all your soul. Today you have affirmed that the LORD is your God and that you will walk in his ways, keep his statutes, commands, and ordinances, and obey him. And today the LORD has affirmed that you are his own possession as he promised you, that you are to keep all his commands, that he will elevate you to praise, fame, and glory above all the nations he has made, and that you will be a holy people to the LORD your God as he promised.”
+>Deuteronomy 26:16-19 “The LORD your God is commanding you this day to follow these statutes and ordinances. Follow them carefully with all your heart and all your soul. Today you have affirmed that the LORD is your God and that you will walk in his ways, keep his statutes, commands, and ordinances, and obey him. And today the LORD has affirmed that you are his own possession as he promised you, that you are to keep all his commands, that he will elevate you to praise, fame, and glory above all the nations he has made, and that you will be a holy people to the LORD your God as he promised.”
 
 And
 
->Titus 2:11-14 (CSB) For the grace of God has appeared, bringing salvation for all people, instructing us to deny godlessness and worldly lusts and to live in a sensible, righteous, and godly way in the present age, while we wait for the blessed hope, the appearing of the glory of our great God and Savior, Jesus Christ. He gave himself for us to redeem us from all lawlessness and to cleanse for himself a people for his own possession, eager to do good works.
+>Titus 2:11-14 For the grace of God has appeared, bringing salvation for all people, instructing us to deny godlessness and worldly lusts and to live in a sensible, righteous, and godly way in the present age, while we wait for the blessed hope, the appearing of the glory of our great God and Savior, Jesus Christ. He gave himself for us to redeem us from all lawlessness and to cleanse for himself a people for his own possession, eager to do good works.
 
 There is only one response to this absolute and blessed truth: praise be to God! We get to worship the Lord *our* God all because of what his Son has done for us. Today is the day we give thanks to him for he alone is good and his steadfast love endures forever.
 
 ### is but one 
 
->1 Corinthians 8:4–6 (CSB) About eating food sacrificed to idols, then, we know that “an idol is nothing in the world,” and that “there is no God but one.” For even if there are so-called gods, whether in heaven or on earth—as there are many “gods” and many “lords”—yet for us there is one God, the Father. All things are from him, and we exist for him. And there is one Lord, Jesus Christ. All things are through him, and we exist through him.
+>1 Corinthians 8:4–6 About eating food sacrificed to idols, then, we know that “an idol is nothing in the world,” and that “there is no God but one.” For even if there are so-called gods, whether in heaven or on earth—as there are many “gods” and many “lords”—yet for us there is one God, the Father. All things are from him, and we exist for him. And there is one Lord, Jesus Christ. All things are through him, and we exist through him.
 
 John Calvin said it succinctly:
 
@@ -62,17 +62,17 @@ John Calvin said it succinctly:
 
 Certainly, Satan rules the air. Demons, or principalities, rule regions. From the fall of humanity, we certainly will conjure up and put our trust in a little god who we hoped will make this life a little bit easier. Sadly, Satan, demons, and our idols have zero power. They can only kill, deceive, twist, oppress, and when it comes to our idols, do absolutely nothing for our lives.
 
->Deuteronomy 6:4 (CSB) “Listen, Israel: The LORD our God, the LORD is one.
+>Deuteronomy 6:4 “Listen, Israel: The LORD our God, the LORD is one.
 
 In terms of power, holiness, righteousness, sinlessness, perfection, merciful, kind, gracious, patience, deliver, savior, and of course, love, there is only one and he is the Triune God--Father, Son, and Spirit--who reigns forever and ever. Amen
 
 ### only living true God
 
->Jeremiah 10:10 (CSB) But the LORD is the true God; he is the living God and eternal King. The earth quakes at his wrath, and the nations cannot endure his fury.
+>Jeremiah 10:10 But the LORD is the true God; he is the living God and eternal King. The earth quakes at his wrath, and the nations cannot endure his fury.
 
->Isaiah 48:12 (CSB) “Listen to me, Jacob, and Israel, the one called by me: I am he; I am the first, I am also the last.
+>Isaiah 48:12 “Listen to me, Jacob, and Israel, the one called by me: I am he; I am the first, I am also the last.
 
->Exodus 3:14 (CSB) God replied to Moses, “I AM WHO I AM. This is what you are to say to the Israelites: I AM has sent me to you.”
+>Exodus 3:14 God replied to Moses, “I AM WHO I AM. This is what you are to say to the Israelites: I AM has sent me to you.”
 
 God is not idle. God does not cease. He is not dormant. God is living. That he moves and speaks and is quite personal with his creation.
 
@@ -80,13 +80,13 @@ God is not a figment of mankind's imagination. God was not conjured up by man. M
 
 ### whose subsistence is in and of himself, infinite in being and perfection; whose essence cannot be comprehended by any but himself; a most pure spirit, invisible, without body, parts
 
->John 4:24 (CSB) God is spirit, and those who worship him must worship in Spirit and in truth.”
+>John 4:24 God is spirit, and those who worship him must worship in Spirit and in truth.”
 
->Deuteronomy 4:15–16 (CSB) “Diligently watch yourselves—because you did not see any form on the day the LORD spoke to you out of the fire at Horeb—so you don’t act corruptly and make an idol for yourselves in the shape of any figure: a male or female form,
+>Deuteronomy 4:15–16 “Diligently watch yourselves—because you did not see any form on the day the LORD spoke to you out of the fire at Horeb—so you don’t act corruptly and make an idol for yourselves in the shape of any figure: a male or female form,
 
->John 1:18 (CSB) No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
+>John 1:18 No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
 
->1 Timothy 1:17 (CSB) Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
+>1 Timothy 1:17 Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
 
 The best word to describe the simplicity of God is *aseity*. Webster's properly defines this:
 
@@ -98,7 +98,7 @@ God is not like anything in all creation in that one, he is not made up of compl
 
 This is the divine impassibility of God--God does not suffer or feels pain. You see in the Bible that in dealing with our trespasses and treason, God would describe himself as "jealous" or "wrathful" but these are not feelings born out of passion or feelings nor a reaction. These are words to describe how sin is an affront--an abomination--to his very simple nature.
 
->Malachi 3:6 (CSB) “Because I, the LORD, have not changed, you descendants of Jacob have not been destroyed.
+>Malachi 3:6 “Because I, the LORD, have not changed, you descendants of Jacob have not been destroyed.
 
 Could you imagine if God could suffer or feel pain? Who wants to feel pain? When you feel pain, don't you want the pain to quickly stop? When you suffer, do you want the suffering to keep going a little or stop? You would want it to stop now right. If God felt suffering and pain, he would make it instantly right. He would have justly terminated all of mankind and started all over.
 
@@ -110,13 +110,13 @@ God is love. We have our definition of love. And only one is correct.
 
 ### who only hath immortality
 
->1 Timothy 1:17 (CSB) Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
+>1 Timothy 1:17 Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
 
 If God the one true living God, within the immortality of God, not only will he live forever but he has always lived from eternity past.
 
 ### dwelling in the light which no man can approach unto
 
->John 1:1-5 (CSB) In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created. **In him was life, and that life was the light of men. That light shines in the darkness, and yet the darkness did not overcome it.**
+>John 1:1-5 In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created. **In him was life, and that life was the light of men. That light shines in the darkness, and yet the darkness did not overcome it.**
 
 Because we have been born into and choose to sin, we cannot approach God. We cannot come to him on our own. John Stott in his book, *The Cross of Christ*, gave five descriptions on how God is far from our sin. One of those descriptions: God is light. God shines brightest and in our wickedness and sin, we cannot dare approach him just in the light of his glory and goodness.[^stott-brightest]
 
@@ -152,29 +152,29 @@ I find it fascinating when humans want something else not the word of God to giv
 
 ### immense
 
->1 Kings 8:27 (CSB) But will God indeed live on earth? Even heaven, the highest heaven, cannot contain you, much less this temple I have built.
+>1 Kings 8:27 But will God indeed live on earth? Even heaven, the highest heaven, cannot contain you, much less this temple I have built.
 
->Numbers 14:21 (CSB) Yet as I live and as the whole earth is filled with the LORD’s glory,
+>Numbers 14:21 Yet as I live and as the whole earth is filled with the LORD’s glory,
 
 The *immensity* of God speaks to the omnipresence of God--God is everywhere at all times. That is not say God is in everything--that is would be *pantheism*. And we know that not be the case because nothing of God dwells or resides in the unbelievers.
 
 I think it will be reasonable to comprehend the Father and the Spirit to be everywhere at all times because they are spirit. But what about the Second Person of the Trinity, Jesus Christ, who took on flesh and dwelled among us? The Apostle Paul states it perfectly:
 
->Colossians 1:15–20 (CSB) He is the image of the invisible God, the firstborn over all creation. For everything was created by him, in heaven and on earth, the visible and the invisible, whether thrones or dominions or rulers or authorities— all things have been created through him and for him. He is before all things, and by him all things hold together. He is also the head of the body, the church; he is the beginning, the firstborn from the dead, so that he might come to have first place in everything. **For God was pleased to have all his fullness dwell in him, and through him to reconcile everything to himself, whether things on earth or things in heaven, by making peace through his blood, shed on the cross.**
+>Colossians 1:15–20 He is the image of the invisible God, the firstborn over all creation. For everything was created by him, in heaven and on earth, the visible and the invisible, whether thrones or dominions or rulers or authorities— all things have been created through him and for him. He is before all things, and by him all things hold together. He is also the head of the body, the church; he is the beginning, the firstborn from the dead, so that he might come to have first place in everything. **For God was pleased to have all his fullness dwell in him, and through him to reconcile everything to himself, whether things on earth or things in heaven, by making peace through his blood, shed on the cross.**
 
 In terms of what Christ did, as fully God and fully man, the Apostle John states:
 
->John 21:25 (CSB) And there are also many other things that Jesus did, which, if every one of them were written down, I suppose not even the world itself could contain the books that would be written.
+>John 21:25 And there are also many other things that Jesus did, which, if every one of them were written down, I suppose not even the world itself could contain the books that would be written.
 
 To sum up *immenseness* of God, God is not just everywhere at all times but where you are at right now, God is with you right now. He is Jehovah-Shammah--God is there.
 
->Ezekiel 48:35 (CSB) The perimeter of the city will be six miles, and the name of the city from that day on will be **The LORD Is There.**”
+>Ezekiel 48:35 The perimeter of the city will be six miles, and the name of the city from that day on will be **The LORD Is There.**”
 
 ### eternal
 
->Psalm 90:2 (CSB) Before the mountains were born, before you gave birth to the earth and the world, from eternity to eternity, you are God.
+>Psalm 90:2 Before the mountains were born, before you gave birth to the earth and the world, from eternity to eternity, you are God.
 
->Revelation 22:12-13 (CSB) “Look, I am coming soon, and my reward is with me to repay each person according to his work. I am the Alpha and the Omega, the first and the last, the beginning and the end.
+>Revelation 22:12-13 “Look, I am coming soon, and my reward is with me to repay each person according to his work. I am the Alpha and the Omega, the first and the last, the beginning and the end.
 
 John Calvin wrote:
 
@@ -186,9 +186,9 @@ It is easy for us to quote Moses in Psalm 90, "from eternity to eternity, you ar
 
 For one, God is the Creator of all creation and he is before all things.
 
->Genesis 1:1 (CSB) In the beginning God created the heavens and the earth.
+>Genesis 1:1 In the beginning God created the heavens and the earth.
 
->John 1:1-3 (CSB) In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created.
+>John 1:1-3 In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created.
 
 Nothing created him and he is before all created things. There wasn't a moment in time that God was not there. What is true for any point in the past is absolutely true for the future. Any moment in the future, God is already there. And when he relates to us, he always uses temporal terms despite being outside of time.
 
@@ -230,29 +230,29 @@ In other words, knowledge of God is supernatural and not natural. Something outs
 
 Let me take it one step further: do you believe that the Scriptures are another literary work or are the inspired by God?
 
->2 Timothy 3:14-17 (CSB) But as for you, continue in what you have learned and firmly believed. You know those who taught you, and you know that from infancy you have known the sacred Scriptures, which are able to give you wisdom for salvation through faith in Christ Jesus. **All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.**
+>2 Timothy 3:14-17 But as for you, continue in what you have learned and firmly believed. You know those who taught you, and you know that from infancy you have known the sacred Scriptures, which are able to give you wisdom for salvation through faith in Christ Jesus. **All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.**
 
 If it is inspired by God, then the word of God comes from God alone. If it comes from God alone, it is supernatural. If it is supernatural, then how are we to even comprehend the word of God?
 
 Only if God reveals it to us. In other words, only if God opens our eyes. For:
 
->Hebrews 6:1-3 (CSB) Therefore, let us leave the elementary teaching about Christ and go on to maturity, not laying again a foundation of repentance from dead works, faith in God, teaching about ritual washings, laying on of hands, the resurrection of the dead, and eternal judgment. **And we will do this if God permits.**
+>Hebrews 6:1-3 Therefore, let us leave the elementary teaching about Christ and go on to maturity, not laying again a foundation of repentance from dead works, faith in God, teaching about ritual washings, laying on of hands, the resurrection of the dead, and eternal judgment. **And we will do this if God permits.**
 
 And
 
->Mark 8:22-25 (CSB) They came to Bethsaida. They brought a blind man to him and begged him to touch him. He took the blind man by the hand and brought him out of the village. Spitting on his eyes and laying his hands on him, he asked him, “Do you see anything? ” He looked up and said, “I see people — they look like trees walking.” Again Jesus placed his hands on the man’s eyes. The man looked intently and his sight was restored and he saw everything clearly.
+>Mark 8:22-25 They came to Bethsaida. They brought a blind man to him and begged him to touch him. He took the blind man by the hand and brought him out of the village. Spitting on his eyes and laying his hands on him, he asked him, “Do you see anything? ” He looked up and said, “I see people — they look like trees walking.” Again Jesus placed his hands on the man’s eyes. The man looked intently and his sight was restored and he saw everything clearly.
 
 You might say, "Are you saying we cannot know God at all?"
 
 Can we fully know God? No. But can we *truly* know him? Absolutely. How do I know this? He sent his Son, Jesus Christ, to live and die for us.
 
->John 1:18 (CSB) No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
+>John 1:18 No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
 
 ### almighty
 
->Genesis 17:1 (CSB) When Abram was ninety-nine years old, the LORD appeared to him, saying, “I am God Almighty. Live in my presence and be blameless.
+>Genesis 17:1 When Abram was ninety-nine years old, the LORD appeared to him, saying, “I am God Almighty. Live in my presence and be blameless.
 
->Revelation 4:8 (CSB) Each of the four living creatures had six wings; they were covered with eyes around and inside. Day and night they never stop, saying,
+>Revelation 4:8 Each of the four living creatures had six wings; they were covered with eyes around and inside. Day and night they never stop, saying,
 
 >Holy, holy, holy,
 
@@ -262,11 +262,11 @@ Can we fully know God? No. But can we *truly* know him? Absolutely. How do I kno
 
 In the most simplistic way, almighty is a contraction of two words, "all" and "mighty". That is too say, all-might. If we have a hard time grasping the ever-existence of God, I think we really do no fathom what it means for God to be omnipotent. And the reason why is throughout all of history, man, in his frailty and weakness, has strived and fought for power.
 
->Genesis 6:4 (CSB) The Nephilim were on the earth both in those days and afterward, when the sons of God came to the daughters of mankind, who bore children to them. **They were the powerful men of old, the famous men.**
+>Genesis 6:4 The Nephilim were on the earth both in those days and afterward, when the sons of God came to the daughters of mankind, who bore children to them. **They were the powerful men of old, the famous men.**
 
 Yet God says:
 
->Proverbs 16:5 (CSB) Everyone with a proud heart is detestable to the LORD; be assured, he will not go unpunished.
+>Proverbs 16:5 Everyone with a proud heart is detestable to the LORD; be assured, he will not go unpunished.
 
 In my Genesis commentary, I wrote this about verse 4:
 
@@ -276,7 +276,7 @@ We power grab everything. We even will construct entire theologies over power st
 
 A fellow church member remarked how much he liked my shoes and that they look like "weight lifting shoes--do you lift weights?" To which I replied, "I like to pretend that I lift weights." Nearly every time I step into a gym or my hand folds over and grips iron, I humbling reminded that the atoms of this weight plate is being actively held together by the crucified Son of Man.
 
->Colossians 1:17 (CSB) He is before all things, and by him all things hold together.
+>Colossians 1:17 He is before all things, and by him all things hold together.
 
 What is my mere weight lifting compared to the Almighty King who holds the universe in his hands? I cannot comprehend.
 
@@ -284,7 +284,7 @@ But who alone can swap my heart of stone, give me his own loving soft tender hea
 
 That is true strength.
 
->Ephesians 6:10 (CSB) Finally, be strengthened by the Lord and by his vast strength.
+>Ephesians 6:10 Finally, be strengthened by the Lord and by his vast strength.
 
 This Almighty God now has given us his strength and grace to do his will. Blessed be his name.
 
@@ -294,7 +294,7 @@ Take these attributes of God--*immensity, eternal, incomprehensible, almighty*--
 
 ### most holy
 
->Isaiah 6:2-3 (CSB) Seraphim were standing above him; they each had six wings: with two they covered their faces, with two they covered their feet, and with two they flew. And one called to another:
+>Isaiah 6:2-3 Seraphim were standing above him; they each had six wings: with two they covered their faces, with two they covered their feet, and with two they flew. And one called to another:
 
 >Holy, holy, holy is the LORD of Armies;
 
@@ -349,7 +349,7 @@ In this, the Age of Information, the modern man has fallen for the trap of "more
 
 In God's great mercy, he has bestowed some of his infinite wisdom upon us in limited quantities along with these blessings of knowledge.
 
->James 1:5 (CSB) Now if any of you lacks wisdom, he should ask God—who gives to all generously and ungrudgingly—and it will be given to him.
+>James 1:5 Now if any of you lacks wisdom, he should ask God—who gives to all generously and ungrudgingly—and it will be given to him.
 
 In the godliness of God, God knows everything. He cannot learn anything. He isn't surprised by anything. He is infinite in all things--from the infinite reaches of the galaxy to the depths of your heart and the recesses of your mind. It knows it all perfectly and the reasons why.
 
@@ -357,7 +357,7 @@ More so than that, he has the infinite wisdom to handle it and discern it all. T
 
 ### most free
 
->Psalm 115:3 (CSB) Our God is in heaven and does whatever he pleases.
+>Psalm 115:3 Our God is in heaven and does whatever he pleases.
 
 In his three volume Systematic Theology, theologian Charles Hodge explained that there were two attributes that worked out of the omnipotence or the almighty of God: his sovereignty and his freedom.
 
@@ -383,17 +383,17 @@ That is why, in God's perfect power--his sovereignty and *his freedom*--he came 
 
 ### most absolute
 
->Romans 8:1-4 (CSB) Therefore, there is now no condemnation for those in Christ Jesus, because the law of the Spirit of life in Christ Jesus has set you free from the law of sin and death. For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering, in order that the law’s requirement would be fulfilled in us who do not walk according to the flesh but according to the Spirit.
+>Romans 8:1-4 Therefore, there is now no condemnation for those in Christ Jesus, because the law of the Spirit of life in Christ Jesus has set you free from the law of sin and death. For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering, in order that the law’s requirement would be fulfilled in us who do not walk according to the flesh but according to the Spirit.
 
 With that almightiness power comes that God is not outside of his law nor is subjected to his own law. But in fact, that God is law and the law, standard, morality, plumb line, righteousness comes from him. He alone has the absoluteness to give the law but in our sin and wickedness, God made himself to be the Son of Man so that he alone could fulfill the same law in our stead.
 
 ### working all things according to the counsel of his own immutable and most righteous will for his own glory
 
->Isaiah 46:10 (CSB) I declare the end from the beginning, and from long ago what is not yet done, saying: my plan will take place, and I will do all my will.
+>Isaiah 46:10 I declare the end from the beginning, and from long ago what is not yet done, saying: my plan will take place, and I will do all my will.
 
->Proverbs 16:4 (CSB) The LORD has prepared everything for his purpose— even the wicked for the day of disaster.
+>Proverbs 16:4 The LORD has prepared everything for his purpose— even the wicked for the day of disaster.
 
->Romans 11:36 (CSB) For from him and through him and to him are all things. To him be the glory forever. Amen.
+>Romans 11:36 For from him and through him and to him are all things. To him be the glory forever. Amen.
 
 ### most loving
 
@@ -401,47 +401,47 @@ With that almightiness power comes that God is not outside of his law nor is sub
 
 >Song of Songs 2:16a (ESV) My beloved is mine, and I am his;
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
 For here is love, God proclaims the good news that He will make all things right:
 
->Genesis 3:15 (CSB) I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
+>Genesis 3:15 I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
 
 And here is love, God is faithful:
 
->Psalm 103:15–18 (CSB) As for man, his days are like grass— he blooms like a flower of the field; when the wind passes over it, it vanishes, and its place is no longer known. **But from eternity to eternity the LORD’s faithful love is toward those who fear him, and his righteousness toward the grandchildren of those who keep his covenant, who remember to observe his precepts.**
+>Psalm 103:15–18 As for man, his days are like grass— he blooms like a flower of the field; when the wind passes over it, it vanishes, and its place is no longer known. **But from eternity to eternity the LORD’s faithful love is toward those who fear him, and his righteousness toward the grandchildren of those who keep his covenant, who remember to observe his precepts.**
 
 And here is love, God's faithful love and mercies will never come to an end:
 
->Lamentations 3:22–23 (CSB) Because of the LORD’s faithful love we do not perish, **for his mercies never end**. They are new every morning; great is your faithfulness!
+>Lamentations 3:22–23 Because of the LORD’s faithful love we do not perish, **for his mercies never end**. They are new every morning; great is your faithfulness!
 
 And here is love, God does everything for you to be with Him:
 
->Ezekiel 36:25–28 (CSB) I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances. You will live in the land that I gave your ancestors; you will be my people, and I will be your God.
+>Ezekiel 36:25–28 I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances. You will live in the land that I gave your ancestors; you will be my people, and I will be your God.
 
 And here is love, God saves us from our sins:
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 And here is love:
 
->John 1:16–18 (CSB) Indeed, we have all received grace upon grace from his fullness, for the law was given through Moses; grace and truth came through Jesus Christ. No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
+>John 1:16–18 Indeed, we have all received grace upon grace from his fullness, for the law was given through Moses; grace and truth came through Jesus Christ. No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
 
 And here is love, God sent his only begotten Son, Jesus Christ:
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
 And here is love, God adopts us into his family:
 
->Romans 9:25–26 (CSB) As it also says in Hosea, I will call Not my People, My People, and she who is Unloved, Beloved. And it will be in the place where they were told, you are not my people, there **they will be called sons of the living God.**
+>Romans 9:25–26 As it also says in Hosea, I will call Not my People, My People, and she who is Unloved, Beloved. And it will be in the place where they were told, you are not my people, there **they will be called sons of the living God.**
 
 And here is love, Christ loved me and lived and died for me:
 
->Galatians 2:20 (CSB) I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
+>Galatians 2:20 I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
 
 And here is love, we have no condemnation and no separate from God:
 
->Romans 8:1; 38-39 (CSB) Therefore, there is now no condemnation for those in Christ Jesus... and nothing will every separate us from the love of God that is in Jesus Christ our Lord.
+>Romans 8:1; 38-39 Therefore, there is now no condemnation for those in Christ Jesus... and nothing will every separate us from the love of God that is in Jesus Christ our Lord.
 
 Simply put:
 
@@ -449,7 +449,7 @@ Simply put:
 
 ### gracious
 
->Exodus 34:6–7 (CSB) The LORD passed in front of him and proclaimed: **The LORD—the LORD is a compassionate and gracious God, slow to anger and abounding in faithful love and truth, maintaining faithful love to a thousand generations, forgiving iniquity, rebellion, and sin.** But he will not leave the guilty unpunished, bringing the consequences of the fathers’ iniquity on the children and grandchildren to the third and fourth generation.
+>Exodus 34:6–7 The LORD passed in front of him and proclaimed: **The LORD—the LORD is a compassionate and gracious God, slow to anger and abounding in faithful love and truth, maintaining faithful love to a thousand generations, forgiving iniquity, rebellion, and sin.** But he will not leave the guilty unpunished, bringing the consequences of the fathers’ iniquity on the children and grandchildren to the third and fourth generation.
 
 It would never be grace to let us go of our sin and not remove our sins and the path before us in sin. Some people want grace because they got caught in their sin but they have no intention of abstaining from sin. Oh they will not sin again if all of their circumstances were good and their spouse acts right and work is easy and whatever. But the moment life gets a little tough, let me go back to my own wickedness.
 
@@ -466,13 +466,13 @@ We know he does this because we have Christ our God!
 
 ### merciful
 
->Lamentations 3:22–23 (CSB) Because of the LORD’s faithful love we do not perish, for his mercies never end. They are new every morning; great is your faithfulness!
+>Lamentations 3:22–23 Because of the LORD’s faithful love we do not perish, for his mercies never end. They are new every morning; great is your faithfulness!
 
->Romans 9:15–16 (CSB) For he tells Moses, I will show mercy to whom I will show mercy, and I will have compassion on whom I will have compassion. So then, it does not depend on human will or effort but on God who shows mercy.
+>Romans 9:15–16 For he tells Moses, I will show mercy to whom I will show mercy, and I will have compassion on whom I will have compassion. So then, it does not depend on human will or effort but on God who shows mercy.
 
 By default, we know that there is a God but in our righteousness, we suppress the truth of God despite it being plainly obvious.
 
->Romans 1:18–19 (CSB) For God’s wrath is revealed from heaven against all godlessness and unrighteousness of people who by their unrighteousness suppress the truth, since what can be known about God is evident among them, because God has shown it to them.
+>Romans 1:18–19 For God’s wrath is revealed from heaven against all godlessness and unrighteousness of people who by their unrighteousness suppress the truth, since what can be known about God is evident among them, because God has shown it to them.
 
 Now, you and I know we are not all born complete atheists. So the passage in Romans 1 doesn't speak as an all out suppression. In the sons of Adam--all unbelievers--we suppress the truth of the existence of God in various way. 
 
@@ -492,7 +492,7 @@ There was a word invented to describe all of that pain. We call it *excruciating
 
 In this new found type of pain and torment and torture discovered by Christ upon that cross, who, let me remind you, is the Great I Am, the Alpha and the Omega, Who Was, Who Is, and Who is, and the Judge of the Quick and the Dead said with his lips?
 
->Luke 23:34a (CSB) Then Jesus said, “Father, forgive them, because they do not know what they are doing.”
+>Luke 23:34a Then Jesus said, “Father, forgive them, because they do not know what they are doing.”
 
 Christ has all power. He alone is the Almighty God. He could have cast everyone in attendance straight to hell and he would be right in doing so.
 
@@ -502,11 +502,11 @@ And in that very place where they were not the people of God, it exactly the sam
 
 ### long-suffering
 
->Romans 3:23–26 (CSB) For all have sinned and fall short of the glory of God; they are justified freely by his grace through the redemption that is in Christ Jesus. God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.
+>Romans 3:23–26 For all have sinned and fall short of the glory of God; they are justified freely by his grace through the redemption that is in Christ Jesus. God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.
 
->Romans 2:3–4 (CSB) Do you think—anyone of you who judges those who do such things yet do the same—that you will escape God’s judgment? Or do you despise the riches of his kindness, restraint, and patience, not recognizing that God’s kindness is intended to lead you to repentance?
+>Romans 2:3–4 Do you think—anyone of you who judges those who do such things yet do the same—that you will escape God’s judgment? Or do you despise the riches of his kindness, restraint, and patience, not recognizing that God’s kindness is intended to lead you to repentance?
 
->2 Peter 3:9 (CSB) The Lord does not delay his promise, as some understand delay, but is patient with you, not wanting any to perish but all to come to repentance.
+>2 Peter 3:9 The Lord does not delay his promise, as some understand delay, but is patient with you, not wanting any to perish but all to come to repentance.
 
 You could argue that God is infinitely patient since he is operates out of time or God is love and he will forever put up with sin and corruption. 
 
@@ -518,7 +518,7 @@ I am reminded of a great Paul Washer quote:
 
 There is no time like right now to fall into the arms of Jesus Christ. There is no day like today to look upon him, call his name and he will save you. That is a guarantee fact.
 
->2 Corinthians 6:1–2 (CSB) Working together with him, we also appeal to you, “Don’t receive the grace of God in vain.” For he says: At an acceptable time I listened to you, and in the day of salvation I helped you. See, now is the acceptable time; now is the day of salvation!
+>2 Corinthians 6:1–2 Working together with him, we also appeal to you, “Don’t receive the grace of God in vain.” For he says: At an acceptable time I listened to you, and in the day of salvation I helped you. See, now is the acceptable time; now is the day of salvation!
 
 Now is the acceptable time! Today is the day of salvation.
 
@@ -526,7 +526,7 @@ God is long-suffering. But why would you waste a second not being in the blessin
 
 ### abundant in goodness and truth
 
->John 1:16–18 (CSB) Indeed, we have all received **grace upon grace from his fullness**, for the law was given through Moses; grace and truth came through Jesus Christ. No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
+>John 1:16–18 Indeed, we have all received **grace upon grace from his fullness**, for the law was given through Moses; grace and truth came through Jesus Christ. No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
 
 There is only one source of goodness. And there is only one source of truth. That is God. And God has revealed him fully in the man, Jesus Christ, Son of God, who is God, who came to live, die, resurrected and ascended so that God would save his people from their sins.
 
@@ -536,7 +536,7 @@ We have no goodness within us that would put us in the same realm of God. On our
 
 And God knew. God knew. The Father and the Son knew this before they spent one ounce of energy creating the heavens and the earth. They knew you and me and all of his people and always loved them. And because God never began to love you, he will never stop loving you. 
 
->Matthew 11:28–30 (CSB) “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
+>Matthew 11:28–30 “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
 
 This is the rest that Christ has given to his people. We never have to earn his love. We have it in full. We have it in full because we have Christ forever.
 
@@ -595,9 +595,9 @@ He alone is God forever.
 
 ### the rewarder of them that diligently seek him
 
->Hebrews 11:6 (CSB) Now without faith it is impossible to please God, since the one who draws near to him must believe that he exists and that he rewards those who seek him.
+>Hebrews 11:6 Now without faith it is impossible to please God, since the one who draws near to him must believe that he exists and that he rewards those who seek him.
 
->Luke 11:5–13 (CSB) He also said to them, “Suppose one of you has a friend and goes to him at midnight and says to him, ‘Friend, lend me three loaves of bread, because a friend of mine on a journey has come to me, and I don’t have anything to offer him.’ Then he will answer from inside and say, ‘Don’t bother me! The door is already locked, and my children and I have gone to bed. I can’t get up to give you anything.’ I tell you, even though he won’t get up and give him anything because he is his friend, yet because of his friend’s shameless boldness, he will get up and give him as much as he needs.
+>Luke 11:5–13 He also said to them, “Suppose one of you has a friend and goes to him at midnight and says to him, ‘Friend, lend me three loaves of bread, because a friend of mine on a journey has come to me, and I don’t have anything to offer him.’ Then he will answer from inside and say, ‘Don’t bother me! The door is already locked, and my children and I have gone to bed. I can’t get up to give you anything.’ I tell you, even though he won’t get up and give him anything because he is his friend, yet because of his friend’s shameless boldness, he will get up and give him as much as he needs.
 >
 >“So I say to you, ask, and it will be given to you. Seek, and you will find. Knock, and the door will be opened to you. For everyone who asks receives, and the one who seeks finds, and to the one who knocks, the door will be opened. What father among you, if his son asks for a fish, will give him a snake instead of a fish? Or if he asks for an egg, will give him a scorpion? If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him?”
 
@@ -605,25 +605,25 @@ Let me some this up: turn to God, run to God, look up to God, ask God for God yo
 
 There are no other guarantees in life. Just God. You seek him you will find him. For:
 
->Deuteronomy 4:29 (CSB) But from there, you will search for the LORD your God, and you will find him when you seek him with all your heart and all your soul.
+>Deuteronomy 4:29 But from there, you will search for the LORD your God, and you will find him when you seek him with all your heart and all your soul.
 
 We know this to be a fact because it is a historical fact. Jesus Christ came into this world a little over 2,000 years ago to save sinners.
 
 ### and withal, most just and terrible in his judgments
 
->John 3:36 (CSB) The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
+>John 3:36 The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 
->Matthew 8:12 (CSB) But the sons of the kingdom will be thrown into the outer darkness where there will be weeping and gnashing of teeth.”
+>Matthew 8:12 But the sons of the kingdom will be thrown into the outer darkness where there will be weeping and gnashing of teeth.”
 
->Matthew 13:42-43 (CSB) They will throw them into the blazing furnace where there will be weeping and gnashing of teeth. Then the righteous will shine like the sun in their Father’s kingdom. Let anyone who has ears listen.
+>Matthew 13:42-43 They will throw them into the blazing furnace where there will be weeping and gnashing of teeth. Then the righteous will shine like the sun in their Father’s kingdom. Let anyone who has ears listen.
 
->Matthew 13:49-50 (CSB) So it will be at the end of the age. The angels will go out, separate the evil people from the righteous, and throw them into the blazing furnace, where there will be weeping and gnashing of teeth.
+>Matthew 13:49-50 So it will be at the end of the age. The angels will go out, separate the evil people from the righteous, and throw them into the blazing furnace, where there will be weeping and gnashing of teeth.
 
->Matthew 22:13-14 (CSB) Then the king told the attendants, ‘Tie him up hand and foot, and throw him into the outer darkness, where there will be weeping and gnashing of teeth.’ “For many are invited, but few are chosen.”
+>Matthew 22:13-14 Then the king told the attendants, ‘Tie him up hand and foot, and throw him into the outer darkness, where there will be weeping and gnashing of teeth.’ “For many are invited, but few are chosen.”
 
->Matthew 24:51 (CSB) He will cut him to pieces and assign him a place with the hypocrites, where there will be weeping and gnashing of teeth.
+>Matthew 24:51 He will cut him to pieces and assign him a place with the hypocrites, where there will be weeping and gnashing of teeth.
 
->Matthew 25:29-30 (CSB) For to everyone who has, more will be given, and he will have more than enough. But from the one who does not have, even what he has will be taken away from him. And throw this good-for-nothing servant into the outer darkness, where there will be weeping and gnashing of teeth.’
+>Matthew 25:29-30 For to everyone who has, more will be given, and he will have more than enough. But from the one who does not have, even what he has will be taken away from him. And throw this good-for-nothing servant into the outer darkness, where there will be weeping and gnashing of teeth.’
 
 Way too many times, I have heard believers and non-believers alike give this statement, "Christ never speaks of hell in the gospels."
 
@@ -631,19 +631,19 @@ Don't let your lack of keyword search prowess and the lack of your knowledge on 
 
 ### hating all sin
 
->Nehemiah 9:32 (CSB) So now, our God—the great, mighty, and awe-inspiring God who keeps his gracious covenant— do not view lightly all the hardships that have afflicted us, our kings and leaders, our priests and prophets, our ancestors and all your people, from the days of the Assyrian kings until today.
+>Nehemiah 9:32 So now, our God—the great, mighty, and awe-inspiring God who keeps his gracious covenant— do not view lightly all the hardships that have afflicted us, our kings and leaders, our priests and prophets, our ancestors and all your people, from the days of the Assyrian kings until today.
 
->Nehemiah 9:33 (CSB) You are righteous concerning all that has happened to us, because you have acted faithfully, while we have acted wickedly.
+>Nehemiah 9:33 You are righteous concerning all that has happened to us, because you have acted faithfully, while we have acted wickedly.
 
->Psalm 5:5 (CSB) The boastful cannot stand in your sight; you hate all evildoers.
+>Psalm 5:5 The boastful cannot stand in your sight; you hate all evildoers.
 
->Psalm 5:6 (CSB) You destroy those who tell lies; the LORD abhors violent and treacherous people.
+>Psalm 5:6 You destroy those who tell lies; the LORD abhors violent and treacherous people.
 
 For:
 
->Romans 9:13 (CSB) As it is written: I have loved Jacob, but I have hated Esau.
+>Romans 9:13 As it is written: I have loved Jacob, but I have hated Esau.
 
->Hebrews 9:27 (CSB) And just as it is appointed for people to die once — and after this, judgment —
+>Hebrews 9:27 And just as it is appointed for people to die once — and after this, judgment —
 
 In continue in the holiness of God in comparison to our sin, John Stott gives these additional descriptors in addition to God being most glorious and shines the brightest: [^stott-light]
 
@@ -660,17 +660,17 @@ As sons of God, we are not perfect. We cannot be perfect, on this side of heaven
 
 But the fantastic good news of a vengeful, sin-hating God is the same God who is the only solution to our sin.
 
->John 14:6-7 (CSB) Jesus told him, “I am the way, the truth, and the life. No one comes to the Father except through me. If you know me, you will also know my Father. From now on you do know him and have seen him.”
+>John 14:6-7 Jesus told him, “I am the way, the truth, and the life. No one comes to the Father except through me. If you know me, you will also know my Father. From now on you do know him and have seen him.”
 
 Christ is the only way. You want to be set from and sin free, look no further than Christ who your sin upon himself and welcomed the wrath of God to fall on him so that we would never bear that wrath.
 
 ### and who will by no means clear the guilty.
 
->Exodus 34:7b (CSB) But he will not leave the guilty unpunished, bringing the consequences of the fathers’ iniquity on the children and grandchildren to the third and fourth generation.
+>Exodus 34:7b But he will not leave the guilty unpunished, bringing the consequences of the fathers’ iniquity on the children and grandchildren to the third and fourth generation.
 
->Nahum 1:2–3 (CSB) The LORD is a jealous and avenging God; the LORD takes vengeance and is fierce in wrath. The LORD takes vengeance against his foes; he is furious with his enemies. The LORD is slow to anger but great in power; the LORD will never leave the guilty unpunished. His path is in the whirlwind and storm, and clouds are the dust beneath his feet.
+>Nahum 1:2–3 The LORD is a jealous and avenging God; the LORD takes vengeance and is fierce in wrath. The LORD takes vengeance against his foes; he is furious with his enemies. The LORD is slow to anger but great in power; the LORD will never leave the guilty unpunished. His path is in the whirlwind and storm, and clouds are the dust beneath his feet.
 
->2 Timothy 4:1–5 (CSB) I solemnly charge you before God and Christ Jesus, who is going to judge the living and the dead, and because of his appearing and his kingdom: Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching. For the time will come when people will not tolerate sound doctrine, but according to their own desires, will multiply teachers for themselves because they have an itch to hear what they want to hear. They will turn away from hearing the truth and will turn aside to myths. But as for you, exercise self-control in everything, endure hardship, do the work of an evangelist, fulfill your ministry.
+>2 Timothy 4:1–5 I solemnly charge you before God and Christ Jesus, who is going to judge the living and the dead, and because of his appearing and his kingdom: Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching. For the time will come when people will not tolerate sound doctrine, but according to their own desires, will multiply teachers for themselves because they have an itch to hear what they want to hear. They will turn away from hearing the truth and will turn aside to myths. But as for you, exercise self-control in everything, endure hardship, do the work of an evangelist, fulfill your ministry.
 
 Sin must be dealt with. Life must be paid for the consequences of sin. Sin gives death. 
 
@@ -680,7 +680,7 @@ Those who do not believe and trust in him will pay for their sin--they will eter
 
 But for his people--just his people--he will take them under his protective almighty arm and protect us and keep us to himself not just during judgment but forever.
 
->Matthew 23:37-39 (CSB) “Jerusalem, Jerusalem, who kills the prophets and stones those who are sent to her. How often I wanted to gather your children together, as a hen gathers her chicks under her wings, but you were not willing! See, your house is left to you desolate. For I tell you, you will not see me again until you say, ‘Blessed is he who comes in the name of the Lord’! ”
+>Matthew 23:37-39 “Jerusalem, Jerusalem, who kills the prophets and stones those who are sent to her. How often I wanted to gather your children together, as a hen gathers her chicks under her wings, but you were not willing! See, your house is left to you desolate. For I tell you, you will not see me again until you say, ‘Blessed is he who comes in the name of the Lord’! ”
 
 Choose on this day whom you will serve.
 

@@ -31,21 +31,21 @@ I am a member of my local church, [Reforming Truth Church](https://reformingtrut
 
 The gospel is the good news that God looked upon me as a wicked, depraved, weak sinner and sent his only begotten Son to live, die, and rise so that I might be truly alive and free by the power of his Spirit.
 
->Romans 5:9 (CSB) How much more then, since we have now been justified by his blood, will we be saved through him from wrath.
+>Romans 5:9 How much more then, since we have now been justified by his blood, will we be saved through him from wrath.
 
->1 John 5:1 (CSB) Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father also loves the one born of him.
+>1 John 5:1 Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father also loves the one born of him.
 
->Romans 8:14–17 (CSB) For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
+>Romans 8:14–17 For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
 
 For the gospel is the power of God in salvation for those who believe–to the Jew first and also the Greek. In this gospel, the righteousness of God is revealed from faith to faith, as it is written, "the righteous shall live by faith."
 
->Romans 1:16–17 (CSB) For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek. For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
+>Romans 1:16–17 For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek. For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
 
 This is the gospel of Christ that I must preach so that all may know the love of Christ for their souls, for "faith comes by hearing and hearing through the word of Christ." Simply put, we are saved by no name other than Jesus Christ.
 
->Romans 10:17 (CSB) So faith comes from what is heard, and what is heard comes through the message about Christ.
+>Romans 10:17 So faith comes from what is heard, and what is heard comes through the message about Christ.
 
->Acts 4:12 (CSB) There is salvation in no one else, for there is no other name under heaven given to people by which we must be saved.”
+>Acts 4:12 There is salvation in no one else, for there is no other name under heaven given to people by which we must be saved.”
 
 ## PERSONAL
 
@@ -55,7 +55,7 @@ Born on May 17, 1975, in Fort Worth, TX. My home is in Lexington, KY, where I li
 
 I came to saving faith when the Almighty God came down, took my heart, and, in exchange, gave me His heart and His Spirit.
 
->Ezekiel 36:25-27 (CSB) I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
+>Ezekiel 36:25-27 I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
 
 It was then and only then that I was able to "follow His statutes" and "be careful to observe the ordinances of the Lord."
 
@@ -63,17 +63,17 @@ I first heard the gospel of Christ when I was 8 years old in a small independent
 
 I remember clear as day, "Do you want to go to hell or heaven?" I had no desire to go to hell, so I raised my hand and came forward. I wish I knew the Lord then. I want to my heart was turned then. But it was not. I have no doubt that little Suzy to my left or little Bobby to my right was saved by God at that moment. But I was not. I know this because I spent the next 24 years sinning all the more and never repenting of my sin, not once to the God of the Universe. The gospel of John says it clearly:
 
->John 3:36 (CSB) The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
+>John 3:36 The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 
 I did not believe in Christ Jesus because I kept on sinning. I did not believe it because I thought that my repeating of words would keep me in God's good graces as I spent my adult life working in the pornography industry. I have had people would suggest that I was indeed saved at a young age. I push back, "Tell me this: is there such thing as an unrepentant Christian? Could I unrepentantly work in an industry that supplied my depraved and killing addiction?" (You think the answer would be a quick and easy "No," but I will spare you the number of times I have seen hesitation in answering this question.)
 
 The fact is I did not have eternal life. The truth is I had the wrath of God remaining upon me because I had rejected and disobeyed the Son of God. If I had died before that rainy Monday in April 2007 in Dallas, I know that I know I would burn for all eternity in the lake of fire.
 
->Ephesians 2:1–3 (CSB) And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
+>Ephesians 2:1–3 And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
 
 And
 
->Titus 3:3 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
+>Titus 3:3 For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
 
 That was me. That was me all my life. Foolish Worthless. Disobedient. Deceived. Enslaved to my own lustful addiction. Living in malice and envy. Hateful and hating everybody.
 
@@ -81,33 +81,33 @@ In other words, I was dead in my trespasses and sins against the Almighty God.
 
 But God, being absolutely incomparable in grace and mercy, saved me. Not because I have done anything good in my life. I have done everything wicked in my life. But God looked down on me, dead in my sins, took pity, and called me forth as Christ would call forth Lazarus out of the grave of the dead.
 
->Romans 5:8 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us.
+>Romans 5:8 But God proves his own love for us in that while we were still sinners, Christ died for us.
 
 Do you see this? My heart turned towards him, and it had nothing to do with my own activation of God's love. No! God made his mind up before the foundation of the world that the Father would send his only begotten Son to live and die to come to save my soul.
 
->Ephesians 1:4–6 (CSB) For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
+>Ephesians 1:4–6 For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
 The crucifixion of my only, only Lord Jesus Christ happened nearly 2,000 years before I was even born, let alone born again to love God. I did not activate the love of God, but rather, God loved me first.
 
->1 John 4:19 (CSB) We love because he first loved us.
+>1 John 4:19 We love because he first loved us.
 
 And 
 
->John 15:16 (CSB) You did not choose me, but I chose you. I appointed you to go and produce fruit and that your fruit should remain, so that whatever you ask the Father in my name, he will give you.
+>John 15:16 You did not choose me, but I chose you. I appointed you to go and produce fruit and that your fruit should remain, so that whatever you ask the Father in my name, he will give you.
 
 God gave me His Son. God gave me His Spirit. God the Father has made his home with me.
 
->John 14:23 (CSB) Jesus answered, “If anyone loves me, he will keep my word. My Father will love him, and we will come to him and make our home with him.
+>John 14:23 Jesus answered, “If anyone loves me, he will keep my word. My Father will love him, and we will come to him and make our home with him.
 
 What kind of love is this? It can only be the Triune God who is the only one and true God that saves:
 
->Zephaniah 3:17 (CSB) The LORD your God is among you, a warrior who saves. He will rejoice over you with gladness. He will be quiet in his love. He will delight in you with singing.”
+>Zephaniah 3:17 The LORD your God is among you, a warrior who saves. He will rejoice over you with gladness. He will be quiet in his love. He will delight in you with singing.”
 
 It stands to reason: if God could save a wretch like me, then no one is outside the reach of his mighty saving arm:
 
->Isaiah 50:2a (CSB) Why was no one there when I came? Why was there no one to answer when I called? Is my arm too weak to redeem? Or do I have no power to rescue?
+>Isaiah 50:2a Why was no one there when I came? Why was there no one to answer when I called? Is my arm too weak to redeem? Or do I have no power to rescue?
 
 It is like I ask my kids, "Does God have T-Rex arms?" Of course, He doesn't. He is the mighty one who saves.
 

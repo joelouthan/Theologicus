@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 33:5 (CSB)   He loves righteousness and justice; the earth is full of the LORD’s unfailing love.
+>Psalm 33:5   He loves righteousness and justice; the earth is full of the LORD’s unfailing love.
 
 ## The Prayer
 

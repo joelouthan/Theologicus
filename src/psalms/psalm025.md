@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 25 (CSB)  
+>Psalm 25  
 ><sup></sup> Of David. 
 >
 ><sup>1</sup> LORD, I appeal to you. 

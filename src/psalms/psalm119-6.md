@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 119:6 (CSB) Then I would not be ashamed when I think about all your commands.
+>Psalm 119:6 Then I would not be ashamed when I think about all your commands.
 
 ## The Prayer
 

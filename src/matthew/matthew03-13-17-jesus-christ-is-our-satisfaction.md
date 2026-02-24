@@ -6,7 +6,7 @@
 
 ## The Text
 
->Matthew 3:13–17 (CSB)  
+>Matthew 3:13–17  
 ><sup>13</sup> Then Jesus came from Galilee to John at the Jordan, to be baptized by him. 
 >
 ><sup>14</sup> But John tried to stop him, saying, “I need to be baptized by you, and yet you come to me?” 
@@ -29,11 +29,11 @@ But how can you defend yourself? How can you make account for yourself? You see,
 
 You are going to need someone who is worthy and holy and righteous to be your declaration and defense.
 
->Romans 8:16 (CSB) The Spirit himself testifies together with our spirit that we are God’s children,
+>Romans 8:16 The Spirit himself testifies together with our spirit that we are God’s children,
 
->1 John 5:6–8 (CSB) Jesus Christ—He is the One who came by water and blood, not by water only, but by water and by blood. And the Spirit is the One who testifies, because the Spirit is the truth. For there are three that testify: the Spirit, the water, and the blood—and these three are in agreement.
+>1 John 5:6–8 Jesus Christ—He is the One who came by water and blood, not by water only, but by water and by blood. And the Spirit is the One who testifies, because the Spirit is the truth. For there are three that testify: the Spirit, the water, and the blood—and these three are in agreement.
 
->1 John 2:1 (CSB) My little children, I am writing you these things so that you may not sin. But if anyone does sin, we have an advocate with the Father—Jesus Christ the Righteous One.
+>1 John 2:1 My little children, I am writing you these things so that you may not sin. But if anyone does sin, we have an advocate with the Father—Jesus Christ the Righteous One.
 
 The blessed Triune God will be your declaration. The Spirit is your adoption and bond with God. Your Father will declare for all of creation to know, "THIS IS MY CHILD IN WHOM I AM WELL PLEASED!"
 
@@ -41,4 +41,4 @@ This is when Christ descends from his judgment thorn, runs over to you, gather y
 
 "NO CONDEMNATION! Come and enter into the joy of your Master!"
 
->Psalm 17:15 (CSB) But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
+>Psalm 17:15 But I will see your face in righteousness; when I awake, I will be satisfied with your presence.

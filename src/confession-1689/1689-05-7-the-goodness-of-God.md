@@ -8,7 +8,7 @@
 
 ## The Text
 
->Numbers 11:21-23 (CSB) But Moses replied, “I’m in the middle of a people with six hundred thousand foot soldiers, yet you say, ‘I will give them meat, and they will eat for a month.’ If flocks and herds were slaughtered for them, would they have enough? Or if all the fish in the sea were caught for them, would they have enough? ”
+>Numbers 11:21-23 But Moses replied, “I’m in the middle of a people with six hundred thousand foot soldiers, yet you say, ‘I will give them meat, and they will eat for a month.’ If flocks and herds were slaughtered for them, would they have enough? Or if all the fish in the sea were caught for them, would they have enough? ”
 >
 >The LORD answered Moses, “Is the LORD’s arm weak? Now you will see whether or not what I have promised will happen to you.”
 
@@ -20,19 +20,19 @@
 
 ### As the providence of God doth in general reach to all creatures
 
->1 Timothy 4:10 (CSB) For this reason we labor and strive, because we have put our hope in the living God, who is the Savior of all people, especially of those who believe.
+>1 Timothy 4:10 For this reason we labor and strive, because we have put our hope in the living God, who is the Savior of all people, especially of those who believe.
 
 For:
 
->Acts 1:7–8 (CSB) He said to them, “It is not for you to know times or periods that the Father has set by his own authority. But you will receive power when the Holy Spirit has come on you, and you will be my witnesses in Jerusalem, in all Judea and Samaria, and to the ends of the earth.”
+>Acts 1:7–8 He said to them, “It is not for you to know times or periods that the Father has set by his own authority. But you will receive power when the Holy Spirit has come on you, and you will be my witnesses in Jerusalem, in all Judea and Samaria, and to the ends of the earth.”
 
 And
 
->Mark 16:15 (CSB) Then he said to them, “Go into all the world and preach the gospel to all creation.
+>Mark 16:15 Then he said to them, “Go into all the world and preach the gospel to all creation.
 
 And
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
 It is not based on our faithfulness of preaching the word or sharing the gospel. My beloved, please give that anxiety over to the Lord. The goodness of God will reach all people and all creatures. For some of us, whom the Lord has called, to carry his gospel to the ends of the earth. These people know who they are for they want to do the will of God.
 
@@ -42,11 +42,11 @@ The salvation of his people is completely in the sovereignty and will and love o
 
 ### so after a more special manner it taketh care of his church
 
->Amos 9:8–9 (CSB) Look, the eyes of the Lord GOD are on the sinful kingdom, and I will obliterate it from the face of the earth. However, I will not totally destroy the house of Jacob— this is the LORD’s declaration— for I am about to give the command, and I will shake the house of Israel among all the nations, as one shakes a sieve, but not a pebble will fall to the ground.
+>Amos 9:8–9 Look, the eyes of the Lord GOD are on the sinful kingdom, and I will obliterate it from the face of the earth. However, I will not totally destroy the house of Jacob— this is the LORD’s declaration— for I am about to give the command, and I will shake the house of Israel among all the nations, as one shakes a sieve, but not a pebble will fall to the ground.
 
 For:
 
->Ephesians 3:4-13 (CSB) By reading this you are able to understand my insight into the mystery of Christ. This was not made known to people in other generations as it is now revealed to his holy apostles and prophets by the Spirit: The Gentiles are coheirs, members of the same body, and partners in the promise in Christ Jesus through the gospel. I was made a servant of this gospel by the gift of God’s grace that was given to me by the working of his power.
+>Ephesians 3:4-13 By reading this you are able to understand my insight into the mystery of Christ. This was not made known to people in other generations as it is now revealed to his holy apostles and prophets by the Spirit: The Gentiles are coheirs, members of the same body, and partners in the promise in Christ Jesus through the gospel. I was made a servant of this gospel by the gift of God’s grace that was given to me by the working of his power.
 >
 >This grace was given to me — the least of all the saints — to proclaim to the Gentiles the incalculable riches of Christ, and to shed light for all about the administration of the mystery hidden for ages in God who created all things. This is so that God’s multi-faceted wisdom may now be made known through the church to the rulers and authorities in the heavens. This is according to his eternal purpose accomplished in Christ Jesus our Lord. In him we have boldness and confident access through faith in him. So, then, I ask you not to be discouraged over my afflictions on your behalf, for they are your glory.
 
@@ -54,7 +54,7 @@ The Church is the manifold wisdom that is put on display--the preaching of God--
 
 And you might say, "But the people of God have always failed and will continue fail. We are so weak and feeble? How can he possibly be proud of us?"
 
->Zephaniah 3:17 (CSB) The LORD your God is among you,  
+>Zephaniah 3:17 The LORD your God is among you,  
 >a warrior who saves.  
 >He will rejoice over you with gladness.  
 >He will be quiet in his love.  
@@ -62,7 +62,7 @@ And you might say, "But the people of God have always failed and will continue f
 
 And:
 
->Proverbs 24:16 (CSB) Though a righteous person falls seven times,  
+>Proverbs 24:16 Though a righteous person falls seven times,  
 >he will get up,  
 >but the wicked will stumble into ruin.
 
@@ -70,7 +70,7 @@ Don't you see! Our God brags on us! Some in the heavenly realm might doubt the p
 
 Why? Because he alone is glorious and majestic. Because his Son has all dominion and power and glory.
 
->Daniel 7:13-14 (CSB) I continued watching in the night visions,  
+>Daniel 7:13-14 I continued watching in the night visions,  
 >and suddenly one like a son of man  
 >was coming with the clouds of heaven.  
 >He approached the Ancient of Days  
@@ -89,11 +89,11 @@ Praise his glorious name!
 
 ### and disposeth of all things to the good thereof
 
->Isaiah 43:3–5 (CSB) For I am the LORD your God, the Holy One of Israel, and your Savior. I have given Egypt as a ransom for you, Cush and Seba in your place. Because you are precious in my sight and honored, and I love you, I will give people in exchange for you and nations instead of your life. Do not fear, for I am with you; I will bring your descendants from the east, and gather you from the west.
+>Isaiah 43:3–5 For I am the LORD your God, the Holy One of Israel, and your Savior. I have given Egypt as a ransom for you, Cush and Seba in your place. Because you are precious in my sight and honored, and I love you, I will give people in exchange for you and nations instead of your life. Do not fear, for I am with you; I will bring your descendants from the east, and gather you from the west.
 
 All I will do is say no more but praise his glorious name forever.
 
->Psalm 113 (CSB)  
+>Psalm 113  
 ><sup>1</sup> Hallelujah! Give praise, servants of the LORD; praise the name of the LORD. 
 >
 ><sup>2</sup> Let the name of the LORD be blessed both now and forever. 

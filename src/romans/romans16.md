@@ -4,7 +4,7 @@
 
 ## The Text
 
->Romans 16 (CSB)  
+>Romans 16  
 ><sup>1</sup> I commend to you our sister Phoebe, who is a servant of the church in Cenchreae. 
 >
 ><sup>2</sup> So you should welcome her in the Lord in a manner worthy of the saints and assist her in whatever matter she may require your help. For indeed she has been a benefactor of many—and of me also. 
@@ -59,7 +59,7 @@
 
 ## Our God
 
->Romans 16:1–16 (CSB) I commend to you our sister Phoebe, who is a servant of the church in Cenchreae. So you should welcome her in the Lord in a manner worthy of the saints and assist her in whatever matter she may require your help. For indeed she has been a benefactor of many—and of me also. Give my greetings to Prisca and Aquila, my coworkers in Christ Jesus, who risked their own necks for my life. Not only do I thank them, but so do all the Gentile churches. Greet also the church that meets in their home. Greet my dear friend Epaenetus, who is the first convert to Christ from Asia. Greet Mary, who has worked very hard for you. Greet Andronicus and Junia, my fellow Jews and fellow prisoners. They are noteworthy in the eyes of the apostles, and they were also in Christ before me. Greet Ampliatus, my dear friend in the Lord. Greet Urbanus, our coworker in Christ, and my dear friend Stachys. Greet Apelles, who is approved in Christ. Greet those who belong to the household of Aristobulus. Greet Herodion, my fellow Jew. Greet those who belong to the household of Narcissus who are in the Lord. Greet Tryphaena and Tryphosa, who have worked hard in the Lord. Greet my dear friend Persis, who has worked very hard in the Lord. Greet Rufus, chosen in the Lord; also his mother—and mine. Greet Asyncritus, Phlegon, Hermes, Patrobas, Hermas, and the brothers and sisters who are with them. Greet Philologus and Julia, Nereus and his sister, and Olympas, and all the saints who are with them. Greet one another with a holy kiss. All the churches of Christ send you greetings.
+>Romans 16:1–16 I commend to you our sister Phoebe, who is a servant of the church in Cenchreae. So you should welcome her in the Lord in a manner worthy of the saints and assist her in whatever matter she may require your help. For indeed she has been a benefactor of many—and of me also. Give my greetings to Prisca and Aquila, my coworkers in Christ Jesus, who risked their own necks for my life. Not only do I thank them, but so do all the Gentile churches. Greet also the church that meets in their home. Greet my dear friend Epaenetus, who is the first convert to Christ from Asia. Greet Mary, who has worked very hard for you. Greet Andronicus and Junia, my fellow Jews and fellow prisoners. They are noteworthy in the eyes of the apostles, and they were also in Christ before me. Greet Ampliatus, my dear friend in the Lord. Greet Urbanus, our coworker in Christ, and my dear friend Stachys. Greet Apelles, who is approved in Christ. Greet those who belong to the household of Aristobulus. Greet Herodion, my fellow Jew. Greet those who belong to the household of Narcissus who are in the Lord. Greet Tryphaena and Tryphosa, who have worked hard in the Lord. Greet my dear friend Persis, who has worked very hard in the Lord. Greet Rufus, chosen in the Lord; also his mother—and mine. Greet Asyncritus, Phlegon, Hermes, Patrobas, Hermas, and the brothers and sisters who are with them. Greet Philologus and Julia, Nereus and his sister, and Olympas, and all the saints who are with them. Greet one another with a holy kiss. All the churches of Christ send you greetings.
 
 ### God Has Overcome: Christ has saved us to one another
 
@@ -68,23 +68,23 @@ Consider these Christians in Acts 16:
 - Ex-Pharisee hunter of Christians, Apostle Paul
 - Greek Jewish Christian, Timothy
 
->Acts 16:1 (CSB) Paul went on to Derbe and Lystra, where there was a disciple named Timothy, the son of a believing Jewish woman, but his father was a Greek.
+>Acts 16:1 Paul went on to Derbe and Lystra, where there was a disciple named Timothy, the son of a believing Jewish woman, but his father was a Greek.
 
 - Business owner, Lydia
 
->Acts 16:14-15 (CSB) A God-fearing woman named Lydia, a dealer in purple cloth from the city of Thyatira, was listening. The Lord opened her heart to respond to what Paul was saying. After she and her household were baptized, she urged us, “If you consider me a believer in the Lord, come and stay at my house.” And she persuaded us.
+>Acts 16:14-15 A God-fearing woman named Lydia, a dealer in purple cloth from the city of Thyatira, was listening. The Lord opened her heart to respond to what Paul was saying. After she and her household were baptized, she urged us, “If you consider me a believer in the Lord, come and stay at my house.” And she persuaded us.
 
 - Demonic-possessed slave girl
 
->Acts 16:16-18 (CSB) Once, as we were on our way to prayer, a slave girl met us who had a spirit by which she predicted the future. She made a large profit for her owners by fortune-telling. As she followed Paul and us she cried out, “These men, who are proclaiming to you a way of salvation, are the servants of the Most High God.” She did this for many days. Paul was greatly annoyed. Turning to the spirit, he said, “I command you in the name of Jesus Christ to come out of her! ” And it came out right away.
+>Acts 16:16-18 Once, as we were on our way to prayer, a slave girl met us who had a spirit by which she predicted the future. She made a large profit for her owners by fortune-telling. As she followed Paul and us she cried out, “These men, who are proclaiming to you a way of salvation, are the servants of the Most High God.” She did this for many days. Paul was greatly annoyed. Turning to the spirit, he said, “I command you in the name of Jesus Christ to come out of her! ” And it came out right away.
 
 - Blue-collar dude, the jailer
 
->Acts 16:27-34 (CSB) When the jailer woke up and saw the doors of the prison standing open, he drew his sword and was going to kill himself, since he thought the prisoners had escaped. But Paul called out in a loud voice, “Don’t harm yourself, because we’re all here! ” The jailer called for lights, rushed in, and fell down trembling before Paul and Silas. He escorted them out and said, “Sirs, what must I do to be saved?” They said, “Believe in the Lord Jesus, and you will be saved — you and your household.” And they spoke the word of the Lord to him along with everyone in his house. He took them the same hour of the night and washed their wounds. Right away he and all his family were baptized. He brought them into his house, set a meal before them, and rejoiced because he had come to believe in God with his entire household.
+>Acts 16:27-34 When the jailer woke up and saw the doors of the prison standing open, he drew his sword and was going to kill himself, since he thought the prisoners had escaped. But Paul called out in a loud voice, “Don’t harm yourself, because we’re all here! ” The jailer called for lights, rushed in, and fell down trembling before Paul and Silas. He escorted them out and said, “Sirs, what must I do to be saved?” They said, “Believe in the Lord Jesus, and you will be saved — you and your household.” And they spoke the word of the Lord to him along with everyone in his house. He took them the same hour of the night and washed their wounds. Right away he and all his family were baptized. He brought them into his house, set a meal before them, and rejoiced because he had come to believe in God with his entire household.
 
 Congratulations, you now have a home church:
 
->Acts 16:40 (CSB) After leaving the jail, they came to Lydia’s house, where they saw and encouraged the brothers and sisters, and departed.
+>Acts 16:40 After leaving the jail, they came to Lydia’s house, where they saw and encouraged the brothers and sisters, and departed.
 
 Paul listed Timothy, Prisca and Aquila, Epaenetus, Mary, Andronicus and Junia, Ampliatus, Urbanus, Stachys, Apelles, Aristobulus, Herodion, Narcissus, Tryphaena and Tryphosa, Persis, Rufus, Asyncritus, Phlegon, Hermes, Patrobas, Hermas, Philologus, Julia, Nereus, Olympas, and the saints in Rome.
 
@@ -98,7 +98,7 @@ Amen.
 
 ### God Has Overcome: Christ has brought us together
 
->Mark 15:20-21 (CSB) After they had mocked him, they stripped him of the purple robe and put his clothes on him. They led him out to crucify him. They forced a man coming in from the country, who was passing by, to carry Jesus’s cross. He was **Simon of Cyrene, the father of Alexander and Rufus**.
+>Mark 15:20-21 After they had mocked him, they stripped him of the purple robe and put his clothes on him. They led him out to crucify him. They forced a man coming in from the country, who was passing by, to carry Jesus’s cross. He was **Simon of Cyrene, the father of Alexander and Rufus**.
 
 Where we cannot be absolutely sure, most Bible scholars have determined that Mark's Gospel was the first gospel to be written, finished and distributed (in around 60AD). This means that Mark's (secretary of Peter) account, more than likely got into the hands of the other Gospel writers, (Matthew, Luke, and John) as well as the Apostles Paul and the writer of Hebrews. 
 
@@ -114,9 +114,9 @@ Praise be to God!
 
 ### God Has Overcome: Christ shepherds us
 
->John 21:15–19 (CSB) When they had eaten breakfast, Jesus asked Simon Peter, “Simon, son of John, do you love me more than these?” “Yes, Lord,” he said to him, “you know that I love you.” “Feed my lambs,” he told him. A second time he asked him, “Simon, son of John, do you love me?” “Yes, Lord,” he said to him, “you know that I love you.” “Shepherd my sheep,” he told him. He asked him the third time, “Simon, son of John, do you love me?” Peter was grieved that he asked him the third time, “Do you love me?” He said, “Lord, you know everything; you know that I love you.” “Feed my sheep,” Jesus said. “Truly I tell you, when you were younger, you would tie your belt and walk wherever you wanted. But when you grow old, you will stretch out your hands and someone else will tie you and carry you where you don’t want to go.” He said this to indicate by what kind of death Peter would glorify God. After saying this, he told him, “Follow me.”
+>John 21:15–19 When they had eaten breakfast, Jesus asked Simon Peter, “Simon, son of John, do you love me more than these?” “Yes, Lord,” he said to him, “you know that I love you.” “Feed my lambs,” he told him. A second time he asked him, “Simon, son of John, do you love me?” “Yes, Lord,” he said to him, “you know that I love you.” “Shepherd my sheep,” he told him. He asked him the third time, “Simon, son of John, do you love me?” Peter was grieved that he asked him the third time, “Do you love me?” He said, “Lord, you know everything; you know that I love you.” “Feed my sheep,” Jesus said. “Truly I tell you, when you were younger, you would tie your belt and walk wherever you wanted. But when you grow old, you will stretch out your hands and someone else will tie you and carry you where you don’t want to go.” He said this to indicate by what kind of death Peter would glorify God. After saying this, he told him, “Follow me.”
 
->Ephesians 4:11–16 (CSB) And he himself gave some to be apostles, some prophets, some evangelists, some pastors and teachers, to equip the saints for the work of ministry, to build up the body of Christ, until we all reach unity in the faith and in the knowledge of God’s Son, growing into maturity with a stature measured by Christ’s fullness. Then we will no longer be little children, tossed by the waves and blown around by every wind of teaching, by human cunning with cleverness in the techniques of deceit. But speaking the truth in love, let us grow in every way into him who is the head—Christ. From him the whole body, fitted and knit together by every supporting ligament, promotes the growth of the body for building itself up in love by the proper working of each individual part.
+>Ephesians 4:11–16 And he himself gave some to be apostles, some prophets, some evangelists, some pastors and teachers, to equip the saints for the work of ministry, to build up the body of Christ, until we all reach unity in the faith and in the knowledge of God’s Son, growing into maturity with a stature measured by Christ’s fullness. Then we will no longer be little children, tossed by the waves and blown around by every wind of teaching, by human cunning with cleverness in the techniques of deceit. But speaking the truth in love, let us grow in every way into him who is the head—Christ. From him the whole body, fitted and knit together by every supporting ligament, promotes the growth of the body for building itself up in love by the proper working of each individual part.
 
 The pastors--the elders, the under-shepherds--are there to minister to the flock and care for Christ's little lambs. The administer the sacraments and preach the word of God over our souls and hearts and ears. Praise be to God.
 
@@ -128,11 +128,11 @@ Run some other yahoo spouting nonsense and the church is going to shut it down. 
 
 Pastor, is that what you want? Or do you want a bunch of yes-people? Do you want a bunch of elders who are yes-men with wet noodles for backbones? If you are trying to build your little kingdom of sand, this is exactly what you want.
 
->Matthew 18:6 (CSB) “But whoever causes one of these little ones who believe in me to fall away—it would be better for him if a heavy millstone were hung around his neck and he were drowned in the depths of the sea.
+>Matthew 18:6 “But whoever causes one of these little ones who believe in me to fall away—it would be better for him if a heavy millstone were hung around his neck and he were drowned in the depths of the sea.
 
 And:
 
->Jeremiah 23:1-4 (CSB) “Woe to the shepherds who destroy and scatter the sheep of my pasture! ” This is the LORD’s declaration. “Therefore, this is what the LORD, the God of Israel, says about the shepherds who tend my people: You have scattered my flock, banished them, and have not attended to them. I am about to attend to you because of your evil acts” — this is the LORD’s declaration. “I will gather the remnant of my flock from all the lands where I have banished them, and I will return them to their grazing land. They will become fruitful and numerous. I will raise up shepherds over them who will tend them. They will no longer be afraid or discouraged, nor will any be missing.” This is the LORD’s declaration.
+>Jeremiah 23:1-4 “Woe to the shepherds who destroy and scatter the sheep of my pasture! ” This is the LORD’s declaration. “Therefore, this is what the LORD, the God of Israel, says about the shepherds who tend my people: You have scattered my flock, banished them, and have not attended to them. I am about to attend to you because of your evil acts” — this is the LORD’s declaration. “I will gather the remnant of my flock from all the lands where I have banished them, and I will return them to their grazing land. They will become fruitful and numerous. I will raise up shepherds over them who will tend them. They will no longer be afraid or discouraged, nor will any be missing.” This is the LORD’s declaration.
 
 God protects his sheep. He is not above stomping out your sand kingdom and removing you to protect his people.
 
@@ -142,13 +142,13 @@ But go ahead and build that little kingdom. That is on your neck when you stand 
 
 ### God Has Overcome: Christ will grow and mature us
 
->Matthew 10:16 (CSB) “Look, I’m sending you out like sheep among wolves. Therefore be as shrewd as serpents and as innocent as doves.
+>Matthew 10:16 “Look, I’m sending you out like sheep among wolves. Therefore be as shrewd as serpents and as innocent as doves.
 
->Hebrews 12:6 (CSB) for the Lord disciplines the one he loves and punishes every son he receives.
+>Hebrews 12:6 for the Lord disciplines the one he loves and punishes every son he receives.
 
->Romans 8:29 (CSB) For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
+>Romans 8:29 For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
 
->Hebrews 5:11–6:3 (CSB) We have a great deal to say about this, and it is difficult to explain, since you have become too lazy to understand. Although by this time you ought to be teachers, you need someone to teach you the basic principles of God’s revelation again. You need milk, not solid food. Now everyone who lives on milk is inexperienced with the message about righteousness, because he is an infant. But solid food is for the mature—for those whose senses have been trained to distinguish between good and evil. Therefore, let us leave the elementary teaching about Christ and go on to maturity, not laying again a foundation of repentance from dead works, faith in God, teaching about ritual washings, laying on of hands, the resurrection of the dead, and eternal judgment. And we will do this if God permits.
+>Hebrews 5:11–6:3 We have a great deal to say about this, and it is difficult to explain, since you have become too lazy to understand. Although by this time you ought to be teachers, you need someone to teach you the basic principles of God’s revelation again. You need milk, not solid food. Now everyone who lives on milk is inexperienced with the message about righteousness, because he is an infant. But solid food is for the mature—for those whose senses have been trained to distinguish between good and evil. Therefore, let us leave the elementary teaching about Christ and go on to maturity, not laying again a foundation of repentance from dead works, faith in God, teaching about ritual washings, laying on of hands, the resurrection of the dead, and eternal judgment. And we will do this if God permits.
 
 Pastor, this is one of the goals you want for your church. Brother and sister, pick a church that wants this.
 
@@ -156,11 +156,11 @@ Pastor, this is one of the goals you want for your church. Brother and sister, p
 
 ### God Has Overcome: Christ has conquered
 
->Colossians 2:13–15 (CSB) And when you were dead in trespasses and in the uncircumcision of your flesh, he made you alive with him and forgave us all our trespasses. He erased the certificate of debt, with its obligations, that was against us and opposed to us, and has taken it away by nailing it to the cross. He disarmed the rulers and authorities and disgraced them publicly; he triumphed over them in him.
+>Colossians 2:13–15 And when you were dead in trespasses and in the uncircumcision of your flesh, he made you alive with him and forgave us all our trespasses. He erased the certificate of debt, with its obligations, that was against us and opposed to us, and has taken it away by nailing it to the cross. He disarmed the rulers and authorities and disgraced them publicly; he triumphed over them in him.
 
->Revelation 12:10–12 (CSB) Then I heard a loud voice in heaven say, The salvation and the power and the kingdom of our God and the authority of his Christ have now come, because the accuser of our brothers and sisters, who accuses them before our God day and night, has been thrown down. They conquered him by the blood of the Lamb and by the word of their testimony; for they did not love their lives to the point of death. Therefore rejoice, you heavens, and you who dwell in them! Woe to the earth and the sea, because the devil has come down to you with great fury, because he knows his time is short.
+>Revelation 12:10–12 Then I heard a loud voice in heaven say, The salvation and the power and the kingdom of our God and the authority of his Christ have now come, because the accuser of our brothers and sisters, who accuses them before our God day and night, has been thrown down. They conquered him by the blood of the Lamb and by the word of their testimony; for they did not love their lives to the point of death. Therefore rejoice, you heavens, and you who dwell in them! Woe to the earth and the sea, because the devil has come down to you with great fury, because he knows his time is short.
 
->Romans 8:35–37 (CSB) Who can separate us from the love of Christ? Can affliction or distress or persecution or famine or nakedness or danger or sword? As it is written: Because of you we are being put to death all day long; we are counted as sheep to be slaughtered. No, in all these things we are more than conquerors through him who loved us.
+>Romans 8:35–37 Who can separate us from the love of Christ? Can affliction or distress or persecution or famine or nakedness or danger or sword? As it is written: Because of you we are being put to death all day long; we are counted as sheep to be slaughtered. No, in all these things we are more than conquerors through him who loved us.
 
 I think Octavius Winslow says it best:
 
@@ -178,7 +178,7 @@ I think Octavius Winslow says it best:
 
 ### God Has Overcome: Christ is always with us
 
->Philippians 1:3–6 (CSB) I give thanks to my God for every remembrance of you, always praying with joy for all of you in my every prayer, because of your partnership in the gospel from the first day until now. I am sure of this, that he who started a good work in you will carry it on to completion until the day of Christ Jesus.
+>Philippians 1:3–6 I give thanks to my God for every remembrance of you, always praying with joy for all of you in my every prayer, because of your partnership in the gospel from the first day until now. I am sure of this, that he who started a good work in you will carry it on to completion until the day of Christ Jesus.
 
 I know that we love the stories of startup businesses that started in their garage. None better than the story of Apple. Oh look, from sheer perspiration, determination, grit, and a little bit of luck, you too can start in your garage and grow into the world's most valuable company.
 
@@ -208,7 +208,7 @@ Take the moment right now to thank the people who have ministered with you over 
 
 ### God Has Overcome: Glory to God forever! Amen!
 
->Hebrews 1:1-3 (CSB) Long ago God spoke to our ancestors by the prophets at different times and in different ways. In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him. The Son is the radiance of God’s glory and the exact expression of his nature, sustaining all things by his powerful word. After making purification for sins, he sat down at the right hand of the Majesty on high.
+>Hebrews 1:1-3 Long ago God spoke to our ancestors by the prophets at different times and in different ways. In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him. The Son is the radiance of God’s glory and the exact expression of his nature, sustaining all things by his powerful word. After making purification for sins, he sat down at the right hand of the Majesty on high.
 
 >Glory to the Father, and to the Son, and to the Holy Spirit,
 >As it was in the beginning, is now, and ever shall be world without end. Amen.

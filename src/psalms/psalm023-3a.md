@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 23:3 (CSB)   He renews my life
+>Psalm 23:3   He renews my life
 
 ## The Prayer
 

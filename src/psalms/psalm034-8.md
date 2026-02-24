@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 34 (CSB)  
+>Psalm 34  
 ><sup>8</sup> Taste and see that the LORD is good. How happy is the person who takes refuge in him! 
 
 ## The Prayer

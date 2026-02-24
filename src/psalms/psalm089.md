@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 89 (CSB)    
+>Psalm 89    
 > A Maskil of Ethan the Ezrahite. 
 >
 ><sup> 1  </sup>I will sing about the LORD’s faithful love forever; I will proclaim your faithfulness to all generations with my mouth. 

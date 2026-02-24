@@ -27,7 +27,7 @@ So when Paul talks “mind set on the flesh and spirit” or in our case “for 
 
 Or here:
 
->John 3:36 (CSB) The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
+>John 3:36 The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 
 Paul is simply going into a more detailed explanation of what Christ said.
 
@@ -35,13 +35,13 @@ Paul is simply going into a more detailed explanation of what Christ said.
 
 Why is this so important? All the promises of God are both yes and amen, but the promises for you, if you are a child of God, go many more AND deeper, more meaningful, more lovely and beautiful than anything we could have imagined.
 
->Romans 8:9-11 (CSB) You, however, are not in the flesh, but in the Spirit, if indeed the Spirit of God lives in you. If anyone does not have the Spirit of Christ, he does not belong to him. Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness. And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
+>Romans 8:9-11 You, however, are not in the flesh, but in the Spirit, if indeed the Spirit of God lives in you. If anyone does not have the Spirit of Christ, he does not belong to him. Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness. And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
 
->Romans 8:14-17 (CSB) For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
+>Romans 8:14-17 For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
 
 So who loves God? We just read that:
 
->Romans 8:27 (CSB) And he who searches our hearts knows the mind of the Spirit, because he intercedes for the saints according to the will of God.
+>Romans 8:27 And he who searches our hearts knows the mind of the Spirit, because he intercedes for the saints according to the will of God.
 
 That God knows the heart and that is such good news that he looks and sees us intimately.
 
@@ -57,19 +57,19 @@ Let me live and I will live to Christ.
 
 Kill me and Christ is my gain!
 
->Philippians 1:21-26 (CSB) For me, to live is Christ and to die is gain. Now if I live on in the flesh, this means fruitful work for me; and I don’t know which one I should choose. I am torn between the two. I long to depart and be with Christ—which is far better— but to remain in the flesh is more necessary for your sake. Since I am persuaded of this, I know that I will remain and continue with all of you for your progress and joy in the faith, so that, because of my coming to you again, your boasting in Christ Jesus may abound.
+>Philippians 1:21-26 For me, to live is Christ and to die is gain. Now if I live on in the flesh, this means fruitful work for me; and I don’t know which one I should choose. I am torn between the two. I long to depart and be with Christ—which is far better— but to remain in the flesh is more necessary for your sake. Since I am persuaded of this, I know that I will remain and continue with all of you for your progress and joy in the faith, so that, because of my coming to you again, your boasting in Christ Jesus may abound.
 
 Take my job and force me into poverty and I will be content.
 
->Philippians 4:10-14 (CSB) I rejoiced in the Lord greatly because once again you renewed your care for me. You were, in fact, concerned about me but lacked the opportunity to show it. I don’t say this out of need, for I have learned to be content in whatever circumstances I find myself. I know how to make do with little, and I know how to make do with a lot. In any and all circumstances I have learned the secret of being content—whether well fed or hungry, whether in abundance or in need. I am able to do all things through him who strengthens me. Still, you did well by partnering with me in my hardship.
+>Philippians 4:10-14 I rejoiced in the Lord greatly because once again you renewed your care for me. You were, in fact, concerned about me but lacked the opportunity to show it. I don’t say this out of need, for I have learned to be content in whatever circumstances I find myself. I know how to make do with little, and I know how to make do with a lot. In any and all circumstances I have learned the secret of being content—whether well fed or hungry, whether in abundance or in need. I am able to do all things through him who strengthens me. Still, you did well by partnering with me in my hardship.
 
 Throw me in prison and I will preach the gospel and see that the guard’s and their households are saved.
 
->Philippians 4:21-23 (CSB) Greet every saint in Christ Jesus. The brothers who are with me send you greetings. All the saints send you greetings, especially those who belong to Caesar’s household. The grace of the Lord Jesus Christ be with your spirit.
+>Philippians 4:21-23 Greet every saint in Christ Jesus. The brothers who are with me send you greetings. All the saints send you greetings, especially those who belong to Caesar’s household. The grace of the Lord Jesus Christ be with your spirit.
 
 Let all things come my way and try to destroy me.
 
->Romans 8:36-37 (CSB) As it is written:
+>Romans 8:36-37 As it is written:
 Because of you
 we are being put to death all day long;
 we are counted as sheep to be slaughtered.

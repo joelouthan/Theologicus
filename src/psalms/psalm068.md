@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 68 (CSB)  
+>Psalm 68  
 ><sup></sup> For the choir director. A psalm of David. A song. 
 >
 ><sup>1</sup> God arises. His enemies scatter, and those who hate him flee from his presence. 

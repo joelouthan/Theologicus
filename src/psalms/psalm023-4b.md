@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 23:4b (CSB)   I fear no danger
+>Psalm 23:4b   I fear no danger
 
 ## The Prayer
 

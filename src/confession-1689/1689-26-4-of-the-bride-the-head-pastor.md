@@ -8,7 +8,7 @@
 
 ## The Text
 
->Acts 4:12 (CSB) There is salvation in no one else, for there is no other name under heaven given to people by which we must be saved.
+>Acts 4:12 There is salvation in no one else, for there is no other name under heaven given to people by which we must be saved.
 
 ## The Chapter
 
@@ -18,32 +18,32 @@
 
 ### The Lord Jesus Christ is the Head of the church, in whom, by the appointment of the Father, all power for the calling, institution, order or government of the church, is invested in a supreme and sovereign manner
 
->Colossians 1:18 (CSB) He is also the head of the body, the church; he is the beginning, the firstborn from the dead, so that he might come to have first place in everything.
+>Colossians 1:18 He is also the head of the body, the church; he is the beginning, the firstborn from the dead, so that he might come to have first place in everything.
 
->Matthew 28:18–20 (CSB) Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”
+>Matthew 28:18–20 Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”
 
->Ephesians 4:11–12 (CSB) And he himself gave some to be apostles, some prophets, some evangelists, some pastors and teachers, to equip the saints for the work of ministry, to build up the body of Christ,
+>Ephesians 4:11–12 And he himself gave some to be apostles, some prophets, some evangelists, some pastors and teachers, to equip the saints for the work of ministry, to build up the body of Christ,
 
 And
 
->1 Corinthians 11:3 (CSB) But I want you to know that Christ is the head of every man, and the man is the head of the woman, and God is the head of Christ.
+>1 Corinthians 11:3 But I want you to know that Christ is the head of every man, and the man is the head of the woman, and God is the head of Christ.
 
 Christ is the Head Pastor of his church. Whatever authority we have is assumed because Christ gives that authority.  To that end, those ministers--that is the elders and deacons--are merely ordained. With the laying on of hands, they have been ordained for the work of the ministry. Yet, they are not flawless. And Satan will come to tempt them to destruction. Our own hearts will lead us astray. God is not the author of their sin and apostasy just because a church--which under heaven is always subjected to mixture and error--has ordained them to be ministers.
 
 God did not do this. He says this about false prophets:
 
->Jeremiah 23:21 (CSB) I did not send out these prophets,  
+>Jeremiah 23:21 I did not send out these prophets,  
 >yet they ran.  
 >I did not speak to them,  
 >yet they prophesied.
 
 God does not stop the false prophets dead in their tracks. But why? Why would God allow his elect to be swayed by false doctrine. I don't know why. All I know is that Christ alone is the remedy:
 
->Jeremiah 23:1-4 (CSB) “Woe to the shepherds who destroy and scatter the sheep of my pasture! ” This is the LORD’s declaration. “Therefore, this is what the LORD, the God of Israel, says about the shepherds who tend my people: You have scattered my flock, banished them, and have not attended to them. I am about to attend to you because of your evil acts” — this is the LORD’s declaration. “I will gather the remnant of my flock from all the lands where I have banished them, and I will return them to their grazing land. They will become fruitful and numerous. I will raise up shepherds over them who will tend them. They will no longer be afraid or discouraged, nor will any be missing.” This is the LORD’s declaration.
+>Jeremiah 23:1-4 “Woe to the shepherds who destroy and scatter the sheep of my pasture! ” This is the LORD’s declaration. “Therefore, this is what the LORD, the God of Israel, says about the shepherds who tend my people: You have scattered my flock, banished them, and have not attended to them. I am about to attend to you because of your evil acts” — this is the LORD’s declaration. “I will gather the remnant of my flock from all the lands where I have banished them, and I will return them to their grazing land. They will become fruitful and numerous. I will raise up shepherds over them who will tend them. They will no longer be afraid or discouraged, nor will any be missing.” This is the LORD’s declaration.
 
 God will gather his flock and raise up shepherds over them. He does this because Christ has been sent to live and die for his sheep:
 
->Jeremiah 23:5-6 (CSB) Look, the days are coming” — this is the LORD’s declaration —  
+>Jeremiah 23:5-6 Look, the days are coming” — this is the LORD’s declaration —  
 >“when I will raise up a Righteous Branch for David.  
 >He will reign wisely as king  
 >and administer justice and righteousness in the land.  
@@ -54,7 +54,7 @@ God will gather his flock and raise up shepherds over them. He does this because
 
 ### neither can the Pope of Rome in any sense be head thereof, but is that antichrist, that man of sin, and son of perdition, that exalts himself in the church against Christ, and all that is called God; whom the Lord shall destroy with the brightness of his coming
 
->2 Thessalonians 2:2–9 (CSB) not to be easily upset or troubled, either by a prophecy or by a message or by a letter supposedly from us, alleging that the day of the Lord has come. Don’t let anyone deceive you in any way. For that day will not come unless the apostasy comes first and the man of lawlessness is revealed, the man doomed to destruction. He opposes and exalts himself above every so-called god or object of worship, so that he sits in God’s temple, proclaiming that he himself is God. Don’t you remember that when I was still with you I used to tell you about this? And you know what currently restrains him, so that he will be revealed in his time. For the mystery of lawlessness is already at work, but the one now restraining will do so until he is out of the way, and then the lawless one will be revealed. The Lord Jesus will destroy him with the breath of his mouth and will bring him to nothing at the appearance of his coming. The coming of the lawless one is based on Satan’s working, with every kind of miracle, both signs and wonders serving the lie,
+>2 Thessalonians 2:2–9 not to be easily upset or troubled, either by a prophecy or by a message or by a letter supposedly from us, alleging that the day of the Lord has come. Don’t let anyone deceive you in any way. For that day will not come unless the apostasy comes first and the man of lawlessness is revealed, the man doomed to destruction. He opposes and exalts himself above every so-called god or object of worship, so that he sits in God’s temple, proclaiming that he himself is God. Don’t you remember that when I was still with you I used to tell you about this? And you know what currently restrains him, so that he will be revealed in his time. For the mystery of lawlessness is already at work, but the one now restraining will do so until he is out of the way, and then the lawless one will be revealed. The Lord Jesus will destroy him with the breath of his mouth and will bring him to nothing at the appearance of his coming. The coming of the lawless one is based on Satan’s working, with every kind of miracle, both signs and wonders serving the lie,
 
 <figure style="text-align: center;">
    <img src="peter-pope.jpg" style="display: block; float: none; margin: auto; width: 600px;" alt=""The Pope Succeeds Peter only in his denial of Christ." - Thomas Watson">
@@ -65,7 +65,7 @@ This is the absolute declaration of the word of God: there is no other mediator 
 
 The pope is not it--he is full of sin and seeks to exalt himself as God. But woe to the person who would do the same in any other setting.
 
->Matthew 23 (CSB)  
+>Matthew 23  
 ><sup>1</sup> Then Jesus spoke to the crowds and to his disciples: 
 >
 ><sup>2</sup> “The scribes and the Pharisees are seated in the chair of Moses. 

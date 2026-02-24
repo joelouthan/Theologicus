@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 107 (CSB)  
+>Psalm 107  
 ><sup>1</sup> Give thanks to the LORD, for he is good; his faithful love endures forever. 
 >
 ><sup>2</sup> Let the redeemed of the LORD proclaim that he has redeemed them from the power of the foe 

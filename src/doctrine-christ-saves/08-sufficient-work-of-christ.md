@@ -6,7 +6,7 @@
 
 ## The Text
 
->1 John 1:7–9 (CSB) If we walk in the light as he himself is in the light, we have fellowship with one another, and the blood of Jesus his Son cleanses us from all sin. If we say, “We have no sin,” we are deceiving ourselves, and the truth is not in us. If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
+>1 John 1:7–9 If we walk in the light as he himself is in the light, we have fellowship with one another, and the blood of Jesus his Son cleanses us from all sin. If we say, “We have no sin,” we are deceiving ourselves, and the truth is not in us. If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
 
 **My sin, oh, the bliss of this glorious thought!**  
 **My sin, not in part but the whole**  
@@ -73,7 +73,7 @@ He had to cleanse his people so that they could know him and dwell with him fore
 
 He will not be angry at his people forever because He loves them too much. He does not bestow his righteous and just wrath upon his people because his people cannot bear it, lest they be destroyed and be apart from him forever. His love is as high and as great as the distance between heaven and earth, so too is the same distance our sins, wickedness, and atrocities are removed from us.
 
->Psalm 103:8–13 (CSB)  
+>Psalm 103:8–13  
 ><sup>8</sup> The LORD is compassionate and gracious, slow to anger and abounding in faithful love. 
 >
 ><sup>9</sup> He will not always accuse us or be angry forever. 

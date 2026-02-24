@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 17 (CSB)  
+>Psalm 17  
 ><sup></sup> A prayer of David. 
 >
 ><sup>1</sup> LORD, hear a just cause; pay attention to my cry; listen to my prayer— from lips free of deceit. 

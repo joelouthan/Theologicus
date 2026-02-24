@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 72 (CSB)  
+>Psalm 72  
 ><sup></sup> Of Solomon. 
 >
 ><sup>1</sup> God, give your justice to the king and your righteousness to the king’s son. 

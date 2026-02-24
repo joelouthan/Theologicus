@@ -24,7 +24,7 @@ Let us get into the text.
 
 ## The Text
 
->Genesis 8:1–14 (CSB)  
+>Genesis 8:1–14  
 ><sup> 1 </sup> God remembered Noah, as well as all the wildlife and all the livestock that were with him in the ark. God caused a wind to pass over the earth, and the water began to subside. 
 >
 ><sup> 2 </sup> The sources of the watery depths and the floodgates of the sky were closed, and the rain from the sky stopped. 
@@ -64,13 +64,13 @@ Let us get into the text.
 - We are far from God
 - Yet God saves
 
->John 3:5-8 (CSB) Jesus answered, “Truly I tell you, unless someone is born of water and the Spirit, he cannot enter the kingdom of God. Whatever is born of the flesh is flesh, and whatever is born of the Spirit is spirit. Do not be amazed that I told you that you must be born again. The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.”
+>John 3:5-8 Jesus answered, “Truly I tell you, unless someone is born of water and the Spirit, he cannot enter the kingdom of God. Whatever is born of the flesh is flesh, and whatever is born of the Spirit is spirit. Do not be amazed that I told you that you must be born again. The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.”
 
 You might say to yourself: This is way too extreme--killing every living thing other than those who are in the Ark
 
 But not extreme:
 
->Romans 6:8-10 (CSB) Now if we died with Christ, we believe that we will also live with him,because we know that Christ, having been raised from the dead, will not die again. Death no longer rules over him. For the death he died, he died to sin once for all time; but the life he lives, he lives to God.
+>Romans 6:8-10 Now if we died with Christ, we believe that we will also live with him,because we know that Christ, having been raised from the dead, will not die again. Death no longer rules over him. For the death he died, he died to sin once for all time; but the life he lives, he lives to God.
 
 In his judgment, sin cannot go on to live and infect his children
 
@@ -78,7 +78,7 @@ Someone must conquer sin, Satan, demons, hell, and death--Christ Jesus is his na
 
 And Christ sent his Spirit out so that our old selves can remain dead and we are made new in life with him
 
->2 Corinthians 5:17-19 (CSB) Therefore, if anyone is in Christ, he is a new creation; the old has passed away, and see, the new has come!Everything is from God, who has reconciled us to himself through Christ and has given us the ministry of reconciliation. That is, in Christ, God was reconciling the world to himself, not counting their trespasses against them, and he has committed the message of reconciliation to us.
+>2 Corinthians 5:17-19 Therefore, if anyone is in Christ, he is a new creation; the old has passed away, and see, the new has come!Everything is from God, who has reconciled us to himself through Christ and has given us the ministry of reconciliation. That is, in Christ, God was reconciling the world to himself, not counting their trespasses against them, and he has committed the message of reconciliation to us.
 
 We must still deal with past sins--their effects don't go away. I wish we could be saved from the effects of sins that we have committed and especially those who have sinned against us.
 
@@ -100,13 +100,13 @@ We are born again
 
 But we cannot fully see the glory of God.
 
->Exodus 33:14-20 (CSB) And he replied, “My presence will go with you, and I will give you rest.”“If your presence does not go,” Moses responded to him, “don’t make us go up from here. How will it be known that I and your people have found favor with you unless you go with us? I and your people will be distinguished by this from all the other people on the face of the earth.”The LORD answered Moses, “I will do this very thing you have asked, for you have found favor with me, and I know you by name.”Then Moses said, “Please, let me see your glory.”He said, “I will cause all my goodness to pass in front of you, and I will proclaim the name ‘the LORD’ before you. I will be gracious to whom I will be gracious, and I will have compassion on whom I will have compassion.”But he added, “You cannot see my face, for humans cannot see me and live.”
+>Exodus 33:14-20 And he replied, “My presence will go with you, and I will give you rest.”“If your presence does not go,” Moses responded to him, “don’t make us go up from here. How will it be known that I and your people have found favor with you unless you go with us? I and your people will be distinguished by this from all the other people on the face of the earth.”The LORD answered Moses, “I will do this very thing you have asked, for you have found favor with me, and I know you by name.”Then Moses said, “Please, let me see your glory.”He said, “I will cause all my goodness to pass in front of you, and I will proclaim the name ‘the LORD’ before you. I will be gracious to whom I will be gracious, and I will have compassion on whom I will have compassion.”But he added, “You cannot see my face, for humans cannot see me and live.”
 
 And
 
->1 Corinthians 13:12 (CSB) For now we see only a reflection as in a mirror, but then face to face. Now I know in part, but then I will know fully, as I am fully known.
+>1 Corinthians 13:12 For now we see only a reflection as in a mirror, but then face to face. Now I know in part, but then I will know fully, as I am fully known.
 
->2 Corinthians 3:18 (CSB) We all, with unveiled faces, are looking as in a mirror at the glory of the Lord and are being transformed into the same image from glory to glory; this is from the Lord who is the Spirit.
+>2 Corinthians 3:18 We all, with unveiled faces, are looking as in a mirror at the glory of the Lord and are being transformed into the same image from glory to glory; this is from the Lord who is the Spirit.
 
 We don't see God fully glorious because we have not gone all the way home.
 
@@ -118,11 +118,11 @@ In other words, by the grace of God, we have not met the real us.
 
 You are a new creature. You are being sanctified and being conformed to the image of His Son.
 
->2 Corinthians 4:1-6 (CSB) Therefore, since we have this ministry because we were shown mercy, we do not give up. Instead, we have renounced secret and shameful things, not acting deceitfully or distorting the word of God, but commending ourselves before God to everyone’s conscience by an open display of the truth. But if our gospel is veiled, it is veiled to those who are perishing. In their case, the god of this age has blinded the minds of the unbelievers to keep them from seeing the light of the gospel of the glory of Christ, who is the image of God. For we are not proclaiming ourselves but Jesus Christ as Lord, and ourselves as your servants for Jesus’s sake. For God who said, “Let light shine out of darkness,” has shone in our hearts to give the light of the knowledge of God’s glory in the face of Jesus Christ.
+>2 Corinthians 4:1-6 Therefore, since we have this ministry because we were shown mercy, we do not give up. Instead, we have renounced secret and shameful things, not acting deceitfully or distorting the word of God, but commending ourselves before God to everyone’s conscience by an open display of the truth. But if our gospel is veiled, it is veiled to those who are perishing. In their case, the god of this age has blinded the minds of the unbelievers to keep them from seeing the light of the gospel of the glory of Christ, who is the image of God. For we are not proclaiming ourselves but Jesus Christ as Lord, and ourselves as your servants for Jesus’s sake. For God who said, “Let light shine out of darkness,” has shone in our hearts to give the light of the knowledge of God’s glory in the face of Jesus Christ.
 
 Give mercies to others--believers and unbelievers alike. Christ has given you mercy; give mercy to where people are at and believe that God will make us whole and healed and new.
 
-## The Gospel
+## His Gospel
 
 ><sup> 6 </sup> After forty days Noah opened the window of the ark that he had made, <sup> 7 </sup> and he sent out a raven. It went back and forth until the water had dried up from the earth. 
 
@@ -130,7 +130,7 @@ Give mercies to others--believers and unbelievers alike. Christ has given you me
 
 In this particular passage, we are going to examine the raven and the dove. The dove has always symbolizes the Holy Spirit:
 
->Luke 3:21-22 (CSB) When all the people were baptized, Jesus also was baptized. As he was praying, heaven opened,and the Holy Spirit descended on him in a physical appearance like a dove. And a voice came from heaven: “You are my beloved Son; with you I am well-pleased.”
+>Luke 3:21-22 When all the people were baptized, Jesus also was baptized. As he was praying, heaven opened,and the Holy Spirit descended on him in a physical appearance like a dove. And a voice came from heaven: “You are my beloved Son; with you I am well-pleased.”
 
 While we shall not making images of the Triune God, it is acceptable to use the dove as a symbol as the Holy Spirit.
 
@@ -146,11 +146,11 @@ The raven was sent out. One of it's natural instincts is to feed on carrion.
 
 When we are in Christ, our old selves are dead and buried with Christ.
 
->Romans 6:4-9 (CSB) Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life. For if we have been united with him in the likeness of his death, we will certainly also be in the likeness of his resurrection. For we know that our old self was crucified with him so that the body ruled by sin might be rendered powerless so that we may no longer be enslaved to sin,since a person who has died is freed from sin. Now if we died with Christ, we believe that we will also live with him,because we know that Christ, having been raised from the dead, will not die again. Death no longer rules over him.
+>Romans 6:4-9 Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life. For if we have been united with him in the likeness of his death, we will certainly also be in the likeness of his resurrection. For we know that our old self was crucified with him so that the body ruled by sin might be rendered powerless so that we may no longer be enslaved to sin,since a person who has died is freed from sin. Now if we died with Christ, we believe that we will also live with him,because we know that Christ, having been raised from the dead, will not die again. Death no longer rules over him.
 
 God does the work. But with the Spirit, you must be willing to kill off sins that dare try to live again in your little heart and soul. It will devour you if you give it the opportunity. I don't care how old in the faith you are--sin will kill, steal, and destroy. You best be on guard.
 
->Romans 8:10-11 (CSB) Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness. And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
+>Romans 8:10-11 Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness. And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
 
 Just like what John the Baptist said: you and I must decrease so Christ can increase in me.
 
@@ -168,7 +168,7 @@ I pray: Lord, make yourself glorified in me. Would you make me gentle? Can I be 
 
 If the dove symbolizes the Holy Spirit, the first release of the dove by Noah would then symbolize a born again of his people like nothing else we have seen.
 
->John 3:5-8 (CSB) Jesus answered, “Truly I tell you, unless someone is born of water and the Spirit, he cannot enter the kingdom of God. Whatever is born of the flesh is flesh, and whatever is born of the Spirit is spirit. Do not be amazed that I told you that you must be born again. The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.”
+>John 3:5-8 Jesus answered, “Truly I tell you, unless someone is born of water and the Spirit, he cannot enter the kingdom of God. Whatever is born of the flesh is flesh, and whatever is born of the Spirit is spirit. Do not be amazed that I told you that you must be born again. The wind blows where it pleases, and you hear its sound, but you don’t know where it comes from or where it is going. So it is with everyone born of the Spirit.”
 
 You know when you see the Holy Spirit move by how? What did Jesus say? When people are being born again and not a moment before.
 
@@ -180,13 +180,13 @@ In the end, until the exchange of hearts happens, faith is deposited, and the Tr
 
 ### God restores: Holy Spirit gives us peace
 
->John 14:27-31 (CSB) “Peace I leave with you. My peace I give to you. I do not give to you as the world gives. Don’t let your heart be troubled or fearful. You have heard me tell you, ‘I am going away and I am coming to you.’ If you loved me, you would rejoice that I am going to the Father, because the Father is greater than I.I have told you now before it happens so that when it does happen you may believe. I will not talk with you much longer, because the ruler of the world is coming. He has no power over me. On the contrary, so that the world may know that I love the Father, I do as the Father commanded me.
+>John 14:27-31 “Peace I leave with you. My peace I give to you. I do not give to you as the world gives. Don’t let your heart be troubled or fearful. You have heard me tell you, ‘I am going away and I am coming to you.’ If you loved me, you would rejoice that I am going to the Father, because the Father is greater than I.I have told you now before it happens so that when it does happen you may believe. I will not talk with you much longer, because the ruler of the world is coming. He has no power over me. On the contrary, so that the world may know that I love the Father, I do as the Father commanded me.
 
 This is a peace that is not because there is no sin, no war, no battles, no conflicts. This is beyond anything that we can comprehend. In the midst of fallen world, the Father and the Son has a double almighty grip upon our lives and no one can snatch us out of their hands. If that wasn't enough, the Holy Spirit seals us in the mighty hands of God.
 
->John 20:19-23 (CSB) When it was evening on that first day of the week, the disciples were gathered together with the doors locked because they feared the Jews. Jesus came, stood among them, and said to them, “Peace be with you."Having said this, he showed them his hands and his side. So the disciples rejoiced when they saw the Lord. Jesus said to them again, “Peace be with you. As the Father has sent me, I also send you.”After saying this, he breathed on them and said, “Receive the Holy Spirit. If you forgive the sins of any, they are forgiven them; if you retain the sins of any, they are retained.”
+>John 20:19-23 When it was evening on that first day of the week, the disciples were gathered together with the doors locked because they feared the Jews. Jesus came, stood among them, and said to them, “Peace be with you."Having said this, he showed them his hands and his side. So the disciples rejoiced when they saw the Lord. Jesus said to them again, “Peace be with you. As the Father has sent me, I also send you.”After saying this, he breathed on them and said, “Receive the Holy Spirit. If you forgive the sins of any, they are forgiven them; if you retain the sins of any, they are retained.”
 
->Philippians 4:6-7 (CSB) Don’t worry about anything, but in everything, through prayer and petition with thanksgiving, present your requests to God. And the peace of God, which surpasses all understanding, will guard your hearts and minds in Christ Jesus.
+>Philippians 4:6-7 Don’t worry about anything, but in everything, through prayer and petition with thanksgiving, present your requests to God. And the peace of God, which surpasses all understanding, will guard your hearts and minds in Christ Jesus.
 
 We are not going anywhere--not with God.
 
@@ -194,16 +194,16 @@ We are not going anywhere--not with God.
 
 ### God restores: Holy Spirit brings us all the way home
 
->Psalm 16:10-11 (CSB) For you will not abandon me to Sheol;
+>Psalm 16:10-11 For you will not abandon me to Sheol;
 you will not allow your faithful one to see decay.
 11 You reveal the path of life to me;
 in your presence is abundant joy;
 at your right hand are eternal pleasures.
 
->Psalm 17:15 (CSB) But I will see your face in righteousness;
+>Psalm 17:15 But I will see your face in righteousness;
 when I awake, I will be satisfied with your presence.
 
->Romans 8:35-39 (CSB) Who can separate us from the love of Christ? Can affliction or distress or persecution or famine or nakedness or danger or sword?As it is written:  
+>Romans 8:35-39 Who can separate us from the love of Christ? Can affliction or distress or persecution or famine or nakedness or danger or sword?As it is written:  
 >Because of you  
 >we are being put to death all day long;  
 >we are counted as sheep to be slaughtered.  
@@ -216,7 +216,7 @@ when I awake, I will be satisfied with your presence.
 
 ### God restores: the power of the Holy Spirit who saved you is the one that will bring you home to God
 
->Romans 8:29-30 (CSB) For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
+>Romans 8:29-30 For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
 
 Guard the deposit that the Lord has made.
 

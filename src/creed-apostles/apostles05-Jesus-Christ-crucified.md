@@ -25,7 +25,7 @@
 
 ## The Word
 
->1 Corinthians 1:21–25 (CSB) For since, in God’s wisdom, the world did not know God through wisdom, God was pleased to save those who believe through the foolishness of what is preached. **For the Jews ask for signs and the Greeks seek wisdom, but we preach Christ crucified, a stumbling block to the Jews and foolishness to the Gentiles.** Yet to those who are called, both Jews and Greeks, Christ is the power of God and the wisdom of God, because God’s foolishness is wiser than human wisdom, and God’s weakness is stronger than human strength.
+>1 Corinthians 1:21–25 For since, in God’s wisdom, the world did not know God through wisdom, God was pleased to save those who believe through the foolishness of what is preached. **For the Jews ask for signs and the Greeks seek wisdom, but we preach Christ crucified, a stumbling block to the Jews and foolishness to the Gentiles.** Yet to those who are called, both Jews and Greeks, Christ is the power of God and the wisdom of God, because God’s foolishness is wiser than human wisdom, and God’s weakness is stronger than human strength.
 
 ## The Belief
 
@@ -33,7 +33,7 @@
 
 Here is the summation of what it means for the crucified, death, and burial of the Lord Jesus Christ.
 
->Romans 6:1–11 (CSB)  
+>Romans 6:1–11  
 ><sup>1</sup> What should we say then? Should we continue in sin so that grace may multiply? 
 >
 ><sup>2</sup> Absolutely not! How can we who died to sin still live in it? 
@@ -58,11 +58,11 @@ Here is the summation of what it means for the crucified, death, and burial of t
 
 Or to put it in one line:
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 Not when Christ lived on the earth. Not when he was resurrected. But Christ, Son of God, who is God, died on that cross in Golgotha, that was the precise moment that the sins for his people--past, present, and future--were all taken away forever. And therefore his people, that's you and me, were made righteous in the sight of God.
 
->Hebrews 9:22 (CSB) According to the law almost everything is purified with blood, and without the shedding of blood there is no forgiveness.
+>Hebrews 9:22 According to the law almost everything is purified with blood, and without the shedding of blood there is no forgiveness.
 
 Make no mistake. God doesn't forgive sin because he says, "Your sins are forgiven--go and sin no more" like some kind of magic spell hocus pocus.
 
@@ -70,21 +70,21 @@ For the forgiveness of sins, there must be the shedding of blood. Without the sh
 
 But here's the thing. If I died then I am still not forgiven. My death means nothing towards my holiness and righteousness before God because my life is marked with sin, wickedness and iniquity. I know this because I have broken at least one of God's commands. God's law is holy. We don't get to pick and choose which commands to follow because his law is wholly holy or not holy at all.
 
->James 2:10 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
+>James 2:10 For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
 
->Galatians 3:10 (CSB) For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
+>Galatians 3:10 For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
 
 But because I am in him and he is in me, my sins were placed on the cross more than 2,000 years ago.
 
->Romans 5:8 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us.
+>Romans 5:8 But God proves his own love for us in that while we were still sinners, Christ died for us.
 
 I am saved by Christ. I was saved 2,000 years ago. And if Ephesians 1, Romans 8, and the Gospel of John stands correct, then I was saved before Genesis 1:1:
 
->Ephesians 1:4-6 (CSB) For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
+>Ephesians 1:4-6 For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
 
 Upon the cross, where Jesus died, I am made alive, forgiven of all my sins, my the debt and my obligations stripped away, and every single opposition that kept me from God died on that day and brought me into the family of God forever.
 
->Colossians 2:13-15 (CSB) And when you were dead in trespasses and in the uncircumcision of your flesh, he made you alive with him and forgave us all our trespasses. He erased the certificate of debt, with its obligations, that was against us and opposed to us, and has taken it away by nailing it to the cross. He disarmed the rulers and authorities and disgraced them publicly; he triumphed over them in him.
+>Colossians 2:13-15 And when you were dead in trespasses and in the uncircumcision of your flesh, he made you alive with him and forgave us all our trespasses. He erased the certificate of debt, with its obligations, that was against us and opposed to us, and has taken it away by nailing it to the cross. He disarmed the rulers and authorities and disgraced them publicly; he triumphed over them in him.
 
 Let Charles Spurgeon exposit this text:
 
@@ -94,15 +94,15 @@ Let Charles Spurgeon exposit this text:
 
 For my sake, I belong to Christ because he died for me:
 
->Galatians 2:20 (CSB) I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
+>Galatians 2:20 I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
 
 ### He descended into hell.
 
 To save his people, Christ on the cross was done. But to redeem all of creation aside those who would not trust and obey including Satan and his demons. One last step must take place.
 
->Hosea 13:14 (CSB) I will ransom them from the power of Sheol. I will redeem them from death. Death, where are your barbs? Sheol, where is your sting? Compassion is hidden from my eyes.
+>Hosea 13:14 I will ransom them from the power of Sheol. I will redeem them from death. Death, where are your barbs? Sheol, where is your sting? Compassion is hidden from my eyes.
 
->Psalm 24:7-10 (CSB)  
+>Psalm 24:7-10  
 >Lift up your heads, you gates!  
 >Rise up, ancient doors!  
 >Then the King of glory will come in.  
@@ -116,15 +116,15 @@ To save his people, Christ on the cross was done. But to redeem all of creation 
 >The LORD of Armies,  
 >he is the King of glory. Selah
 
->Acts 2:24 (CSB) God raised him up, ending the pains of death, because it was not possible for him to be held by death.
+>Acts 2:24 God raised him up, ending the pains of death, because it was not possible for him to be held by death.
 
->Ephesians 4:9-10 (CSB) But what does “he ascended” mean except that he also descended to the lower parts of the earth? The one who descended is also the one who ascended far above all the heavens, to fill all things.
+>Ephesians 4:9-10 But what does “he ascended” mean except that he also descended to the lower parts of the earth? The one who descended is also the one who ascended far above all the heavens, to fill all things.
 
->Revelation 1:17-18 (CSB) When I saw him, I fell at his feet like a dead man. He laid his right hand on me and said, “Don’t be afraid. I am the First and the Last, and the Living One. I was dead, but look — I am alive forever and ever, and I hold the keys of death and Hades.
+>Revelation 1:17-18 When I saw him, I fell at his feet like a dead man. He laid his right hand on me and said, “Don’t be afraid. I am the First and the Last, and the Living One. I was dead, but look — I am alive forever and ever, and I hold the keys of death and Hades.
 
 Shall what beheld Christ since he has done everything--fixed everything once broken by the first Adam?
 
->Daniel 7:9-14 (CSB) “As I kept watching,  
+>Daniel 7:9-14 “As I kept watching,  
 >thrones were set in place,  
 >and the Ancient of Days took his seat.  
 >His clothing was white like snow,  
@@ -156,7 +156,7 @@ Shall what beheld Christ since he has done everything--fixed everything once bro
 
 From the decree and the sovereign grace of the Father by the power of the Almighty Spirit, all authority and dominion and power and honor has been given to Christ our Savior. That is why we call him King of kings and Lord of lords.
 
->Philippians 2:5-11 (CSB)  
+>Philippians 2:5-11  
 >Adopt the same attitude as that of Christ Jesus,  
 >who, existing in the form of God,  
 >did not consider equality with God  

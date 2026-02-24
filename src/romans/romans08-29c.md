@@ -4,13 +4,13 @@
 
 ## The Text
 
->Romans 8:29 (CSB) For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
+>Romans 8:29 For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
 
 ## The Introduction
 
 When we speak of Romans 8, most Christians rightfully cling to the verse 1: **There is therefore now no condemnation for those who are in Christ Jesus**. But Romans 8:1 is not the very first line of this epistle from Paul to the church in Rome. What I am getting to is that idea didn’t just come out of nowhere. What was Paul responding to? Perhaps we can look at the verses right before:
 
->Romans 7:24–25 (CSB) What a wretched man I am! Who will rescue me from this body of death? Thanks be to God through Jesus Christ our Lord! So then, with my mind I myself am serving the law of God, but with my flesh, the law of sin.
+>Romans 7:24–25 What a wretched man I am! Who will rescue me from this body of death? Thanks be to God through Jesus Christ our Lord! So then, with my mind I myself am serving the law of God, but with my flesh, the law of sin.
 
 
 ## Our God
@@ -43,7 +43,7 @@ If the Bible is all about Jesus, then logic and reason dictate that salvation co
 
 Let’s see what the rest of the Bible says:
 
->Acts 4:12 (CSB) There is salvation in no one else, for there is no other name under heaven given to people by which we must be saved.”
+>Acts 4:12 There is salvation in no one else, for there is no other name under heaven given to people by which we must be saved.”
 
 >John 1:12–13 But to all who did receive him, who believed in his name, he gave the right to become children of God, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God.
 

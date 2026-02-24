@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 146 (CSB)  
+>Psalm 146  
 ><sup>1</sup> Hallelujah! My soul, praise the LORD. 
 >
 ><sup>2</sup> I will praise the LORD all my life; I will sing to my God as long as I live. 

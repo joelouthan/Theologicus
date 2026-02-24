@@ -8,7 +8,7 @@
 
 ## The Text
 
->Revelation 5:8-14 (CSB) When he took the scroll, the four living creatures and the twenty-four elders fell down before the Lamb. Each one had a harp and golden bowls filled with incense, which are the prayers of the saints. And they sang a new song:  
+>Revelation 5:8-14 When he took the scroll, the four living creatures and the twenty-four elders fell down before the Lamb. Each one had a harp and golden bowls filled with incense, which are the prayers of the saints. And they sang a new song:  
 >  
 >You are worthy to take the scroll  
 >and to open its seals,  
@@ -42,27 +42,27 @@
 
 ## The Confession
 
->Matthew 4:9–10 (CSB) And he said to him, “I will give you all these things if you will fall down and worship me.” Then Jesus told him, “Go away, Satan! For it is written: Worship the Lord your God, and serve only him.”
+>Matthew 4:9–10 And he said to him, “I will give you all these things if you will fall down and worship me.” Then Jesus told him, “Go away, Satan! For it is written: Worship the Lord your God, and serve only him.”
 
->John 6:23 (CSB) Some boats from Tiberias came near the place where they had eaten the bread after the Lord had given thanks.
+>John 6:23 Some boats from Tiberias came near the place where they had eaten the bread after the Lord had given thanks.
 
->Matthew 28:19 (CSB) Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit,
+>Matthew 28:19 Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit,
 
->Romans 1:25 (CSB) They exchanged the truth of God for a lie, and worshiped and served what has been created instead of the Creator, who is praised forever. Amen.
+>Romans 1:25 They exchanged the truth of God for a lie, and worshiped and served what has been created instead of the Creator, who is praised forever. Amen.
 
->Colossians 2:18 (CSB) Let no one condemn you by delighting in ascetic practices and the worship of angels, claiming access to a visionary realm. Such people are inflated by empty notions of their unspiritual mind.
+>Colossians 2:18 Let no one condemn you by delighting in ascetic practices and the worship of angels, claiming access to a visionary realm. Such people are inflated by empty notions of their unspiritual mind.
 
->Revelation 19:10 (CSB) Then I fell at his feet to worship him, but he said to me, “Don’t do that! I am a fellow servant with you and your brothers and sisters who hold firmly to the testimony of Jesus. Worship God, because the testimony of Jesus is the spirit of prophecy.”
+>Revelation 19:10 Then I fell at his feet to worship him, but he said to me, “Don’t do that! I am a fellow servant with you and your brothers and sisters who hold firmly to the testimony of Jesus. Worship God, because the testimony of Jesus is the spirit of prophecy.”
 
->John 14:6 (CSB) Jesus told him, “I am the way, the truth, and the life. No one comes to the Father except through me.
+>John 14:6 Jesus told him, “I am the way, the truth, and the life. No one comes to the Father except through me.
 
->1 Timothy 2:5 (CSB) For there is one God and one mediator between God and mankind, the man Christ Jesus,
+>1 Timothy 2:5 For there is one God and one mediator between God and mankind, the man Christ Jesus,
 
 First and foremost, we are to worship the Triune God by and of and through the begotten Son of God, that is, the Lord Jesus Christ Our Savior. There is no other name by which we are saved. There is no other name that we have free and untethered access the Father. There is no other way to worship God without Christ. To do so without Christ is all in vain.
 
 How do we know that our way to the Father is only through the Christ? Look at the first encounter of the first worshipper of our Risen Christ:
 
->John 20:11–18 (CSB)  
+>John 20:11–18  
 ><sup>11</sup> But Mary stood outside the tomb, crying. As she was crying, she stooped to look into the tomb. 
 >
 ><sup>12</sup> She saw two angels in white sitting where Jesus’s body had been lying, one at the head and the other at the feet. 
@@ -81,7 +81,7 @@ How do we know that our way to the Father is only through the Christ? Look at th
 
 Go and tell them, Mary. Proclaim this good news: that Christ have completely bridged all of eternity. The gap between us and God was infinite. We know this because we felt this gaping hole that is in our hearts and we continually try to fill it with everything but God. We build towers. We build grand gatherings. We carve our own idols. We turn to our own lusts. And we are left in despair. The gap was infinitely wide and we are so finite because we are created creatures broken and marred by sin. 
 
->Titus 3:3–5 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit.
+>Titus 3:3–5 For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit.
 
 Christ is the Infinite God that bridges the infinite gap between finite sinners and the Infinite Father sealed by the Infinite Spirit. Christ alone is the mediator between the children of God and God our Father.
 

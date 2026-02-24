@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 144 (CSB)  
+>Psalm 144  
 ><sup></sup> Of David. 
 >
 ><sup>1</sup> Blessed be the LORD, my rock who trains my hands for battle and my fingers for warfare. 

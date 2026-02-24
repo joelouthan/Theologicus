@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 65 (CSB)  
+>Psalm 65  
 ><sup></sup> For the choir director. A psalm of David. A song. 
 >
 ><sup>1</sup> Praise is rightfully yours, God, in Zion; vows to you will be fulfilled. 

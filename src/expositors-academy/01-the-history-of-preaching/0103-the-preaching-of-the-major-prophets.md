@@ -29,7 +29,7 @@ God says, "I am weary of your worship." Judgement upon Israel and the surroundin
 
 ### Chapters 40-66: Grace of God
 
->Isaiah 40:1-2 (CSB) “Comfort, comfort my people,”  
+>Isaiah 40:1-2 “Comfort, comfort my people,”  
 >says your God.  
 >2 “Speak tenderly to Jerusalem,  
 >and announce to her  
@@ -44,7 +44,7 @@ This is the preaching of Christ. Taking rest in the perfect work of Christ. This
 
 No matter our sins--God has greater grace. He alone gives, "grace upon grace."
 
->Isaiah 40:3-4 (CSB) A voice of one crying out:
+>Isaiah 40:3-4 A voice of one crying out:
 >Prepare the way of the LORD in the wilderness;
 >make a straight highway for our God in the desert.
 >4 Every valley will be lifted up,
@@ -58,13 +58,13 @@ Our low living must be raised. Our pride must be leveled down and razed.
 
 We will be delivered from our despair. We will be brought properly into the presence of our sweet God.
 
->Isaiah 40:5 (CSB) And the glory of the LORD will appear,  
+>Isaiah 40:5 And the glory of the LORD will appear,  
 >and all humanity together will see it,  
 >for the mouth of the LORD has spoken.
 
 ### Grace of God: Christ is revealed
 
->Isaiah 40:6-7 (CSB) A voice was saying, “Cry out! ”  
+>Isaiah 40:6-7 A voice was saying, “Cry out! ”  
 >Another said, “What should I cry out? ”  
 >“All humanity is grass,  
 >and all its goodness is like the flower of the field.  
@@ -74,7 +74,7 @@ We will be delivered from our despair. We will be brought properly into the pres
 
 ### Grace of God: We are here for a short time
 
->Isaiah 40:8 (CSB) The grass withers, the flowers fade,  
+>Isaiah 40:8 The grass withers, the flowers fade,  
 >but the word of our God remains forever.”  
 
 ### Grace of God: But Christ is eternal
@@ -99,7 +99,7 @@ The message we bring is an unchanging message that endures forever.
 
 ### Grace of God: Here is Our Great Christ!
 
->Isaiah 40:12 (CSB) Who has measured the waters in the hollow of his hand
+>Isaiah 40:12 Who has measured the waters in the hollow of his hand
 or marked off the heavens with the span of his hand?
 Who has gathered the dust of the earth in a measure
 or weighed the mountains on a balance
@@ -107,12 +107,12 @@ and the hills on the scales?
 
 ### Grace of God: God is God Alone
 
->Isaiah 40:13 (CSB) Who has directed the Spirit of the LORD,
+>Isaiah 40:13 Who has directed the Spirit of the LORD,
 or who gave him counsel?
 
 ### Grace of God: God gives us this word without counsel 
 
->Isaiah 40:14 (CSB) Who did he consult?  
+>Isaiah 40:14 Who did he consult?  
 >Who gave him understanding  
 >and taught him the paths of justice?  
 >Who taught him knowledge  
@@ -120,7 +120,7 @@ or who gave him counsel?
 
 ### Grace of God: 
 
->Isaiah 40:15-17 (CSB) Look, the nations are like a drop in a bucket;  
+>Isaiah 40:15-17 Look, the nations are like a drop in a bucket;  
 >they are considered as a speck of dust on the scales;  
 >he lifts up the islands like fine dust.  
 >16 Lebanon’s cedars are not enough for fuel,  
@@ -131,7 +131,7 @@ or who gave him counsel?
 
 ### Grace of God: God cannot be brought down to us
 
->Isaiah 40:18-24 (CSB) With whom will you compare God?  
+>Isaiah 40:18-24 With whom will you compare God?  
 >What likeness will you set up for comparison with him?  
 >19 An idol? — something that a smelter casts  
 >and a metalworker plates with gold  
@@ -156,7 +156,7 @@ or who gave him counsel?
 >their stem hardly takes root in the ground  
 >when he blows on them and they wither,  
 >and a whirlwind carries them away like stubble.  
->Isaiah 40:25-26 (CSB) To whom will you compare me,  
+>Isaiah 40:25-26 To whom will you compare me,  
 >or who is my equal? ” asks the Holy One.  
 >26 Look up and see!  
 >Who created these?  
@@ -175,16 +175,16 @@ or who gave him counsel?
 
 Preach with a whole, deep heart. God is heartbroken when his people stray. Does your heart break for the same? When the people are straying far from God.
 
->Jeremiah 9:1 (CSB) If my head were a flowing spring,  
+>Jeremiah 9:1 If my head were a flowing spring,  
 >my eyes a fountain of tears,  
 >I would weep day and night  
 >over the slain of my dear people.
 
 We are not scolding them. We are coming alongside the people and weep with them in our despair, our sin and turn towards the God who rescues.
 
->1 Corinthians 13:1-4 (CSB) If I speak human or angelic tongues but do not have love, I am a noisy gong or a clanging cymbal. If I have the gift of prophecy and understand all mysteries and all knowledge, and if I have all faith so that I can move mountains but do not have love, I am nothing. And if I give away all my possessions, and if I give over my body in order to boast but do not have love, I gain nothing. Love is patient, love is kind. Love does not envy, is not boastful, is not arrogant,
+>1 Corinthians 13:1-4 If I speak human or angelic tongues but do not have love, I am a noisy gong or a clanging cymbal. If I have the gift of prophecy and understand all mysteries and all knowledge, and if I have all faith so that I can move mountains but do not have love, I am nothing. And if I give away all my possessions, and if I give over my body in order to boast but do not have love, I gain nothing. Love is patient, love is kind. Love does not envy, is not boastful, is not arrogant,
 
->Jeremiah 9:23-24 (CSB) “ ‘This is what the LORD says:  
+>Jeremiah 9:23-24 “ ‘This is what the LORD says:  
 >The wise person should not boast in his wisdom;  
 >the strong should not boast in his strength;  
 >the wealthy should not boast in his wealth.  
@@ -205,7 +205,7 @@ On the preaching of John Calvin:
 
 ## The Empowered Preacher: Ezekiel
 
->Ezekiel 2 (CSB)  
+>Ezekiel 2  
 ><sup>1</sup> He said to me, “Son of man, stand up on your feet and I will speak with you.” 
 >
 ><sup>2</sup> As he spoke to me, the Spirit entered me and set me on my feet, and I listened to the one who was speaking to me. 
@@ -228,6 +228,6 @@ On the preaching of John Calvin:
 
 We cannot do this on our own. God gives us supernatural grace to preach his word.
 
->Ezekiel 33:7-9 (CSB) “As for you, son of man, I have made you a watchman for the house of Israel. When you hear a word from my mouth, give them a warning from me. If I say to the wicked, ‘Wicked one, you will surely die,’ but you do not speak out to warn him about his way, that wicked person will die for his iniquity, yet I will hold you responsible for his blood. But if you warn a wicked person to turn from his way and he doesn’t turn from it, he will die for his iniquity, but you will have rescued yourself.
+>Ezekiel 33:7-9 “As for you, son of man, I have made you a watchman for the house of Israel. When you hear a word from my mouth, give them a warning from me. If I say to the wicked, ‘Wicked one, you will surely die,’ but you do not speak out to warn him about his way, that wicked person will die for his iniquity, yet I will hold you responsible for his blood. But if you warn a wicked person to turn from his way and he doesn’t turn from it, he will die for his iniquity, but you will have rescued yourself.
 
 The people's blood is on their hands. You must do what God has called you to do.

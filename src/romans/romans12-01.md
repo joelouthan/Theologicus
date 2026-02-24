@@ -4,7 +4,7 @@
 
 ## The Text
 
->Romans 12:1 (CSB) Therefore, brothers and sisters, in view of the mercies of God, I urge you to present your bodies as a living sacrifice, holy and pleasing to God; this is your true worship. 
+>Romans 12:1 Therefore, brothers and sisters, in view of the mercies of God, I urge you to present your bodies as a living sacrifice, holy and pleasing to God; this is your true worship. 
 
 ## The Introduction
 
@@ -18,17 +18,17 @@ We have done great work in dissecting the law from the God using the book of Rom
 
 In summation, the law cannot save. It was never designed to saved.
 
->Romans 8:3–4 (CSB) For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering, in order that the law’s requirement would be fulfilled in us who do not walk according to the flesh but according to the Spirit.
+>Romans 8:3–4 For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering, in order that the law’s requirement would be fulfilled in us who do not walk according to the flesh but according to the Spirit.
 
 Not only that, you and I have already broken the law. When we have broken one law, we have broken it all.
 
->James 2:10 (CSB) For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
+>James 2:10 For whoever keeps the entire law, and yet stumbles at one point, is guilty of breaking it all.
 
->Galatians 3:10 (CSB) For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
+>Galatians 3:10 For all who rely on the works of the law are under a curse, because it is written, Everyone who does not do everything written in the book of the law is cursed.
 
 And it is not that we keep breaking the law of God since it does not save us. No!
 
->Romans 6:1-2 (CSB) What should we say then? Should we continue in sin so that grace may multiply? Absolutely not! How can we who died to sin still live in it?
+>Romans 6:1-2 What should we say then? Should we continue in sin so that grace may multiply? Absolutely not! How can we who died to sin still live in it?
 
 Why am I belaboring the point? For the rest of our time in Romans, God is going to lay out a series of commands for you and me. Romans is not to be bifurcated. It is not to be cut into two--focus on one and ignore the other. Romans 12-16 is in context for Romans 1-11 and because we interpret Scripture using Scripture (*sola Scriptura*), Romans must remain in context of the Bible.
 
@@ -38,7 +38,7 @@ John Calvin in his Institutes, Book 2, Chapter 7, he lays out three uses of the 
 
 - **Mirror of ourselves** - when we read the law of God in the Bible, we examine ourselves and see that we are found wanting
 
->Romans 3:23 (CSB) For all have sinned and fall short of the glory of God;
+>Romans 3:23 For all have sinned and fall short of the glory of God;
 
 The law of God is the holy standard of requirements that you and I must achieve perfectly with every second of our lives in order to be with God. But that is just it, God demands perfection and we have fallen way short of that--think of it as a infinite gap.
 
@@ -54,25 +54,25 @@ One more use of the law:
 
 - **Good works that loves others and pleases God** - it is not that God needs anything from us but our neighbors do:
 
->Matthew 22:37-40 (CSB) He said to him, “Love the Lord your God with all your heart, with all your soul, and with all your mind. 38 This is the greatest and most important command. 39 The second is like it: Love your neighbor as yourself. 40 All the Law and the Prophets depend on these two commands.”
+>Matthew 22:37-40 He said to him, “Love the Lord your God with all your heart, with all your soul, and with all your mind. 38 This is the greatest and most important command. 39 The second is like it: Love your neighbor as yourself. 40 All the Law and the Prophets depend on these two commands.”
 
->Ephesians 2:10 (CSB) For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
+>Ephesians 2:10 For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
 
 We have the law as a way of living a righteous life unto God. We have Christ. The Father has given us his heart and the Spirit. Now we get to obey the laws of God because of Christ's perfect obedience to the law. 
 
 The law does not save anyone but condemns everyone.
 
->Romans 3:20 (CSB) For no one will be justified in his sight by the works of the law, because the knowledge of sin comes through the law
+>Romans 3:20 For no one will be justified in his sight by the works of the law, because the knowledge of sin comes through the law
 
 Christ came into the world not to condemn but to save the world through him.
 
->John 3:16-17 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
+>John 3:16-17 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
 
 The writers of the Bible did not come to give more law but to give the great gospel of God--since the Genesis 3:15.
 
 Paul was not eager to preach more law but rather the gospel:
 
->Romans 1:15 (CSB) So I am eager to preach the gospel to you also who are in Rome.
+>Romans 1:15 So I am eager to preach the gospel to you also who are in Rome.
 
 Let us sum up Romans this way:
 
@@ -87,7 +87,7 @@ Now for the rest of Romans:
 
 There is no gospel from here on out--just the law of loving your neighbor as yourself. Paul wrote to the church in Rome not as unbelievers. He knows that they are they are in Christ. For:
 
->Romans 1:5–7 (CSB) Through him we have received grace and apostleship to bring about the obedience of faith for the sake of his name among all the Gentiles, including you who are also called by Jesus Christ. To all who are in Rome, loved by God, called as saints. Grace to you and peace from God our Father and the Lord Jesus Christ.
+>Romans 1:5–7 Through him we have received grace and apostleship to bring about the obedience of faith for the sake of his name among all the Gentiles, including you who are also called by Jesus Christ. To all who are in Rome, loved by God, called as saints. Grace to you and peace from God our Father and the Lord Jesus Christ.
 
 He wrote to the church and the elders would have preached this letter to the congregation because they are sheep of the Good Shepherds. We do not entertain goats but feed, care, and love the lambs. (John 21:15-19)
 
@@ -305,7 +305,7 @@ That is promise his only begotten Son, Jesus Christ.
 
 Children of Abraham, we obtain mercy by God not because we were ever obedient but because of our disobedience. 
 
->Romans 11:33–36 (CSB)  
+>Romans 11:33–36  
 ><sup>33</sup> Oh, the depth of the riches and the wisdom and the knowledge of God! How unsearchable his judgments and untraceable his ways! 
 >
 ><sup>34</sup> For who has known the mind of the Lord? Or who has been his counselor? 
@@ -316,7 +316,7 @@ Children of Abraham, we obtain mercy by God not because we were ever obedient bu
 
 ### Worship God because he has done it all
 
->Romans 12:1 (CSB) Therefore, brothers and sisters, in view of the mercies of God, I urge you to present your bodies as a living sacrifice, holy and pleasing to God; this is your true worship.
+>Romans 12:1 Therefore, brothers and sisters, in view of the mercies of God, I urge you to present your bodies as a living sacrifice, holy and pleasing to God; this is your true worship.
 
 So what then can we say?  
 So what then can we do?

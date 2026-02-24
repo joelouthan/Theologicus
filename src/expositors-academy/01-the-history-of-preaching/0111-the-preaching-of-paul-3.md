@@ -1,6 +1,6 @@
 # Lecture 11: The Preaching of Paul, Part 3
 
->2 Timothy 4:1–5 (CSB)  
+>2 Timothy 4:1–5  
 ><sup> 1 </sup> I solemnly charge you before God and Christ Jesus, who is going to judge the living and the dead, and because of his appearing and his kingdom: 
 
 ><sup> 2 </sup> Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching. 
@@ -131,6 +131,6 @@ This is beyond our best abilities and intentions. That is why we must be filled 
 
 If our Savior, Son of God who is God, did not start his ministry until he was filled without measure with the Holy Spirit, how can we, the disciples of Christ, go about ministering to others with any less than the indwelling of the Triune God within us?
 
->John 3:34-35 (CSB) For the one whom God sent speaks God’s words, since he gives the Spirit without measure. The Father loves the Son and has given all things into his hands.
+>John 3:34-35 For the one whom God sent speaks God’s words, since he gives the Spirit without measure. The Father loves the Son and has given all things into his hands.
 
 We cannot preach without the filling of the Holy Spirit. We need God. We need his grace--his all-patience--to do his will.

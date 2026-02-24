@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 10 (CSB)  
+>Psalm 10  
 ><sup>1</sup> LORD, why do you stand so far away? Why do you hide in times of trouble? 
 >
 ><sup>2</sup> In arrogance the wicked relentlessly pursue their victims; let them be caught in the schemes they have devised. 

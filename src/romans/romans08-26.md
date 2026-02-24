@@ -16,7 +16,7 @@ Yes, God was mindful of you, saw you, and saved you despite your own wickedness,
 
 If God is so good and powerful to do that, what do you think He’s going to do when you know you are weak, sick and more need of a Savior? Leave you? NO! You are His precious adopted child to whom all that belongs to His only begotten Son also is yours.
 
->Hebrews 1:1-2 (CSB) Long ago God spoke to our ancestors by the prophets at different times and in different ways. 2 In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
+>Hebrews 1:1-2 Long ago God spoke to our ancestors by the prophets at different times and in different ways. 2 In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
 
 That gift includes the world. But that includes something much greater than all of anything that we could want or desire on this earth:
 
@@ -44,7 +44,7 @@ So why would he leave you at your weakest?
 
 Paul goes on to say:
 
-> Titus 3:4-7 (CSB) But when the goodness and loving kindness of God our Savior appeared, he saved us, not because of works done by us in righteousness, but according to his own mercy, by the washing of regeneration and renewal of the Holy Spirit, whom he poured out on us richly through Jesus Christ our Savior, so that being justified by his grace we might become heirs according to the hope of eternal life.
+> Titus 3:4-7 But when the goodness and loving kindness of God our Savior appeared, he saved us, not because of works done by us in righteousness, but according to his own mercy, by the washing of regeneration and renewal of the Holy Spirit, whom he poured out on us richly through Jesus Christ our Savior, so that being justified by his grace we might become heirs according to the hope of eternal life.
 
 When sin crouches like a hungry lion ready to devour our souls.
 
@@ -64,7 +64,7 @@ Yours to do: is to give the only thing you and I have to offer to the Son of God
 
 Christ does not invite us and the world into his kingdom. Christ does not have a soft "come if you want to--if you are not too busy" under his rule as though he is throwing some sort of party.
 
->Matthew 22:8-14 (CSB) “Then he told his servants, ‘The banquet is ready, but those who were invited were not worthy. 9 Go then to where the roads exit the city and invite everyone you find to the banquet.’ 10 So those servants went out on the roads and gathered everyone they found, both evil and good. The wedding banquet was filled with guests. 11 When the king came in to see the guests, he saw a man there who was not dressed for a wedding. 12 So he said to him, ‘Friend, how did you get in here without wedding clothes? ’ The man was speechless. 13 “Then the king told the attendants, ‘Tie him up hand and foot, and throw him into the outer darkness, where there will be weeping and gnashing of teeth.’ 14 “For many are invited, but few are chosen.”
+>Matthew 22:8-14 “Then he told his servants, ‘The banquet is ready, but those who were invited were not worthy. 9 Go then to where the roads exit the city and invite everyone you find to the banquet.’ 10 So those servants went out on the roads and gathered everyone they found, both evil and good. The wedding banquet was filled with guests. 11 When the king came in to see the guests, he saw a man there who was not dressed for a wedding. 12 So he said to him, ‘Friend, how did you get in here without wedding clothes? ’ The man was speechless. 13 “Then the king told the attendants, ‘Tie him up hand and foot, and throw him into the outer darkness, where there will be weeping and gnashing of teeth.’ 14 “For many are invited, but few are chosen.”
 
 This is the gospel--this is the good news: Christ is commanding you and me and every single child born of Adam to repent of our sins. 
 

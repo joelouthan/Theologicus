@@ -8,7 +8,7 @@
 
 ## The Text
 
->Psalm 19:10-11 (CSB)  
+>Psalm 19:10-11  
 >They are more desirable than gold —  
 >than an abundance of pure gold;  
 >and sweeter than honey  
@@ -24,7 +24,7 @@
 
 ### Neither are the aforementioned uses of the law contrary to the grace of the Gospel, but do sweetly comply with it
 
->Galatians 3:21 (CSB) Is the law therefore contrary to God’s promises? Absolutely not! For if the law had been granted with the ability to give life, then righteousness would certainly be on the basis of the law.
+>Galatians 3:21 Is the law therefore contrary to God’s promises? Absolutely not! For if the law had been granted with the ability to give life, then righteousness would certainly be on the basis of the law.
 
 Here's the great part of the law of God: we never, ever have to break his law in order to live in his grace and give grace to others. Does that make sense?
 
@@ -34,14 +34,14 @@ But who am I, a mere broken beggar, to sign off on your sin. Why do I need to tw
 
 ### the Spirit of Christ subduing and enabling the will of man to do that freely and cheerfully which the will of God, revealed in the law, requireth to be done
 
->Ezekiel 36:27 (CSB) I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
+>Ezekiel 36:27 I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
 
 You and I need to run to the Christ! We need to possess the Triune God. God has aptly promises, turn to me and I will give you my Son. No delay. No hesitation. No pondering. Instant giving of his only begotten Son to those sinners who need to be saved.
 
->1 John 1:9 (CSB) If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
+>1 John 1:9 If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
 
 My love, this is the only way we can live. Every since the dawn of man, we have been working tirelessly to find our own way to life. And what has our efforts produced? Backs broken. Souls crushed. Hearts torn into two. We are left lifeless, tired, lonely, and desperate.
 
->Matthew 11:28-30 (CSB) “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
+>Matthew 11:28-30 “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
 
 We can only find real and true rest in Christ alone. There is no other name by which we are saved.

@@ -26,19 +26,19 @@ Rooted and grounded.
 
 #### Divinely Inspired
 
->2 Timothy 3:16–17 (CSB) All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
+>2 Timothy 3:16–17 All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
 
->Matthew 4:4 (CSB) He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
+>Matthew 4:4 He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
 
 #### Inerrant - Without error
 
 Whatever it speaks on, it is true
 
->John 17:17 (CSB) Sanctify them by the truth; your word is truth.
+>John 17:17 Sanctify them by the truth; your word is truth.
 
 #### Infallible - All that it says, it will come to pass
 
->Isaiah 40:8 (CSB) The grass withers, the flowers fade, but the word of our God remains forever.”
+>Isaiah 40:8 The grass withers, the flowers fade, but the word of our God remains forever.”
 
 #### Authoritative
 
@@ -106,19 +106,19 @@ All preaching must wake up the church.
 
 ### The Preaching of Jonah
 
->Jonah 3:4 (CSB) Jonah set out on the first day of his walk in the city and proclaimed, “In forty days Nineveh will be demolished!”
+>Jonah 3:4 Jonah set out on the first day of his walk in the city and proclaimed, “In forty days Nineveh will be demolished!”
 
 ### The Preaching of Jesus
 
->John 12:44 (CSB) Jesus cried out, “The one who believes in me believes not in me, but in him who sent me.
+>John 12:44 Jesus cried out, “The one who believes in me believes not in me, but in him who sent me.
 
->John 7:28-29 (CSB) As he was teaching in the temple, Jesus cried out, “You know me and you know where I am from. Yet I have not come on my own, but the one who sent me is true. You don’t know him; I know him because I am from him, and he sent me.”
+>John 7:28-29 As he was teaching in the temple, Jesus cried out, “You know me and you know where I am from. Yet I have not come on my own, but the one who sent me is true. You don’t know him; I know him because I am from him, and he sent me.”
 
->John 7:37-39 (CSB) On the last and most important day of the festival, Jesus stood up and cried out, “If anyone is thirsty, let him come to me and drink. The one who believes in me, as the Scripture has said, will have streams of living water flow from deep within him.” He said this about the Spirit. Those who believed in Jesus were going to receive the Spirit, for the Spirit had not yet been given because Jesus had not yet been glorified.
+>John 7:37-39 On the last and most important day of the festival, Jesus stood up and cried out, “If anyone is thirsty, let him come to me and drink. The one who believes in me, as the Scripture has said, will have streams of living water flow from deep within him.” He said this about the Spirit. Those who believed in Jesus were going to receive the Spirit, for the Spirit had not yet been given because Jesus had not yet been glorified.
 
 cried out: to scream
 
->Acts 2:14 (CSB) Peter stood up with the Eleven, raised his voice, and proclaimed to them, “Fellow Jews and all you residents of Jerusalem, let this be known to you, and pay attention to my words.
+>Acts 2:14 Peter stood up with the Eleven, raised his voice, and proclaimed to them, “Fellow Jews and all you residents of Jerusalem, let this be known to you, and pay attention to my words.
 
 >>Dispassionate preaching is a lie. RCS.
 
@@ -156,7 +156,7 @@ If Scripture is clear, than our preaching must be clear.
 
 ## What is Preaching: Our Calling 2 Timothy 2:15
 
->2 Timothy 2:15 (CSB) Be diligent to present yourself to God as one approved, a worker who doesn’t need to be ashamed, correctly teaching the word of truth.
+>2 Timothy 2:15 Be diligent to present yourself to God as one approved, a worker who doesn’t need to be ashamed, correctly teaching the word of truth.
 
 ### Be diligent
 
@@ -166,7 +166,7 @@ All in
 
 Be tested by God. He tests our theology and doctrine.
 
->1 Corinthians 3:13–14 (CSB) each one’s work will become obvious. For the day will disclose it, because it will be revealed by fire; the fire will test the quality of each one’s work. If anyone’s work that he has built survives, he will receive a reward.
+>1 Corinthians 3:13–14 each one’s work will become obvious. For the day will disclose it, because it will be revealed by fire; the fire will test the quality of each one’s work. If anyone’s work that he has built survives, he will receive a reward.
 
 ### Cannot be ashamed
 
@@ -174,7 +174,7 @@ Be tested by God. He tests our theology and doctrine.
 
 Field worker, in the hot sun in the open field. Labor and toil in the Scriptures.
 
->James 3:1 (CSB) Not many should become teachers, my brothers, because you know that we will receive a stricter judgment.
+>James 3:1 Not many should become teachers, my brothers, because you know that we will receive a stricter judgment.
 
 There is a stricter accountability before God in front of people for the those of us who handles and correctly teaching the word of truth.
 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 23:4d (CSB)   your rod and your staff—they comfort me.
+>Psalm 23:4d   your rod and your staff—they comfort me.
 
 ## The Prayer
 

@@ -1,6 +1,6 @@
 <img class="intro-right" src="../images/art-paris-psalter.jpg">
 
-# Psalm 18 (CSB)  
+# Psalm 18  
 
 >For the choir director. Of the servant of the LORD, David, who spoke the words of this song to the LORD on the day the LORD rescued him from the grasp of all his enemies and from the power of Saul. He said: 
 >

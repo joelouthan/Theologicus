@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 23:6a (CSB)   Only goodness
+>Psalm 23:6a   Only goodness
 
 ## The Prayer
 

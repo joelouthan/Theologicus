@@ -6,7 +6,7 @@
 
 ## The Text
 
-> Matthew 1:24-25 (CSB) When Joseph woke up, he did as the Lord’s angel had commanded him. He married her but did not have sexual relations with her until she gave birth to a son. And he named him Jesus.
+> Matthew 1:24-25 When Joseph woke up, he did as the Lord’s angel had commanded him. He married her but did not have sexual relations with her until she gave birth to a son. And he named him Jesus.
 
 ## The Devotion
 
@@ -20,7 +20,7 @@ Our tomorrow is never a guarantee by God.
 
 For:
 
->Proverbs 27:1 (CSB) Don’t boast about tomorrow,  
+>Proverbs 27:1 Don’t boast about tomorrow,  
 for you don’t know what a day might bring.
 
 Let us give thanks to God for he has given us grace!
@@ -29,7 +29,7 @@ Let us give thanks to God for he has given us grace!
 
 God gives all grace for you to obey him. For:
 
->Ezekiel 36:24–27 (CSB) “ ‘For I will take you from the nations and gather you from all the countries, and will bring you into your own land. I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
+>Ezekiel 36:24–27 “ ‘For I will take you from the nations and gather you from all the countries, and will bring you into your own land. I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
 
 Let us give thanks to God for he has given us grace!
 
@@ -37,7 +37,7 @@ Let us give thanks to God for he has given us grace!
 
 Before the sin entered into our world, we were blessed with a few things: love, righteousness, holiness, rest, work, and marriage. These were gifts of God. For:
 
->Genesis 2:24 (CSB) This is why a man leaves his father and mother and bonds with his wife, and they become one flesh.
+>Genesis 2:24 This is why a man leaves his father and mother and bonds with his wife, and they become one flesh.
 
 Let us give thanks to God for he has given us grace!
 

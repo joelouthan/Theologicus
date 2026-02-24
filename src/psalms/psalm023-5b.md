@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 23:5b (CSB)   you anoint my head with oil
+>Psalm 23:5b   you anoint my head with oil
 
 ## The Prayer
 

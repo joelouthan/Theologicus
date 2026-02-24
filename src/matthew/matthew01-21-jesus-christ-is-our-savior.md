@@ -6,7 +6,7 @@
 
 ## The Text
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 ## The Devotion
 
@@ -18,9 +18,9 @@ See the audacity. Know the boldness. Feel the weight of this prediction.
 
 Jesus will save his people from their sins.
 
->Romans 1:16 (CSB) For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek.
+>Romans 1:16 For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek.
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
 We want to deal with the possibilities. "Oh, I hope my son knows Jesus." "I hope my neighbor knows Christ." When in reality, our hope is in the God, whom Isaiah called, "mighty to save". Not might save--not possibility of saving but will actually save us from our sins.
 

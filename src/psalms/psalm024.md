@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 24 (CSB)  
+>Psalm 24  
 ><sup></sup> A psalm of David. 
 >
 ><sup>1</sup> The earth and everything in it, the world and its inhabitants, belong to the LORD; 

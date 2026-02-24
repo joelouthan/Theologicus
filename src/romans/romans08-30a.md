@@ -4,7 +4,7 @@
 
 ## The Text
 
->Romans 8:30 (CSB)  **And those he predestined**, he also called; and those he called, he also justified; and those he justified, he also glorified.
+>Romans 8:30  **And those he predestined**, he also called; and those he called, he also justified; and those he justified, he also glorified.
 
 ## The Introduction
 
@@ -20,7 +20,7 @@ God saved us because He simply saw us and He chose us to be with Him forever.
 
 ## The Gospel
 
->Ephesians 1:3–10 (CSB)  
+>Ephesians 1:3–10  
 ><sup> 3 </sup> Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. 
 >
 ><sup> 4 </sup> For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. 
@@ -45,11 +45,11 @@ Or flip it the other way: I have done so well all of my life. I did the right th
 
 The argument of “From eternity past, God saw me and saw that I choose him.” We know that Romans 5:8 says otherwise.
 
->Romans 5:8 (CSB)  But God proves his own love for us in that while we were still sinners, Christ died for us.
+>Romans 5:8  But God proves his own love for us in that while we were still sinners, Christ died for us.
 
 Jesus said it distinctly:
 
->John 15:16 (CSB) You did not choose me, but I chose you. I appointed you to go and produce fruit and that your fruit should remain, so that whatever you ask the Father in my name, he will give you.
+>John 15:16 You did not choose me, but I chose you. I appointed you to go and produce fruit and that your fruit should remain, so that whatever you ask the Father in my name, he will give you.
 
 We are saved for His glory. And this started with Him choosing us from a long, long time ago. Not because He predestined us to lest we believe that we are saved by election alone.
 
@@ -95,7 +95,7 @@ Father: Let’s do it.
 
 BOOM!
 
->Genesis 1:1 (CSB)  In the beginning God created the heavens and the earth.
+>Genesis 1:1  In the beginning God created the heavens and the earth.
 
 ## Our Response
 

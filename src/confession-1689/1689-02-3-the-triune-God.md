@@ -8,7 +8,7 @@
 
 ## The Text
 
->Matthew 28:16–20 (CSB) The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, **“All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”**
+>Matthew 28:16–20 The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, **“All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”**
 
 ## The Chapter
 
@@ -18,7 +18,7 @@
 
 ### In this divine and infinite Being there are three subsistences
 
->1 John 5:7–10 (CSB) For there are three that testify: the Spirit, the water, and the blood—and these three are in agreement. If we accept human testimony, God’s testimony is greater, because it is God’s testimony that he has given about his Son. The one who believes in the Son of God has this testimony within himself. The one who does not believe God has made him a liar, because he has not believed in the testimony God has given about his Son.
+>1 John 5:7–10 For there are three that testify: the Spirit, the water, and the blood—and these three are in agreement. If we accept human testimony, God’s testimony is greater, because it is God’s testimony that he has given about his Son. The one who believes in the Son of God has this testimony within himself. The one who does not believe God has made him a liar, because he has not believed in the testimony God has given about his Son.
 
 I am in full appreciation of theologians in the past, that have crafted and wrote the *Westminster Confession of Faith* and the *Savoy Declaration*. The Baptists, with the 1st and 2nd London Confessions, only added a few clarifying words here and there but in every sense, blatantly plagiarize the WCF/Savoy. "If it aint broke, don't fix it" is an apropos saying from my childhood.
 
@@ -30,19 +30,19 @@ The definition for *subsistence* is real being. God, not a figment of anyone's i
 
 ### the Father, the Word or Son, and Holy Spirit
 
->Matthew 28:19 (CSB) Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit,
+>Matthew 28:19 Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit,
 
 And it was when Jesus Christ began his ministry on the earth that he massively unveils one of the greatest mysteries of the Old Testament, second only to how will God finally rescue his people. The answer to greatest mystery of the gospel of God in the OT is the Lord Jesus Christ. And with the revealing of the Lord Jesus Christ and the proclamation from his mouth, he reveals that God is three subsistences or three hypostases or three real beings: God the Father, God the Holy Spirit and himself, the Word, that is, God the Son.
 
 Now think of the preaching ministry of Christ. God with us, taking on flesh, fully God and fully man makes the declaration to believers and non-believers alike:
 
->John 10:29-30 (CSB) My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
+>John 10:29-30 My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
 
 How do you think that the most religious of the day responded? Took it all in? Pondered the points? Consider the memorized Scriptures?
 
 No! They responded in violence!
 
->John 10:33 (CSB) “We aren’t stoning you for a good work,” the Jews answered, “but for blasphemy, because you — being a man — make yourself God.”
+>John 10:33 “We aren’t stoning you for a good work,” the Jews answered, “but for blasphemy, because you — being a man — make yourself God.”
 
 Christ himself God and equal with the Father because why? Christ is God. In the same way, I am Joseph Louthan. I could state all the things that are used to identify myself according the world and to history and to philosophy: male, tall, son of Joseph and Sue, Technical Project Manager, writer, wife of Sarah, father of three kids, heterosexual.
 
@@ -54,36 +54,36 @@ So many people don't want to know or can't stand knowing. Don't be ignorant of t
 
 ### of one substance, power, and eternity
 
->2 Corinthians 13:13 (CSB) The grace of the Lord Jesus Christ, and the love of God, and the fellowship of the Holy Spirit be with you all.
+>2 Corinthians 13:13 The grace of the Lord Jesus Christ, and the love of God, and the fellowship of the Holy Spirit be with you all.
 
 However and whatever means you use to preach and teach the doctrine of the Trinity, you must not forget the attributes of God [^1689.2.1]
 
 We know that God is eternal:
 
->Psalm 90:2 (CSB) Before the mountains were born, before you gave birth to the earth and the world, from eternity to eternity, you are God.
+>Psalm 90:2 Before the mountains were born, before you gave birth to the earth and the world, from eternity to eternity, you are God.
 
->Revelation 22:12-13 (CSB) “Look, I am coming soon, and my reward is with me to repay each person according to his work. I am the Alpha and the Omega, the first and the last, the beginning and the end.
+>Revelation 22:12-13 “Look, I am coming soon, and my reward is with me to repay each person according to his work. I am the Alpha and the Omega, the first and the last, the beginning and the end.
 
 And we know he is almighty:
 
->Genesis 17:1 (CSB) When Abram was ninety-nine years old, the LORD appeared to him, saying, “I am God Almighty. Live in my presence and be blameless.
+>Genesis 17:1 When Abram was ninety-nine years old, the LORD appeared to him, saying, “I am God Almighty. Live in my presence and be blameless.
 
->Revelation 4:8 (CSB) Each of the four living creatures had six wings; they were covered with eyes around and inside. Day and night they never stop, saying,  
+>Revelation 4:8 Each of the four living creatures had six wings; they were covered with eyes around and inside. Day and night they never stop, saying,  
 >Holy, holy, holy,  
 >Lord God, the Almighty,  
 >who was, who is, and who is to come.
 
 What about one substance?
 
->Deuteronomy 6:4 (CSB) “Listen, Israel: The LORD our God, the LORD is one.
+>Deuteronomy 6:4 “Listen, Israel: The LORD our God, the LORD is one.
 
->John 10:29-30 (CSB) My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
+>John 10:29-30 My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
 
 ### each having the whole divine essence, yet the essence undivided
 
->Exodus 3:14 (CSB) God replied to Moses, “I AM WHO I AM. This is what you are to say to the Israelites: I AM has sent me to you.”
+>Exodus 3:14 God replied to Moses, “I AM WHO I AM. This is what you are to say to the Israelites: I AM has sent me to you.”
 
->John 8:57-58 (CSB) The Jews replied, “You aren’t fifty years old yet, and you’ve seen Abraham? ”Jesus said to them, “Truly I tell you, before Abraham was, I am.
+>John 8:57-58 The Jews replied, “You aren’t fifty years old yet, and you’ve seen Abraham? ”Jesus said to them, “Truly I tell you, before Abraham was, I am.
 
 I think the best way of describing this is loosely quoting Augustine:
 
@@ -95,9 +95,9 @@ The Doctrine of the Trinity is such a mystery. The moment we try to demystify it
 
 ### the Father is of none, neither begotten nor proceeding
 
->John 14:11 (CSB) Believe me that I am in the Father and the Father is in me. Otherwise, believe because of the works themselves.
+>John 14:11 Believe me that I am in the Father and the Father is in me. Otherwise, believe because of the works themselves.
 
->1 Corinthians 8:6 (CSB) yet for us there is one God, the Father. All things are from him, and we exist for him. And there is one Lord, Jesus Christ. All things are through him, and we exist through him.
+>1 Corinthians 8:6 yet for us there is one God, the Father. All things are from him, and we exist for him. And there is one Lord, Jesus Christ. All things are through him, and we exist through him.
 
 Every Lord's Day, in my church, [Reforming Truth Church (Lexington, KY)](https://reformingtruth.church) will conclude our Communion with this utterly Triune declaration:
 
@@ -107,9 +107,9 @@ After singing praises, the hearing of God's law, the Confession of our Sins, the
 
 ### the Son is eternally begotten of the Father
 
->John 1:14–18 (CSB) The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth. (John testified concerning him and exclaimed, “This was the one of whom I said, ‘The one coming after me ranks ahead of me, because he existed before me.’ ”) Indeed, we have all received grace upon grace from his fullness, for the law was given through Moses; grace and truth came through Jesus Christ. No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
+>John 1:14–18 The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth. (John testified concerning him and exclaimed, “This was the one of whom I said, ‘The one coming after me ranks ahead of me, because he existed before me.’ ”) Indeed, we have all received grace upon grace from his fullness, for the law was given through Moses; grace and truth came through Jesus Christ. No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
 The Father, the Son, and the Spirit are three distinct subsistences yet are of one substance.
 
@@ -119,17 +119,17 @@ The Nicene Creed states it as this:
 
 And look at Scripture to explain this:
 
->John 1:1 (CSB) In the beginning was the Word, and the Word was with God, and the Word was God.
+>John 1:1 In the beginning was the Word, and the Word was with God, and the Word was God.
 
->Colossians 1:15 (CSB) He is the image of the invisible God, the firstborn over all creation.
+>Colossians 1:15 He is the image of the invisible God, the firstborn over all creation.
 
->John 1:14 (CSB) The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth.
+>John 1:14 The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth.
 
 Christ is eternally begotten from the Father. That means there was never a time when he was not begotten. He has always been with the Father, living in distinct perfect community.
 
 ### the Holy Spirit proceeding from the Father and the Son
 
->John 15:26 (CSB) “When the Counselor comes, the one I will send to you from the Father—the Spirit of truth who proceeds from the Father—he will testify about me.
+>John 15:26 “When the Counselor comes, the one I will send to you from the Father—the Spirit of truth who proceeds from the Father—he will testify about me.
 
 It is so tempting to give an entire treatise on the Holy Spirit right here and right now. Mostly because of two reasons:
 
@@ -140,7 +140,7 @@ But what the Holy Spirit does will be laid out here in the entire exposition.
 
 But I want to call your attention to this one passage in John:
 
->John 16:7-14 (CSB) Nevertheless, I am telling you the truth. **It is for your benefit that I go away, because if I don’t go away the Counselor will not come to you. If I go, I will send him to you. When he comes, he will convict the world about sin, righteousness, and judgment**: About sin, because they do not believe in me; about righteousness, because I am going to the Father and you will no longer see me; and about judgment, because the ruler of this world has been judged.
+>John 16:7-14 Nevertheless, I am telling you the truth. **It is for your benefit that I go away, because if I don’t go away the Counselor will not come to you. If I go, I will send him to you. When he comes, he will convict the world about sin, righteousness, and judgment**: About sin, because they do not believe in me; about righteousness, because I am going to the Father and you will no longer see me; and about judgment, because the ruler of this world has been judged.
 >
 >“I still have many things to tell you, but you can’t bear them now. When the Spirit of truth comes, he will guide you into all the truth. For he will not speak on his own, but he will speak whatever he hears. He will also declare to you what is to come. **He will glorify me, because he will take from what is mine and declare it to you.**
 
@@ -162,7 +162,7 @@ Christ was always fully God. He is the Alpha and Omega and the Beginning and End
 
 I don't know what our glorification will completely look like except for one thing: it has already been done. Since the Father has glorified the Son, we are already glorified because all of what the Son has done.
 
->Romans 8:30 (CSB) And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
+>Romans 8:30 And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
 
 So what can we say about these things? Indeed.
 
@@ -170,7 +170,7 @@ So what can we say about these things? Indeed.
 
 There is a new-old heresy being circulated around that fired up about ten years ago then sort of fizzled like a fart in church, called the Eternal Submission of the Son (ESS). Those who are spouting out such nonsense are always those who fall so far into hard **Complementarianism** camp (those who believe genders of mankind are different but equal) that they are indistinguishable from Patriarchy (men are always right and women need to shut up and stay quiet.) There one verse that they have built their house of cards upon is:
 
->1 Corinthians 11:3 (CSB) But I want you to know that Christ is the head of every man, and the man is the head of the woman, and God is the head of Christ.
+>1 Corinthians 11:3 But I want you to know that Christ is the head of every man, and the man is the head of the woman, and God is the head of Christ.
 
 Now, I hope you can tell from reading the last paragraph, that I have zero grace towards people who keep teaching *ESS* like it is a real and Biblical thing. Those are false teachers and I will not stand for it. Come into my church shooting that nonsense and you will be handled promptly and according. (Not a threat but a fact.)
 
@@ -188,11 +188,11 @@ One interesting tidbit and I will step down from my soapbox.
 
 Jesus declares "I cannot do anything unless I see my Father doing likewise":
 
->John 5:19-20 (CSB) Jesus replied, “Truly I tell you, the Son is not able to do anything on his own, but only what he sees the Father doing. For whatever the Father does, the Son likewise does these things. For the Father loves the Son and shows him everything he is doing, and he will show him greater works than these so that you will be amazed.
+>John 5:19-20 Jesus replied, “Truly I tell you, the Son is not able to do anything on his own, but only what he sees the Father doing. For whatever the Father does, the Son likewise does these things. For the Father loves the Son and shows him everything he is doing, and he will show him greater works than these so that you will be amazed.
 
 Yet, because Christ perfectly saved his people from their sins (Matthew 1:21), by perfectly fulfilling the law (Matthew 5:17-20), died the death we should have died for our sins (Romans 6:1-14), look how the Father glorifies the Son:
 
->Daniel 7:13–14 (CSB)  
+>Daniel 7:13–14  
 ><sup>13</sup> I continued watching in the night visions, and suddenly one like a son of man was coming with the clouds of heaven. He approached the Ancient of Days and was escorted before him. 
 >
 ><sup>14</sup> **He was given dominion and glory and a kingdom, so that those of every people, nation, and language should serve him. His dominion is an everlasting dominion that will not pass away, and his kingdom is one that will not be destroyed.**
@@ -209,7 +209,7 @@ And upon that glory, we can rest assure that our salvation permanently and etern
 
 To the great and mighty God, his promises are yes and amen. Our promises are easily broken. We are faithless, he remains faithful. Great is his faithfulness!
 
->Romans 8:14–17 (CSB) For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
+>Romans 8:14–17 For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
 
 [^1689.2.1]: see [1689 Baptist Confession of Faith, Chapter 2.1 The Attributes of God](1689-02-1-the-attributes-of-God.md)
 

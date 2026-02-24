@@ -8,9 +8,9 @@
 
 ## The Text
 
->Psalm 16:10–11 (CSB) For you will not abandon me to Sheol; you will not allow your faithful one to see decay. You reveal the path of life to me; in your presence is abundant joy; at your right hand are eternal pleasures.
+>Psalm 16:10–11 For you will not abandon me to Sheol; you will not allow your faithful one to see decay. You reveal the path of life to me; in your presence is abundant joy; at your right hand are eternal pleasures.
 
->Psalm 17:15 (CSB) But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
+>Psalm 17:15 But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
 
 ## The Chapter
 
@@ -18,11 +18,11 @@
 
 ## The Confession
 
->Acts 24:15 (CSB) I have a hope in God, which these men themselves also accept, that there will be a resurrection, both of the righteous and the unrighteous.
+>Acts 24:15 I have a hope in God, which these men themselves also accept, that there will be a resurrection, both of the righteous and the unrighteous.
 
->John 5:28–29 (CSB) Do not be amazed at this, because a time is coming when all who are in the graves will hear his voice and come out—those who have done good things, to the resurrection of life, but those who have done wicked things, to the resurrection of condemnation.
+>John 5:28–29 Do not be amazed at this, because a time is coming when all who are in the graves will hear his voice and come out—those who have done good things, to the resurrection of life, but those who have done wicked things, to the resurrection of condemnation.
 
->Philippians 3:21 (CSB) He will transform the body of our humble condition into the likeness of his glorious body, by the power that enables him to subject everything to himself.
+>Philippians 3:21 He will transform the body of our humble condition into the likeness of his glorious body, by the power that enables him to subject everything to himself.
 
 There are two destinations for the imagebearers of God: either with God or under his wrath. One quote comes to mind, "There are infinite ways to get to God but only one path that is under the protection from the wrath of God, that can only be found in Jesus Christ our Lord and Savior."
 

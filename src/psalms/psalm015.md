@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 15 (CSB)  
+>Psalm 15  
 ><sup></sup> A psalm of David 
 >
 ><sup>1</sup> LORD, who can dwell in your tent? Who can live on your holy mountain? 

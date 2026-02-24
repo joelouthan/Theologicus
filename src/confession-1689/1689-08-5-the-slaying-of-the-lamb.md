@@ -8,7 +8,7 @@
 
 ## The Text
 
->Revelation 5:12-13 (CSB) They said with a loud voice,  
+>Revelation 5:12-13 They said with a loud voice,  
 >Worthy is the Lamb who was slaughtered  
 >to receive power and riches  
 >and wisdom and strength  
@@ -26,11 +26,11 @@
 
 ### The Lord Jesus, by His perfect obedience and sacrifice of Himself, which He through the eternal Spirit once offered up to God, has fully satisfied the justice of God
 
->Hebrews 9:14 (CSB) how much more will the blood of Christ, who through the eternal Spirit offered himself without blemish to God, cleanse our consciences from dead works so that we can serve the living God?
+>Hebrews 9:14 how much more will the blood of Christ, who through the eternal Spirit offered himself without blemish to God, cleanse our consciences from dead works so that we can serve the living God?
 
->Hebrews 10:14 (CSB) For by one offering he has perfected forever those who are sanctified.
+>Hebrews 10:14 For by one offering he has perfected forever those who are sanctified.
 
->Romans 3:25–26 (CSB) God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.
+>Romans 3:25–26 God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.
 
 In England, October 16, 1555, there were two men, Catholic priests, named Hugh Latimer and Nicholas Ridley. They were imprisoned together under the rule of Mary I for 18 months before being led through the streets of Oxford to a heavy stake on the north side. Latimer, in his frock and cap with Ridley in his bishop's gown, marched earnestly. Some of the crowd jeered and mocked. Others, still, try to encourage and emboldened the two prisoners. After the two men embraced, prayed to God, they were then chained to the stake, back to back. Kindling was built at their feet. A satchel of gunpowder around their midsection so that they would be obliterated when the soon-to-be flames licked up.
 
@@ -52,7 +52,7 @@ What was this belief that both men were willing to be imprisoned and die in the 
 
 It was this doctrine: The doctrine of the atonement. And the fact that Jesus Christ, the perfect Son of God, made this sacrifice once and for all. 
 
->Hebrews 9:28 (CSB) so also Christ, having been offered once to bear the sins of many, will appear a second time, not to bear sin, but to bring salvation to those who are waiting for him.
+>Hebrews 9:28 so also Christ, having been offered once to bear the sins of many, will appear a second time, not to bear sin, but to bring salvation to those who are waiting for him.
 
 These men died for the truth in Hebrews 9:28.
 
@@ -72,9 +72,9 @@ And for the doctrine of atonement--that Christ died once for all time to cover t
 
 ### procured reconciliation, and purchased an everlasting inheritance in the kingdom of heaven, for all those whom the Father has given unto Him
 
->John 17:2 (CSB) since you gave him authority over all people, so that he may give eternal life to everyone you have given him.
+>John 17:2 since you gave him authority over all people, so that he may give eternal life to everyone you have given him.
 
->Hebrews 9:15 (CSB) Therefore, he is the mediator of a new covenant, so that those who are called might receive the promise of the eternal inheritance, because a death has taken place for redemption from the transgressions committed under the first covenant.
+>Hebrews 9:15 Therefore, he is the mediator of a new covenant, so that those who are called might receive the promise of the eternal inheritance, because a death has taken place for redemption from the transgressions committed under the first covenant.
 
 Christ did not come to make salvation possible. For the Old Testament saints, from Adam to John the Baptist, who died before the cross, Christ died to save them. For the New Testament saints, from Stephen until Christ returns, he died for them.
 
@@ -82,11 +82,11 @@ His death was satisfactory. His crucifixion was complete. His blood spilt was pe
 
 God did not look upon the annuals of time and picked the timeline where you choose him. No! Before Genesis 1:1, when the Father and the Son saw us, all he saw that we were sinning and sinning all the morning and running into death as fast as we can.
 
->Romans 5:8 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us.
+>Romans 5:8 But God proves his own love for us in that while we were still sinners, Christ died for us.
 
 It was there--before the foundations of the world were even form--that the Father, Son, and the Spirit set the love and affections upon you. They did this not because you were good nor because you were going to be a sinner destined unto hell but rather, they predestined you to be adopted as sons and daughters of God forever.
 
->Ephesians 1:4–5 (CSB) For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will,
+>Ephesians 1:4–5 For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will,
 
 God loves you. God knows you were far from him. He knows that. He knows that you sin continuously all the time. He knows that you cannot be holy and good on your own. You and I are made from dust. He knows that. If he does nothing, we were doomed with Satan, demons, hell and death for all of eternity.
 

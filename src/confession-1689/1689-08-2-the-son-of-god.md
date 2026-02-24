@@ -8,7 +8,7 @@
 
 ## The Text
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 ## The Chapter
 
@@ -18,9 +18,9 @@
 
 ### The Son of God, the second person in the Holy Trinity, being very and eternal God, the brightness of the Father's glory, of one substance and equal with Him who made the world, who upholds and governs all things He has made, did, when the fullness of time was complete, take upon Him man's nature, with all the essential properties and common infirmities of it
 
->John 1:14 (CSB) The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth.
+>John 1:14 The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth.
 
->Galatians 4:4 (CSB) When the time came to completion, God sent his Son, born of a woman, born under the law,
+>Galatians 4:4 When the time came to completion, God sent his Son, born of a woman, born under the law,
 
 I am writing this particular exposition on 1689 Chapter 9 Paragraph 2 on April 21, 2023. Why is that important?
 
@@ -46,11 +46,11 @@ I will not waste one byte of data, not one bit of ink speaking about this heresy
 
 ### yet without sin
 
->Romans 8:3 (CSB) For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering,
+>Romans 8:3 For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering,
 
->Hebrews 2:14–17 (CSB) Now since the children have flesh and blood in common, Jesus also shared in these, so that through his death he might destroy the one holding the power of death—that is, the devil—and free those who were held in slavery all their lives by the fear of death. For it is clear that he does not reach out to help angels, but to help Abraham’s offspring. Therefore, he had to be like his brothers and sisters in every way, so that he could become a merciful and faithful high priest in matters pertaining to God, to make atonement for the sins of the people.
+>Hebrews 2:14–17 Now since the children have flesh and blood in common, Jesus also shared in these, so that through his death he might destroy the one holding the power of death—that is, the devil—and free those who were held in slavery all their lives by the fear of death. For it is clear that he does not reach out to help angels, but to help Abraham’s offspring. Therefore, he had to be like his brothers and sisters in every way, so that he could become a merciful and faithful high priest in matters pertaining to God, to make atonement for the sins of the people.
 
->Hebrews 4:15 (CSB) For we do not have a high priest who is unable to sympathize with our weaknesses, but one who has been tempted in every way as we are, yet without sin.
+>Hebrews 4:15 For we do not have a high priest who is unable to sympathize with our weaknesses, but one who has been tempted in every way as we are, yet without sin.
 
 Since Christ was not born of Adam because he was conceived by the Holy Spirit, he did not get Adam's sinful nature. Christ alone was born into the world without sin. That is why is the Perfect Spotless Lamb of God. That is why his death is worthy to cleanse us from our sins.
 
@@ -72,21 +72,21 @@ Yet, all the disciples of Christ laid their lives down in order for the gospel o
 
 ### being conceived by the Holy Spirit in the womb of the Virgin Mary, the Holy Spirit coming down upon her: and the power of the Most High overshadowing her; and so was made of a woman of the tribe of Judah, of the seed of Abraham and David according to the Scriptures
 
->Matthew 1:22–23 (CSB) Now all this took place to fulfill what was spoken by the Lord through the prophet: See, the virgin will become pregnant and give birth to a son, and they will name him Immanuel, which is translated “God is with us.”
+>Matthew 1:22–23 Now all this took place to fulfill what was spoken by the Lord through the prophet: See, the virgin will become pregnant and give birth to a son, and they will name him Immanuel, which is translated “God is with us.”
 
->Matthew 1:1 (CSB) An account of the genealogy of Jesus Christ, the Son of David, the Son of Abraham:
+>Matthew 1:1 An account of the genealogy of Jesus Christ, the Son of David, the Son of Abraham:
 
 Christ, never taking on the nature of Adam, but conceived righteously by the Holy Spirit from the sovereign grace of the Father, to be perfectly born of as the double-son of David. This is to say, Christ is the Son of David by adoption by Joseph and the Son of David by nature through Mary. This is to fulfill the covenant that God made with David:
 
->2 Samuel 7:11-16 (CSB) “ ‘The LORD declares to you: The LORD himself will make a house for you. When your time comes and you rest with your ancestors, I will raise up after you your descendant, who will come from your body, and I will establish his kingdom. He is the one who will build a house for my name, and I will establish the throne of his kingdom forever. I will be his father, and he will be my son. When he does wrong, I will discipline him with a rod of men and blows from mortals. But my faithful love will never leave him as it did when I removed it from Saul, whom I removed from before you. Your house and kingdom will endure before me forever, and your throne will be established forever.’ ”
+>2 Samuel 7:11-16 “ ‘The LORD declares to you: The LORD himself will make a house for you. When your time comes and you rest with your ancestors, I will raise up after you your descendant, who will come from your body, and I will establish his kingdom. He is the one who will build a house for my name, and I will establish the throne of his kingdom forever. I will be his father, and he will be my son. When he does wrong, I will discipline him with a rod of men and blows from mortals. But my faithful love will never leave him as it did when I removed it from Saul, whom I removed from before you. Your house and kingdom will endure before me forever, and your throne will be established forever.’ ”
 
 ### so that two whole, perfect, and distinct natures were inseparably joined together in one person, without conversion, composition, or confusion; which person is very God and very man, yet one Christ, the only mediator between God and man
 
->Luke 1:27–35 (CSB) to a virgin engaged to a man named Joseph, of the house of David. The virgin’s name was Mary. And the angel came to her and said, “Greetings, favored woman! The Lord is with you.” But she was deeply troubled by this statement, wondering what kind of greeting this could be. Then the angel told her, “Do not be afraid, Mary, for you have found favor with God. Now listen: You will conceive and give birth to a son, and you will name him Jesus. He will be great and will be called the Son of the Most High, and the Lord God will give him the throne of his father David. He will reign over the house of Jacob forever, and his kingdom will have no end.” Mary asked the angel, “How can this be, since I have not had sexual relations with a man?” The angel replied to her, “The Holy Spirit will come upon you, and the power of the Most High will overshadow you. Therefore, the holy one to be born will be called the Son of God.
+>Luke 1:27–35 to a virgin engaged to a man named Joseph, of the house of David. The virgin’s name was Mary. And the angel came to her and said, “Greetings, favored woman! The Lord is with you.” But she was deeply troubled by this statement, wondering what kind of greeting this could be. Then the angel told her, “Do not be afraid, Mary, for you have found favor with God. Now listen: You will conceive and give birth to a son, and you will name him Jesus. He will be great and will be called the Son of the Most High, and the Lord God will give him the throne of his father David. He will reign over the house of Jacob forever, and his kingdom will have no end.” Mary asked the angel, “How can this be, since I have not had sexual relations with a man?” The angel replied to her, “The Holy Spirit will come upon you, and the power of the Most High will overshadow you. Therefore, the holy one to be born will be called the Son of God.
 
->Romans 9:5 (CSB) The ancestors are theirs, and from them, by physical descent, came the Christ, who is God over all, praised forever. Amen.
+>Romans 9:5 The ancestors are theirs, and from them, by physical descent, came the Christ, who is God over all, praised forever. Amen.
 
->1 Timothy 2:5 (CSB) For there is one God and one mediator between God and mankind, the man Christ Jesus,
+>1 Timothy 2:5 For there is one God and one mediator between God and mankind, the man Christ Jesus,
 
 God is immutable--that is God does not change. Not inside out. Not outside in. God is the same yesterday, today, and tomorrow.
 
@@ -96,8 +96,8 @@ But the Son of God changed nothing about himself in order to take on the flesh t
 
 And we know he has never discard his flesh, for:
 
->John 20:27 (CSB) Then he said to Thomas, “Put your finger here and look at my hands. Reach out your hand and put it into my side. Don’t be faithless, but believe.”
+>John 20:27 Then he said to Thomas, “Put your finger here and look at my hands. Reach out your hand and put it into my side. Don’t be faithless, but believe.”
 
->Revelation 12:11 (CSB) They conquered him by the blood of the Lamb and by the word of their testimony; for they did not love their lives to the point of death.
+>Revelation 12:11 They conquered him by the blood of the Lamb and by the word of their testimony; for they did not love their lives to the point of death.
 
 Jesus Christ is our Savior forever. Amen.

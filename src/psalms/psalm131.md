@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 131 (CSB)  
+>Psalm 131  
 ><sup></sup> A song of ascents. Of David. 
 >
 ><sup>1</sup> LORD, my heart is not proud; my eyes are not haughty. I do not get involved with things too great or too wondrous for me. 

@@ -9,7 +9,7 @@ The Apostle John
 - silent in Acts while Peter, the lead, did most of the preaching
 - 5 books of the canon, Gospel of John; 1, 2, 3 John; Revelation
 
->1 John 1:1–2 (CSB) What was from the beginning, what we have heard, what we have seen with our eyes, what we have observed and have touched with our hands, concerning the word of life—that life was revealed, and we have seen it and we testify and declare to you the eternal life that was with the Father and was revealed to us—
+>1 John 1:1–2 What was from the beginning, what we have heard, what we have seen with our eyes, what we have observed and have touched with our hands, concerning the word of life—that life was revealed, and we have seen it and we testify and declare to you the eternal life that was with the Father and was revealed to us—
 
 John saw:
 - cross
@@ -19,17 +19,17 @@ John saw:
 Middle man
 - spoke about what you saw
 
->1 John 4:14 (CSB) And we have seen and we testify that the Father has sent his Son as the world’s Savior.
+>1 John 4:14 And we have seen and we testify that the Father has sent his Son as the world’s Savior.
 
 Tip of the spear/missile/bullet
 
->1 Corinthians 1:23 (CSB) but we preach Christ crucified, a stumbling block to the Jews and foolishness to the Gentiles.
+>1 Corinthians 1:23 but we preach Christ crucified, a stumbling block to the Jews and foolishness to the Gentiles.
 
 ---
 
 ### John preached what he saw: the Holiness of God
 
->1 John 1:5 (CSB) This is the message we have heard from him and declare to you: God is light, and there is absolutely no darkness in him.
+>1 John 1:5 This is the message we have heard from him and declare to you: God is light, and there is absolutely no darkness in him.
 
 The holiness of God - perfect, without sin. Preached the holiness of God like Isaiah.
 
@@ -39,7 +39,7 @@ The holiness of God - perfect, without sin. Preached the holiness of God like Is
 
 #### Against false teachers
 
->1 John 4:5–6 (CSB) They are from the world. Therefore what they say is from the world, and the world listens to them. We are from God. Anyone who knows God listens to us; anyone who is not from God does not listen to us. This is how we know the Spirit of truth and the spirit of deception.
+>1 John 4:5–6 They are from the world. Therefore what they say is from the world, and the world listens to them. We are from God. Anyone who knows God listens to us; anyone who is not from God does not listen to us. This is how we know the Spirit of truth and the spirit of deception.
 
 #### But we are from God
 
@@ -63,7 +63,7 @@ Holy Spirit enables right preaching
 
 ### John preached what he saw: the Glory of God
 
->Revelation 1:1–3 (CSB) The revelation of Jesus Christ that God gave him to show his servants what must soon take place. He made it known by sending his angel to his servant John, who testified to the word of God and to the testimony of Jesus Christ, whatever he saw. Blessed is the one who reads aloud the words of this prophecy, and blessed are those who hear the words of this prophecy and keep what is written in it, because the time is near.
+>Revelation 1:1–3 The revelation of Jesus Christ that God gave him to show his servants what must soon take place. He made it known by sending his angel to his servant John, who testified to the word of God and to the testimony of Jesus Christ, whatever he saw. Blessed is the one who reads aloud the words of this prophecy, and blessed are those who hear the words of this prophecy and keep what is written in it, because the time is near.
 
 >The revelation of Jesus Christ that God gave him to show his servants what must soon take place. He made it known by sending his angel to his servant John, who testified to the word of God and to the testimony of Jesus Christ, whatever he saw.
 
@@ -108,13 +108,13 @@ The word of God:
 The time of God:  
 >because the time is near.
 
->Revelation 1:11 (CSB) saying, “Write on a scroll what you see and send it to the seven churches: Ephesus, Smyrna, Pergamum, Thyatira, Sardis, Philadelphia, and Laodicea.”
+>Revelation 1:11 saying, “Write on a scroll what you see and send it to the seven churches: Ephesus, Smyrna, Pergamum, Thyatira, Sardis, Philadelphia, and Laodicea.”
 
 ## John preached what he saw: the intentions of God
 
->Revelation 1:16 (CSB) He had seven stars in his right hand; a sharp double-edged sword came from his mouth, and his face was shining like the sun at full strength.
+>Revelation 1:16 He had seven stars in his right hand; a sharp double-edged sword came from his mouth, and his face was shining like the sun at full strength.
 
->Revelation 1:20 (CSB) The mystery of the seven stars you saw in my right hand and of the seven golden lampstands is this: The seven stars are the angels of the seven churches, and the seven lampstands are the seven churches.
+>Revelation 1:20 The mystery of the seven stars you saw in my right hand and of the seven golden lampstands is this: The seven stars are the angels of the seven churches, and the seven lampstands are the seven churches.
 
 *seven stars* ἄγγελος (angelos) messenger, angel
 
@@ -124,7 +124,7 @@ In this context, it is the human preacher of the local churches.
 
 And it starts like this:
 
->Revelation 2:1 (CSB) “Write to the angel of the church in Ephesus: Thus says the one who holds the seven stars in his right hand and who walks among the seven golden lampstands:
+>Revelation 2:1 “Write to the angel of the church in Ephesus: Thus says the one who holds the seven stars in his right hand and who walks among the seven golden lampstands:
 
 Each preacher must preach the not just one letter but all seven letters **and** the entire prophecy and book of Revelation.
 
@@ -134,7 +134,7 @@ Just by reading Revelation to the congregation, we are preaching it. The preache
 
 ### Christ is coming again soon
 
->Revelation 22:7–8 (CSB) “Look, I am coming soon! 
+>Revelation 22:7–8 “Look, I am coming soon! 
 
 ### Christ blesses
 
@@ -146,16 +146,16 @@ Just by reading Revelation to the congregation, we are preaching it. The preache
 
 ### Christ is rewarded and rewards
 
->Revelation 22:12 (CSB) “Look, I am coming soon, and my reward is with me to repay each person according to his work.
+>Revelation 22:12 “Look, I am coming soon, and my reward is with me to repay each person according to his work.
 
 ### Christ begins and ends:
 
 ><sup>13</sup> I am the Alpha and the Omega, the first and the last, the beginning and the end. 
 
->Genesis 1:1 (CSB)  
+>Genesis 1:1  
 ><sup>1</sup> In the beginning God created the heavens and the earth.
 
->Genesis 3:15 (CSB)  
+>Genesis 3:15  
 ><sup>15</sup> I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
 
 
@@ -163,13 +163,13 @@ Just by reading Revelation to the congregation, we are preaching it. The preache
 
 ><sup>14</sup> “Blessed are those who wash their robes, so that they may have the right to the tree of life and may enter the city by the gates. 
 
->Genesis 3:21 (CSB)  
+>Genesis 3:21  
 ><sup>21</sup> The LORD God made clothing from skins for the man and his wife, and he clothed them.
 
->Genesis 3:16 (CSB)  
+>Genesis 3:16  
 ><sup>16</sup> He said to the woman: I will intensify your labor pains; you will bear children with painful effort. Your desire will be for your husband, yet he will rule over you.
 
->Genesis 3:17–18 (CSB)  
+>Genesis 3:17–18  
 ><sup>17</sup> And he said to the man, “Because you listened to your wife and ate from the tree about which I commanded you, ‘Do not eat from it’: The ground is cursed because of you. You will eat from it by means of painful labor all the days of your life. <sup>18</sup> It will produce thorns and thistles for you, and you will eat the plants of the field.
 
 ### Christ separates us from sin forever

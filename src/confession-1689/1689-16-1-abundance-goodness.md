@@ -8,9 +8,9 @@
 
 ## The Text
 
->Psalm 16:2 (CSB) I said to the LORD, “You are my Lord; I have nothing good besides you.”
+>Psalm 16:2 I said to the LORD, “You are my Lord; I have nothing good besides you.”
 
->Psalm 14:1–3 (CSB)  
+>Psalm 14:1–3  
 ><sup>1</sup> The fool says in his heart, “There’s no God.” They are corrupt; they do vile deeds. There is no one who does good. 
 >
 ><sup>2</sup> The LORD looks down from heaven on the human race to see if there is one who is wise, one who seeks God. 
@@ -25,9 +25,9 @@
 
 ### Only God is Good: Good works are only such as God has commanded in his Holy Word
 
->Micah 6:8 (CSB) Mankind, he has told each of you what is good and what it is the LORD requires of you: to act justly, to love faithfulness, and to walk humbly with your God.
+>Micah 6:8 Mankind, he has told each of you what is good and what it is the LORD requires of you: to act justly, to love faithfulness, and to walk humbly with your God.
 
->Hebrews 13:21 (CSB) equip you with everything good to do his will, working in us what is pleasing in his sight, through Jesus Christ, to whom be glory forever and ever. Amen.
+>Hebrews 13:21 equip you with everything good to do his will, working in us what is pleasing in his sight, through Jesus Christ, to whom be glory forever and ever. Amen.
 
 All of us as sons of Adam fall easily to the notion that we have decided what is good and not good and take action accordingly. But what is actually good can only be determined by one who is actually good--that is, of course, being God almighty.
 
@@ -45,9 +45,9 @@ So, what makes us think we get to choose what is good and then do our chosen goo
 
 ### Only God is Good: and not such as without the warrant thereof are devised by men out of blind zeal, or upon any pretense of good intentions
 
->Matthew 15:9 (CSB) They worship me in vain, teaching as doctrines human commands.”
+>Matthew 15:9 They worship me in vain, teaching as doctrines human commands.”
 
->Isaiah 29:13 (CSB) The Lord said: These people approach me with their speeches to honor me with lip-service, yet their hearts are far from me, and human rules direct their worship of me.
+>Isaiah 29:13 The Lord said: These people approach me with their speeches to honor me with lip-service, yet their hearts are far from me, and human rules direct their worship of me.
 
 We can, with every good intention within us, be the most passionate, the most zealous, seeming the most pure intentions, and even presumably, do the most good and that would not get us closer to God nor make us good in the sight of God.
 

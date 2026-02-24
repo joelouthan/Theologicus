@@ -9,7 +9,7 @@
 ## The Devotion
 ## Pray Then Like This
 
->Matthew 6:10c (CSB) on earth as it is in heaven
+>Matthew 6:10c on earth as it is in heaven
 
 ## On Earth As Is It In Heaven
 
@@ -55,7 +55,7 @@ Yes.
 
 While the happenings of the heavens are not commonly exposed to us here on earth, once in a great while, God will tell us what happened:
 
->Luke 10:17-20 (CSB) The seventy-two returned with joy, saying, “Lord, even the demons submit to us in your name.”
+>Luke 10:17-20 The seventy-two returned with joy, saying, “Lord, even the demons submit to us in your name.”
 >
 >He said to them, “I watched Satan fall from heaven like lightning. Look, I have given you the authority to trample on snakes and scorpions and over all the power of the enemy; nothing at all will harm you. However, don’t rejoice that the spirits submit to you, but rejoice that your names are written in heaven.”
 
@@ -65,7 +65,7 @@ We know that God created the heavens and the earth. In that, all the heavens and
 
 When it comes to doing what he says he will do, absolutely so:
 
->Isaiah 55:10-11 (CSB)  
+>Isaiah 55:10-11  
 >For just as rain and snow fall from heaven  
 >and do not return there  
 >without saturating the earth  
@@ -79,7 +79,7 @@ When it comes to doing what he says he will do, absolutely so:
 
 When it comes to the salvation of His people, the answer is absolutely yes.
 
->Romans 9:25-28 (CSB) As it also says in Hosea,  
+>Romans 9:25-28 As it also says in Hosea,  
 >I will call Not My People, My People,  
 >and she who is Unloved, Beloved.  
 >And it will be in the place where they were told,  
@@ -94,7 +94,7 @@ When it comes to the salvation of His people, the answer is absolutely yes.
 
 And
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 If the will of God is not absolute here on earth as it is in heaven, he ceases to be God. Just pick and think upon an attribute of God. Omnipotence, holiness, righteousness, love, just, mercy, wrath, grace--if he is less than perfect in those things here on earth, He would not be God.
 
@@ -102,19 +102,19 @@ We can contend for the free will of man and use the arguments that "we are not r
 
 I have yet to find one single passage in the Bible where man obeyed first and then God saves:
 
->Genesis 6:5-9 (CSB) When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, the LORD regretted that he had made man on the earth, and he was deeply grieved. Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky—for I regret that I made them.
+>Genesis 6:5-9 When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, the LORD regretted that he had made man on the earth, and he was deeply grieved. Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky—for I regret that I made them.
 >
 >Noah, however, found favor with the LORD.
 >
 >These are the family records of Noah. Noah was a righteous man, blameless among his contemporaries; Noah walked with God.
 
->Ezekiel 36:25-28 (CSB) I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances. You will live in the land that I gave your ancestors; you will be my people, and I will be your God.
+>Ezekiel 36:25-28 I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances. You will live in the land that I gave your ancestors; you will be my people, and I will be your God.
 
 We misjudge our own wills and the wills of others. Because of sin, we often misjudge the will of God.
 
 But the will of God is absolute:
 
->Isaiah 55:9 (CSB) “For as heaven is higher than earth,  
+>Isaiah 55:9 “For as heaven is higher than earth,  
 >so my ways are higher than your ways,  
 >and my thoughts than your thoughts.
 
@@ -126,21 +126,21 @@ Or in another way: why do we pray at all if the will of God is a sure thing?
 
 Is it to take away suffering? No, God promises that we will suffer. Christ suffered. We are "little Christs". The disciple always looks like the teacher. How are we to avoid suffering when Christ did not avoid it:
 
->Luke 24:25-27 (CSB) He said to them, “How foolish you are, and how slow to believe all that the prophets have spoken! Wasn’t it necessary for the Messiah to suffer these things and enter into his glory?” Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
+>Luke 24:25-27 He said to them, “How foolish you are, and how slow to believe all that the prophets have spoken! Wasn’t it necessary for the Messiah to suffer these things and enter into his glory?” Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
 
->Luke 21:10-19 (CSB) Then he told them, “Nation will be raised up against nation, and kingdom against kingdom. There will be violent earthquakes, and famines and plagues in various places, and there will be terrifying sights and great signs from heaven. But before all these things, they will lay their hands on you and persecute you. They will hand you over to the synagogues and prisons, and you will be brought before kings and governors because of my name. This will give you an opportunity to bear witness. Therefore make up your minds not to prepare your defense ahead of time, for I will give you such words and a wisdom that none of your adversaries will be able to resist or contradict. You will even be betrayed by parents, brothers, relatives, and friends. They will kill some of you. You will be hated by everyone because of my name, but not a hair of your head will be lost. By your endurance, gain your lives.
+>Luke 21:10-19 Then he told them, “Nation will be raised up against nation, and kingdom against kingdom. There will be violent earthquakes, and famines and plagues in various places, and there will be terrifying sights and great signs from heaven. But before all these things, they will lay their hands on you and persecute you. They will hand you over to the synagogues and prisons, and you will be brought before kings and governors because of my name. This will give you an opportunity to bear witness. Therefore make up your minds not to prepare your defense ahead of time, for I will give you such words and a wisdom that none of your adversaries will be able to resist or contradict. You will even be betrayed by parents, brothers, relatives, and friends. They will kill some of you. You will be hated by everyone because of my name, but not a hair of your head will be lost. By your endurance, gain your lives.
 
->Acts 9:15-16 (CSB) But the Lord said to him, “Go, for this man is my chosen instrument to take my name to Gentiles, kings, and Israelites. I will show him how much he must suffer for my name.”
+>Acts 9:15-16 But the Lord said to him, “Go, for this man is my chosen instrument to take my name to Gentiles, kings, and Israelites. I will show him how much he must suffer for my name.”
 
 And yet, we must keep our suffering in proper perspective:
 
->Romans 8:18 (CSB) For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us.
+>Romans 8:18 For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us.
 
 Is it for riches? No! The Lord God knows what we need.
 
->Matthew 5:44-46 (CSB) But I tell you, love your enemies and pray for those who persecute you, so that you may be children of your Father in heaven. For he causes his sun to rise on the evil and the good, and sends rain on the righteous and the unrighteous. For if you love those who love you, what reward will you have? Don’t even the tax collectors do the same?
+>Matthew 5:44-46 But I tell you, love your enemies and pray for those who persecute you, so that you may be children of your Father in heaven. For he causes his sun to rise on the evil and the good, and sends rain on the righteous and the unrighteous. For if you love those who love you, what reward will you have? Don’t even the tax collectors do the same?
 
->Proverbs 30:8-9 (CSB) Keep falsehood and deceitful words far from me.  
+>Proverbs 30:8-9 Keep falsehood and deceitful words far from me.  
 >Give me neither poverty nor wealth;  
 >feed me with the food I need.  
 >Otherwise, I might have too much  
@@ -148,7 +148,7 @@ Is it for riches? No! The Lord God knows what we need.
 >or I might have nothing and steal,  
 >profaning the name of my God.
 
->Luke 11:9-13 (CSB) “So I say to you, ask, and it will be given to you. Seek, and you will find. Knock, and the door will be opened to you. For everyone who asks receives, and the one who seeks finds, and to the one who knocks, the door will be opened. What father among you, if his son asks for a fish, will give him a snake instead of a fish? Or if he asks for an egg, will give him a scorpion? If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him?
+>Luke 11:9-13 “So I say to you, ask, and it will be given to you. Seek, and you will find. Knock, and the door will be opened to you. For everyone who asks receives, and the one who seeks finds, and to the one who knocks, the door will be opened. What father among you, if his son asks for a fish, will give him a snake instead of a fish? Or if he asks for an egg, will give him a scorpion? If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him?
 
 Is it for love and romance? No. There is nothing in the Bible that suggests that God is here to make sure you marry. Don't quote 1 Corinthians 7 to me. Go and read the Bible and understand what it means to have the Holy Spirit dwelling within you.
 

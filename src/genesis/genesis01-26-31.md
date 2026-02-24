@@ -4,7 +4,7 @@
 
 ## The Text
 
->Genesis 1:26-31 (CSB) Then God said, “Let us make man in our image, according to our likeness. They will rule the fish of the sea, the birds of the sky, the livestock, the whole earth, and the creatures that crawl on the earth.”
+>Genesis 1:26-31 Then God said, “Let us make man in our image, according to our likeness. They will rule the fish of the sea, the birds of the sky, the livestock, the whole earth, and the creatures that crawl on the earth.”
 >
 >So God created man  
 >in his own image;  
@@ -21,9 +21,9 @@
 
 So many of the laws of God deals with how we are to treat other humans. Do not steal. Do not covet. Do not kill. Invite the immigrant in. Care for the widow, orphan, and the poor. Even when we take those laws lightly, God takes them ultra serious. When we try to turn a blind eye, God sees all. When we are faithless, He is faithful. (2 Timothy 2:13)
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
->Numbers 12 (CSB) Miriam and Aaron criticized Moses because of the Cushite woman he married (for he had married a Cushite woman). They said, “Does the LORD speak only through Moses? Does he not also speak through us?” And the LORD heard it. Moses was a very humble man, more so than anyone on the face of the earth.
+>Numbers 12 Miriam and Aaron criticized Moses because of the Cushite woman he married (for he had married a Cushite woman). They said, “Does the LORD speak only through Moses? Does he not also speak through us?” And the LORD heard it. Moses was a very humble man, more so than anyone on the face of the earth.
 >
 >Suddenly the LORD said to Moses, Aaron, and Miriam, “You three come out to the tent of meeting.” So the three of them went out. Then the LORD descended in a pillar of cloud, stood at the entrance to the tent, and summoned Aaron and Miriam. When the two of them came forward, he said:
 >
@@ -49,11 +49,11 @@ So many of the laws of God deals with how we are to treat other humans. Do not s
 >and I will say to Not My People, You are my people’;  
 >and he shall say, ‘You are my God.’”
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 ### For God to save his people, the law must be perfectly obeyed
 
->Philippians 2:7-8 (CSB) Instead he emptied himself  
+>Philippians 2:7-8 Instead he emptied himself  
 >by assuming the form of a servant,  
 >taking on the likeness of humanity.  
 >And when he had come as a man,  
@@ -61,31 +61,31 @@ So many of the laws of God deals with how we are to treat other humans. Do not s
 >to the point of death—  
 >even to death on a cross.
 
->Romans 8:3-4 (CSB) For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering, in order that the law’s requirement would be fulfilled in us who do not walk according to the flesh but according to the Spirit.
+>Romans 8:3-4 For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering, in order that the law’s requirement would be fulfilled in us who do not walk according to the flesh but according to the Spirit.
 
 ### For God to save his people, the blood of the perfect sacrifice must be shed for the forgiveness of sins
 
->Hebrews 9:11-12 (CSB) But Christ has appeared as a high priest of the good things that have come. In the greater and more perfect tabernacle not made with hands (that is, not of this creation), he entered the most holy place once for all time, not by the blood of goats and calves, but by his own blood, having obtained eternal redemption.
+>Hebrews 9:11-12 But Christ has appeared as a high priest of the good things that have come. In the greater and more perfect tabernacle not made with hands (that is, not of this creation), he entered the most holy place once for all time, not by the blood of goats and calves, but by his own blood, having obtained eternal redemption.
 
->Hebrews 9:22 (CSB) According to the law almost everything is purified with blood, and without the shedding of blood there is no forgiveness.
+>Hebrews 9:22 According to the law almost everything is purified with blood, and without the shedding of blood there is no forgiveness.
 
-## The Gospel
+## His Gospel
 
 ### Through the blood of Christ, we are no longer enemies but reconciled to God
 
->Romans 5:6-11 (CSB) For while we were still helpless, at the right time, Christ died for the ungodly. For rarely will someone die for a just person—though for a good person perhaps someone might even dare to die. But God proves his own love for us in that while we were still sinners, Christ died for us. How much more then, since we have now been justified by his blood, will we be saved through him from wrath. For if, while we were enemies, we were reconciled to God through the death of his Son, then how much more, having been reconciled, will we be saved by his life. And not only that, but we also boast in God through our Lord Jesus Christ, through whom we have now received this reconciliation.
+>Romans 5:6-11 For while we were still helpless, at the right time, Christ died for the ungodly. For rarely will someone die for a just person—though for a good person perhaps someone might even dare to die. But God proves his own love for us in that while we were still sinners, Christ died for us. How much more then, since we have now been justified by his blood, will we be saved through him from wrath. For if, while we were enemies, we were reconciled to God through the death of his Son, then how much more, having been reconciled, will we be saved by his life. And not only that, but we also boast in God through our Lord Jesus Christ, through whom we have now received this reconciliation.
 
 ### Through the blood of Christ, there is no distinction among the people of God
 
->Colossians 3:11 (CSB) In Christ there is not Greek and Jew, circumcision and uncircumcision, barbarian, Scythian, slave and free; but Christ is all and in all.
+>Colossians 3:11 In Christ there is not Greek and Jew, circumcision and uncircumcision, barbarian, Scythian, slave and free; but Christ is all and in all.
 
 ## Our Response
 
 ### Know that our sin against one another is sin against God
 
->Colossians 3:5-11 (CSB) Therefore, put to death what belongs to your earthly nature: sexual immorality, impurity, lust, evil desire, and greed, which is idolatry. Because of these, God’s wrath is coming upon the disobedient, and you once walked in these things when you were living in them. But now, put away all the following: anger, wrath, malice, slander, and filthy language from your mouth. Do not lie to one another, since you have put off the old self with its practices and have put on the new self. You are being renewed in knowledge according to the image of your Creator. In Christ there is not Greek and Jew, circumcision and uncircumcision, barbarian, Scythian, slave and free; but Christ is all and in all.
+>Colossians 3:5-11 Therefore, put to death what belongs to your earthly nature: sexual immorality, impurity, lust, evil desire, and greed, which is idolatry. Because of these, God’s wrath is coming upon the disobedient, and you once walked in these things when you were living in them. But now, put away all the following: anger, wrath, malice, slander, and filthy language from your mouth. Do not lie to one another, since you have put off the old self with its practices and have put on the new self. You are being renewed in knowledge according to the image of your Creator. In Christ there is not Greek and Jew, circumcision and uncircumcision, barbarian, Scythian, slave and free; but Christ is all and in all.
 
->Psalm 51:1-5 (CSB) Be gracious to me, God,  
+>Psalm 51:1-5 Be gracious to me, God,  
 >according to your faithful love;  
 >according to your abundant compassion,  
 >blot out my rebellion.  
@@ -102,7 +102,7 @@ So many of the laws of God deals with how we are to treat other humans. Do not s
 
 ### Know that when we trust in Christ, we are cleansed from all sin
 
->Psalm 51:6-19 (CSB) Surely you desire integrity in the inner self,  
+>Psalm 51:6-19 Surely you desire integrity in the inner self,  
 >and you teach me wisdom deep within.  
 >Purify me with hyssop, and I will be clean;  
 >wash me, and I will be whiter than snow.  
@@ -135,23 +135,23 @@ So many of the laws of God deals with how we are to treat other humans. Do not s
 
 ### Know that because of Christ, we get to forgive one another
 
->Numbers 12:13-14 (CSB) Then Moses cried out to the LORD, “God, please heal her!”  
+>Numbers 12:13-14 Then Moses cried out to the LORD, “God, please heal her!”  
 >
 >The LORD answered Moses, “If her father had merely spit in her face, wouldn’t she remain in disgrace for seven days? Let her be confined outside the camp for seven days; after that she may be brought back in.”
 
->Matthew 6:12-15 (CSB) And forgive us our debts,  
+>Matthew 6:12-15 And forgive us our debts,  
 >as we also have forgiven our debtors.  
 >And do not bring us into temptation,  
 >but deliver us from the evil one.
 >
 >“For if you forgive others their offenses, your heavenly Father will forgive you as well. But if you don’t forgive others, your Father will not forgive your offenses.
 
->Luke 23:32-34 (CSB) Two others—criminals—were also led away to be executed with him. When they arrived at the place called The Skull, they crucified him there, along with the criminals, one on the right and one on the left. Then Jesus said, “Father, forgive them, because they do not know what they are doing.” And they divided his clothes and cast lots.
+>Luke 23:32-34 Two others—criminals—were also led away to be executed with him. When they arrived at the place called The Skull, they crucified him there, along with the criminals, one on the right and one on the left. Then Jesus said, “Father, forgive them, because they do not know what they are doing.” And they divided his clothes and cast lots.
 
 ### Know that because of Christ, we get to love one another
 
->John 13:34-35 (CSB) “I give you a new command: Love one another. Just as I have loved you, you are also to love one another. By this everyone will know that you are my disciples, if you love one another.”
+>John 13:34-35 “I give you a new command: Love one another. Just as I have loved you, you are also to love one another. By this everyone will know that you are my disciples, if you love one another.”
 
->Romans 12:10 (CSB) Love one another deeply as brothers and sisters. Take the lead in honoring one another.
+>Romans 12:10 Love one another deeply as brothers and sisters. Take the lead in honoring one another.
 
->1 John 4:7-11 (CSB) Dear friends, let us love one another, because love is from God, and everyone who loves has been born of God and knows God. The one who does not love does not know God, because God is love. God’s love was revealed among us in this way: God sent his one and only Son into the world so that we might live through him. Love consists in this: not that we loved God, but that he loved us and sent his Son to be the atoning sacrifice for our sins. Dear friends, if God loved us in this way, we also must love one another.
+>1 John 4:7-11 Dear friends, let us love one another, because love is from God, and everyone who loves has been born of God and knows God. The one who does not love does not know God, because God is love. God’s love was revealed among us in this way: God sent his one and only Son into the world so that we might live through him. Love consists in this: not that we loved God, but that he loved us and sent his Son to be the atoning sacrifice for our sins. Dear friends, if God loved us in this way, we also must love one another.

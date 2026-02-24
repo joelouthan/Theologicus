@@ -12,19 +12,19 @@ Now I know, in today's modern evangelicalism world, this is all old and passé. 
 
 In Acts 17, when Paul preaches the good news of Christ to the Greeks upon the Areopagus (also known as Mars Hill), he quotes their own poets and philosophers. He meets them where they are at and reveals who is behind what they think is the Unknown God. That is the true and only God who created the heavens and hell. And this God sent his only begotten Son, Jesus Christ, Son of God who is God, to take on flesh, live a perfect life, die a sinner's death, and rise again on the third day. And this Jesus is the only way to the Father.
 
->Acts 17:21 (CSB) Now all the Athenians and the foreigners residing there spent their time on nothing else but telling or hearing something new.
+>Acts 17:21 Now all the Athenians and the foreigners residing there spent their time on nothing else but telling or hearing something new.
 
 Some were interested but that could have been because they have never heard such a thing before. Some believed and followed.
 
 But some mocked and scoffed--because to them it was old news. They have heard it all before. They dismissed it because it didn't give them what they wanted: more of themselves and more of the world. They rejected it because it didn't answer their questions because they were asking the wrong questions.
 
->Acts 17:32 (CSB) When they heard about the resurrection of the dead, some began to ridicule him, but others said, “We’d like to hear from you again about this.”
+>Acts 17:32 When they heard about the resurrection of the dead, some began to ridicule him, but others said, “We’d like to hear from you again about this.”
 
 There is no new revelation. There is no new thing. There is no new prophecy. There is no new gospel. New good news is old heresy--every single time. And to declare that there is no new theology and no gospel fights against our modern mind. We have grown up thinking that we always have to be on the cutting edge of everything. We have to be the first to know. We have to be the first to see. We have to be the first to experience. We have to always be discovering everything. And in areas of science, medicine and technology, praise God for his revealed common grace.
 
 But what God has revealed about himself is as old as Genesis 1:1. And his great gospel is this:
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 Of all the religions, myths, fables, philosophies, and idealisms, there is only one that is true. And that is the gospel of Jesus Christ--that he live, died, rose again, and ascended to the right hand of the Father. And apart from all the other cults, sects, and religions, we know this to be true because it is an historical fact that happened over 2,000 years ago.
 
@@ -38,7 +38,7 @@ And with this creed, declare what they declared: that Jesus Christ is Lord.
 
 ## The Text
 
->Ephesians 4:10–16 (CSB)  
+>Ephesians 4:10–16  
 ><sup>10</sup> The one who descended is also the one who ascended far above all the heavens, to fill all things. 
 >
 ><sup>11</sup> And he himself gave some to be apostles, some prophets, some evangelists, some pastors and teachers, 
@@ -76,11 +76,11 @@ And with this creed, declare what they declared: that Jesus Christ is Lord.
 
 ## The Word
 
->Matthew 24:24-25 (CSB) For false messiahs and false prophets will arise and perform great signs and wonders to lead astray, if possible, even the elect. Take note: I have told you in advance.
+>Matthew 24:24-25 For false messiahs and false prophets will arise and perform great signs and wonders to lead astray, if possible, even the elect. Take note: I have told you in advance.
 
 ## The Belief
 
->Matthew 23:1–7 (CSB)  
+>Matthew 23:1–7  
 ><sup>1</sup> Then Jesus spoke to the crowds and to his disciples: 
 >
 ><sup>2</sup> “The scribes and the Pharisees are seated in the chair of Moses. 
@@ -101,12 +101,12 @@ And with this creed, declare what they declared: that Jesus Christ is Lord.
 
 ### What we believe is Biblical
 
->Matthew 4:4 (CSB) He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
+>Matthew 4:4 He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
 
 ## The Response
 
->Genesis 2:16-17 (CSB) And the LORD God commanded the man, “You are free to eat from any tree of the garden, but you must not eat from the tree of the knowledge of good and evil, for on the day you eat from it, you will certainly die.”
+>Genesis 2:16-17 And the LORD God commanded the man, “You are free to eat from any tree of the garden, but you must not eat from the tree of the knowledge of good and evil, for on the day you eat from it, you will certainly die.”
 
->Genesis 3:2-5 (CSB) The woman said to the serpent, “We may eat the fruit from the trees in the garden. But about the fruit of the tree in the middle of the garden, God said, ‘You must not eat it or touch it, or you will die.’ ” “No! You will certainly not die,” the serpent said to the woman. “In fact, God knows that when you eat it your eyes will be opened and you will be like God, knowing good and evil.”
+>Genesis 3:2-5 The woman said to the serpent, “We may eat the fruit from the trees in the garden. But about the fruit of the tree in the middle of the garden, God said, ‘You must not eat it or touch it, or you will die.’ ” “No! You will certainly not die,” the serpent said to the woman. “In fact, God knows that when you eat it your eyes will be opened and you will be like God, knowing good and evil.”
 
->Hosea 4:6 (CSB) My people are destroyed for lack of knowledge. Because you have rejected knowledge, I will reject you from serving as my priest. Since you have forgotten the law of your God, I will also forget your sons.
+>Hosea 4:6 My people are destroyed for lack of knowledge. Because you have rejected knowledge, I will reject you from serving as my priest. Since you have forgotten the law of your God, I will also forget your sons.

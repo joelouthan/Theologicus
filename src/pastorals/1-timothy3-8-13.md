@@ -4,7 +4,7 @@
 
 ## The Text
 
->1 Timothy 3:8–13 (CSB)  
+>1 Timothy 3:8–13  
 ><sup>8</sup> Deacons, likewise, should be worthy of respect, not hypocritical, not drinking a lot of wine, not greedy for money, 
 >
 ><sup>9</sup> holding the mystery of the faith with a clear conscience. 
@@ -23,13 +23,13 @@ What is a deacon?
 
 ### The first calling of deacons
 
->Acts 6:1-7 (CSB) In those days, as the disciples were increasing in number, there arose a complaint by the Hellenistic Jews against the Hebraic Jews that their widows were being overlooked in the daily distribution. The Twelve summoned the whole company of the disciples and said, “It would not be right for us to give up preaching the word of God to wait on tables. Brothers and sisters, select from among you seven men of good reputation, full of the Spirit and wisdom, whom we can appoint to this duty. But we will devote ourselves to prayer and to the ministry of the word.” This proposal pleased the whole company. So they chose Stephen, a man full of faith and the Holy Spirit, and Philip, Prochorus, Nicanor, Timon, Parmenas, and Nicolaus, a convert from Antioch. They had them stand before the apostles, who prayed and laid their hands on them.
+>Acts 6:1-7 In those days, as the disciples were increasing in number, there arose a complaint by the Hellenistic Jews against the Hebraic Jews that their widows were being overlooked in the daily distribution. The Twelve summoned the whole company of the disciples and said, “It would not be right for us to give up preaching the word of God to wait on tables. Brothers and sisters, select from among you seven men of good reputation, full of the Spirit and wisdom, whom we can appoint to this duty. But we will devote ourselves to prayer and to the ministry of the word.” This proposal pleased the whole company. So they chose Stephen, a man full of faith and the Holy Spirit, and Philip, Prochorus, Nicanor, Timon, Parmenas, and Nicolaus, a convert from Antioch. They had them stand before the apostles, who prayed and laid their hands on them.
 >
 >So the word of God spread, the disciples in Jerusalem increased greatly in number, and a large group of priests became obedient to the faith.
 
 In our modern day church, the title and calling of "deacon" might be synonymous with along the lines of taking care of things that would not be pastoral nor preaching. As the Apostles once said, "give up preaching of God to wait on tables." That does not mean deacons cannot teach, preach, and proclaim the gospel of Christ--for that is the Great Commission for all the believers of Christ:
 
->Acts 6:8-10 (CSB) Now Stephen, full of grace and power, was performing great wonders and signs among the people. Opposition arose, however, from some members of the Freedmen’s Synagogue, composed of both Cyrenians and Alexandrians, and some from Cilicia and Asia, and they began to argue with Stephen. But they were unable to stand up against his wisdom and the Spirit by whom he was speaking.
+>Acts 6:8-10 Now Stephen, full of grace and power, was performing great wonders and signs among the people. Opposition arose, however, from some members of the Freedmen’s Synagogue, composed of both Cyrenians and Alexandrians, and some from Cilicia and Asia, and they began to argue with Stephen. But they were unable to stand up against his wisdom and the Spirit by whom he was speaking.
 
 For whatever responsibilities Stephen may had have within the church, he continued on:
 
@@ -44,7 +44,7 @@ His opposition was so powerless, they resorted to killing Stephen--whose death w
 
 Saul would go on to say of his own ministry:
 
->Romans 15:17-19 (CSB) Therefore I have reason to boast in Christ Jesus regarding what pertains to God. For I would not dare say anything except what Christ has accomplished through me by word and deed for the obedience of the Gentiles, by the power of miraculous signs and wonders, and by the power of God’s Spirit. As a result, I have fully proclaimed the gospel of Christ from Jerusalem all the way around to Illyricum.
+>Romans 15:17-19 Therefore I have reason to boast in Christ Jesus regarding what pertains to God. For I would not dare say anything except what Christ has accomplished through me by word and deed for the obedience of the Gentiles, by the power of miraculous signs and wonders, and by the power of God’s Spirit. As a result, I have fully proclaimed the gospel of Christ from Jerusalem all the way around to Illyricum.
 
 Deacons, just like all Christians, are tasked with fulfilling what Christ has commissioned us to do. But because they are qualified, they might be responsible for more.
 
@@ -78,7 +78,7 @@ Some questions to ask:
 
 You would be shocked on how many Christians just casually explain away the mysteries of God. Paul warns us in Colossians:
 
->Colossians 2:8 (CSB) Be careful that no one takes you captive through philosophy and empty deceit based on human tradition, based on the elements of the world, rather than Christ.
+>Colossians 2:8 Be careful that no one takes you captive through philosophy and empty deceit based on human tradition, based on the elements of the world, rather than Christ.
 
 Sadly, being born in a particular time period, you cannot help but assume what you assume. Sometimes we don't know. But just because the everybody around you is trying to explain everything and fit everything in a nice little box, doesn't mean you should. We don't know because we are mere mortals and created imagebearers. We have finite minds. Don't be afraid of not knowing everything. That is the mark of any Christian.
 
@@ -114,16 +114,16 @@ Reputation, yes. But boldness of faith? Who can you think with boldness of faith
 
 This is the gospel: we are saved by God to God for God. Likewise, we are now saved to each other. We are to serve one another as we are to love one another.
 
->John 13:34-35 (CSB) “I give you a new command: Love one another. Just as I have loved you, you are also to love one another. By this everyone will know that you are my disciples, if you love one another.”
+>John 13:34-35 “I give you a new command: Love one another. Just as I have loved you, you are also to love one another. By this everyone will know that you are my disciples, if you love one another.”
 
->1 John 4:7-8 (CSB) Dear friends, let us love one another, because love is from God, and everyone who loves has been born of God and knows God. The one who does not love does not know God, because God is love.
+>1 John 4:7-8 Dear friends, let us love one another, because love is from God, and everyone who loves has been born of God and knows God. The one who does not love does not know God, because God is love.
 
 This is where Paul says in Romans 15 that he fulfills his ministry "by word and deed for the obedience of the Gentiles". By preaching of the word and the serving of one another. That is the Church of God through Christ Jesus by the power of the Holy Spirit.
 
 We cannot just be about talk. We must walk the talk:
 
->James 2:14 (CSB) What good is it, my brothers and sisters, if someone claims to have faith but does not have works? Can such faith save him?
+>James 2:14 What good is it, my brothers and sisters, if someone claims to have faith but does not have works? Can such faith save him?
 
 We are saved to obedience. In other words, by God's specific, saving grace of His Son, Jesus Christ by the power of the Holy Spirit, we get to be obedient to God. Out of our salvation, comes good works. For it says in Ephesians:
 
->Ephesians 2:8-10 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift— not from works, so that no one can boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
+>Ephesians 2:8-10 For you are saved by grace through faith, and this is not from yourselves; it is God’s gift— not from works, so that no one can boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.

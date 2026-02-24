@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 116 (CSB)  
+>Psalm 116  
 ><sup>1</sup> I love the LORD because he has heard my appeal for mercy. 
 >
 ><sup>2</sup> Because he has turned his ear to me, I will call out to him as long as I live. 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 126 (CSB)  
+>Psalm 126  
 ><sup></sup> A song of ascents. 
 >
 ><sup>1</sup> When the LORD restored the fortunes of Zion, we were like those who dream. 

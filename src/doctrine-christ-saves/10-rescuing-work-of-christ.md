@@ -58,7 +58,7 @@ My brothers and sisters, you have been free from the bondage of sin. Now, go and
 
 >Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
->Romans 6 (CSB)  
+>Romans 6  
 ><sup>1</sup> What should we say then? Should we continue in sin so that grace may multiply? 
 >
 ><sup>2</sup> Absolutely not! How can we who died to sin still live in it? 
@@ -127,7 +127,7 @@ My brothers and sisters, you have been free from the bondage of sin. Now, go and
 
 >Luke 12:5 But I will show you the one to fear: Fear him who has authority to throw people into hell after death. Yes, I say to you, this is the one to fear!
 
->Hosea 2:2–13 (CSB)  
+>Hosea 2:2–13  
 ><sup>2</sup> Rebuke your mother; rebuke her. For she is not my wife and I am not her husband. Let her remove the promiscuous look from her face and her adultery from between her breasts. 
 >
 ><sup>3</sup> Otherwise, I will strip her naked and expose her as she was on the day of her birth. I will make her like a desert and like a parched land, and I will let her die of thirst. 
@@ -154,7 +154,7 @@ My brothers and sisters, you have been free from the bondage of sin. Now, go and
 
 ### Saved by God 
 
->Hosea 2:14–15 (CSB)  
+>Hosea 2:14–15  
 ><sup>14</sup> Therefore, I am going to persuade her, lead her to the wilderness, and speak tenderly to her. 
 >
 ><sup>15</sup> There I will give her vineyards back to her and make the Valley of Achor into a gateway of hope. There she will respond as she did in the days of her youth, as in the day she came out of the land of Egypt.
@@ -223,7 +223,7 @@ My brothers and sisters, you have been free from the bondage of sin. Now, go and
 
 >Revelation 3:12 “The one who conquers I will make a pillar in the temple of my God, and he will never go out again. I will write on him the name of my God and the name of the city of my God—the new Jerusalem, which comes down out of heaven from my God—and my new name. 
 
->Hosea 2:16–23 (CSB)  
+>Hosea 2:16–23  
 ><sup>16</sup> In that day— this is the LORD’s declaration— you will call me, “My husband,” and no longer call me, “My Baal.” 
 >
 ><sup>17</sup> For I will remove the names of the Baals from her mouth; they will no longer be remembered by their names. 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 141 (CSB)  
+>Psalm 141  
 ><sup></sup> A psalm of David. 
 >
 ><sup>1</sup> LORD, I call on you; hurry to help me. Listen to my voice when I call on you. 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 60 (CSB)  
+>Psalm 60  
 >For the choir director: according to “The Lily of Testimony.” A Miktam of David for teaching. When he fought with Aram-naharaim and Aram-zobah, and Joab returned and struck Edom in Salt Valley, killing twelve thousand. 
 >
 ><sup>1</sup> God, you have rejected us; you have broken us down; you have been angry. Restore us! 

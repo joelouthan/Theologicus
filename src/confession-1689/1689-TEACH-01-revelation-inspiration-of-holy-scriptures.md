@@ -17,7 +17,7 @@
 
 ## The Text
 
->Matthew 4:1-4 (CSB) Then Jesus was led up by the Spirit into the wilderness to be tempted by the devil. After he had fasted forty days and forty nights, he was hungry. Then the tempter approached him and said, “If you are the Son of God, tell these stones to become bread.” **He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”**
+>Matthew 4:1-4 Then Jesus was led up by the Spirit into the wilderness to be tempted by the devil. After he had fasted forty days and forty nights, he was hungry. Then the tempter approached him and said, “If you are the Son of God, tell these stones to become bread.” **He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”**
 
 ## Prayer
 
@@ -48,7 +48,7 @@
 - His appearance--his existence with his creation changed all of history for all time.
 - It pleased the Father by the power of the Spirit to change the course of human history in such a way as this: to reveal God in the flesh--his only begotten Son, Jesus Christ, Son of God who is God:
 
->John 1:14 (CSB) The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth.
+>John 1:14 The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth.
 
 *4m*
 
@@ -58,7 +58,7 @@
 - Everything we know and see all around us--even if we never heard of God--testify that there is a God
 - So God, fully perfect, fully good, fully holy, and fully merciful and love, did this one blessed and wonderful thing: in his great love for the world, he revealed himself by sending his only begotten Son, Jesus Christ our Lord, Savior, and King.
 
->John 1:18 (CSB) No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
+>John 1:18 No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side—he has revealed him.
 
 - God did reveal himself.
 - We are all without excuse.
@@ -93,7 +93,7 @@ Today, in our first session of RTC's inaugural mini conference, we are going to 
 >2 Timothy 3:16-17 (CSB)
 All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
 
->Matthew 4:4 (CSB) He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
+>Matthew 4:4 He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
 
 - The words contained in this Bible, in the order that they were put together, constructed to form complete and coherent thoughts, ideas, statements, instructions, and proclamations come directly from and inspired by the Almighty God himself.
 - That it please the Father in different times, through the power of the Spirit, to inspire authors to write about his only begotten Son, Jesus Christ.
@@ -126,9 +126,9 @@ All Scripture is inspired by God and is profitable for teaching, for rebuking, f
 
 - From the Old to the New Testament, from Genesis to Revelation, never forget, all of the Scriptures are about the Lord Jesus Christ. For it is Christ, the Son of God who is God said:
 
->John 5:39 (CSB) You pore over the Scriptures because you think you have eternal life in them, and yet they testify about me.
+>John 5:39 You pore over the Scriptures because you think you have eternal life in them, and yet they testify about me.
 
->Luke 24:26-27 (CSB) Wasn’t it necessary for the Messiah to suffer these things and enter into his glory? ” Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
+>Luke 24:26-27 Wasn’t it necessary for the Messiah to suffer these things and enter into his glory? ” Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
 
 - It has been said, rightfully so, that the Old Testament is Christ concealed and the New Testament is Christ revealed.
 - Why is that a true saying?
@@ -142,7 +142,7 @@ All Scripture is inspired by God and is profitable for teaching, for rebuking, f
 
 To sum up the books of the Bible, let me give you a pro tip: If you are digging in the Bible hoping for eternal life, then pay attention to what the Bible is actually saying, "Look to the Christ!":
 
->John 3:14–15 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
+>John 3:14–15 “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
 
 ### 1689.1.3 On The Apocrypha of the Holy Scriptures
 
@@ -199,7 +199,7 @@ So what? That's all well and good. If I trust and believe in Jesus Christ, what 
 - I awestruck.
 - What do you say to someone who has little or no knowledge of the word of God.
 
->Matthew 19:4-6 (CSB) “Haven’t you read,” he replied, “that he who created them in the beginning made them male and female, and he also said, ‘For this reason a man will leave his father and mother and be joined to his wife, and the two will become one flesh’? So they are no longer two, but one flesh. Therefore, what God has joined together, let no one separate.”
+>Matthew 19:4-6 “Haven’t you read,” he replied, “that he who created them in the beginning made them male and female, and he also said, ‘For this reason a man will leave his father and mother and be joined to his wife, and the two will become one flesh’? So they are no longer two, but one flesh. Therefore, what God has joined together, let no one separate.”
 
 It's right there. Clear as a bell. You and I see this as, "that's the answer!" Here's one response I got: "Well, Jesus didn't say it is *not* not between man and man or woman and woman."
 
@@ -224,7 +224,7 @@ It is the exact same Bible that tells us how infinitely far we are in our deprav
 
 2\. Try to remove the Bible, the Bible lives forever
 
->Isaiah 55:10-11 (CSB) For just as rain and snow fall from heaven  
+>Isaiah 55:10-11 For just as rain and snow fall from heaven  
 >and do not return there  
 >without saturating the earth  
 >and making it germinate and sprout,  
@@ -239,7 +239,7 @@ It is the exact same Bible that tells us how infinitely far we are in our deprav
 - Burn all Bibles? His promises are steadfast because Christ is the yes and amen to all the promises of God. Satan, demons, and mankind tried to kill him but he rose again from the dead.
 - Delete the entire Bible from the internet. Guess what? You can't eradicate it. The Bible does not come from man but from the Infinite God. 
 
->Romans 10:17 (CSB) So faith comes from what is heard, and what is heard comes through the message about Christ.
+>Romans 10:17 So faith comes from what is heard, and what is heard comes through the message about Christ.
 
 - The Holy Scriptures are about the Christ. We will always have the Scriptures because his people are saved by hearing the message of Christ preached.
 - The Bible will never die because God is the God of the everlasting.
@@ -266,7 +266,7 @@ And here is some good news:
 
 And here is some good news:
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 And here is some good news:
 
@@ -279,7 +279,7 @@ And here is the love of God for you and me:
 - If faith comes from hearing and hearing from the message of Christ, then it would stand to reason we should hear the message of Christ from the Christ.
 - Would you agree?
 
->Luke 18:9-14 (CSB) He also told this parable to some who trusted in themselves that they were righteous and looked down on everyone else: “Two men went up to the temple to pray, one a Pharisee and the other a tax collector. The Pharisee was standing and praying like this about himself: ‘God, I thank you that I’m not like other people — greedy, unrighteous, adulterers, or even like this tax collector. I fast twice a week; I give a tenth of everything I get.’
+>Luke 18:9-14 He also told this parable to some who trusted in themselves that they were righteous and looked down on everyone else: “Two men went up to the temple to pray, one a Pharisee and the other a tax collector. The Pharisee was standing and praying like this about himself: ‘God, I thank you that I’m not like other people — greedy, unrighteous, adulterers, or even like this tax collector. I fast twice a week; I give a tenth of everything I get.’
 “But the tax collector, standing far off, would not even raise his eyes to heaven but kept striking his chest and saying, **‘God, have mercy on me, a sinner! ’**
 
 - Look at what Christ declares
@@ -290,7 +290,7 @@ And here is the love of God for you and me:
 - Call upon his name and you will be saved
 - Why?
 
->Lamentations 3:22-24 (CSB)  
+>Lamentations 3:22-24  
 >Because of the LORD’s faithful love  
 >we do not perish,  
 >for his mercies never end.  

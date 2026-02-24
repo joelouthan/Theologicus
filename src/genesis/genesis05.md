@@ -4,7 +4,7 @@
 
 ## The Text
 
->Genesis 5 (CSB) This is the document containing the family records of Adam. On the day that God created man, he made him in the likeness of God;he created them male and female. When they were created, he blessed them and called them mankind.
+>Genesis 5 This is the document containing the family records of Adam. On the day that God created man, he made him in the likeness of God;he created them male and female. When they were created, he blessed them and called them mankind.
 >
 >3 Adam was 130 years old when he fathered a son in his likeness, according to his image, and named him Seth. Adam lived 800 years after he fathered Seth, and he fathered other sons and daughters. So Adam’s life lasted 930 years; then he died.
 >
@@ -28,7 +28,7 @@
 
 ## The Support
 
->Luke 3:36-38 (CSB) son of Noah,  
+>Luke 3:36-38 son of Noah,  
 >son of Lamech,son of Methuselah,  
 >son of Enoch, son of Jared,  
 >son of Mahalalel, son of Cainan,  
@@ -45,18 +45,18 @@ He can do whatever he wants and he does as he pleased.
 
 But through it all, no matter how sinful and treasonous our responses and actions might be, God is still merciful. It does not matter if we get it right or not, God is gracious and kind and he is inviting us not get it right or figure it out, but "come and see" the glory of God--Jesus Christ. (John 1:46)
 
-## The Gospel
+## His Gospel
 
 From:
 
->Genesis 3:15 (CSB) I will put hostility between you and the woman,  
+>Genesis 3:15 I will put hostility between you and the woman,  
 >and between your offspring and her offspring.  
 >He will strike your head,  
 >and you will strike his heel.
 
 to:
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 God was going to be sin for man so that we might be the righteousness of God. (2 Corinthians 5:21)
 
@@ -95,7 +95,7 @@ Who is the only one?
 
 ### We are to put our faith in the one gives us rest by living and dying for us
 
->Romans 5:6-11 (CSB) For while we were still helpless, at the right time, Christ died for the ungodly. For rarely will someone die for a just person—though for a good person perhaps someone might even dare to die. But God proves his own love for us in that while we were still sinners, Christ died for us. How much more then, since we have now been justified by his blood, will we be saved through him from wrath. For if, while we were enemies, we were reconciled to God through the death of his Son, then how much more, having been reconciled, will we be saved by his life. And not only that, but we also boast in God through our Lord Jesus Christ, through whom we have now received this reconciliation.
+>Romans 5:6-11 For while we were still helpless, at the right time, Christ died for the ungodly. For rarely will someone die for a just person—though for a good person perhaps someone might even dare to die. But God proves his own love for us in that while we were still sinners, Christ died for us. How much more then, since we have now been justified by his blood, will we be saved through him from wrath. For if, while we were enemies, we were reconciled to God through the death of his Son, then how much more, having been reconciled, will we be saved by his life. And not only that, but we also boast in God through our Lord Jesus Christ, through whom we have now received this reconciliation.
 
 Christ is the only one who has proven his love for us.
 
@@ -107,15 +107,15 @@ Christ is the only one who can reconcile us to God with his death.
 
 Christ is the only one who can saved us by his life.
 
->Genesis 5:21-24 (CSB) Enoch was 65 years old when he fathered Methuselah. And after he fathered Methuselah, Enoch walked with God 300 years and fathered other sons and daughters. So Enoch’s life lasted 365 years. Enoch walked with God; then he was not there because God took him.
+>Genesis 5:21-24 Enoch was 65 years old when he fathered Methuselah. And after he fathered Methuselah, Enoch walked with God 300 years and fathered other sons and daughters. So Enoch’s life lasted 365 years. Enoch walked with God; then he was not there because God took him.
 
 People might think it is amazing that God took up Enoch in an instant. Even the author of Hebrews would agreed.
 
->Hebrews 11:5-6 (CSB) By faith Enoch was taken away, and so he did not experience death. He was not to be found because God took him away. For before he was taken away, he was approved as one who pleased God. Now without faith it is impossible to please God, since the one who draws near to him must believe that he exists and that he rewards those who seek him.
+>Hebrews 11:5-6 By faith Enoch was taken away, and so he did not experience death. He was not to be found because God took him away. For before he was taken away, he was approved as one who pleased God. Now without faith it is impossible to please God, since the one who draws near to him must believe that he exists and that he rewards those who seek him.
 
 But what was more amazing that the Bible says this about Enoch, "that he walked with God".
 
->Jude 1:14-16 (CSB) It was about these that Enoch, in the seventh generation from Adam, prophesied: “Look! The Lord comes with tens of thousands of his holy onesto execute judgment on all and to convict all the ungodly concerning all the ungodly acts that they have done in an ungodly way, and concerning all the harsh things ungodly sinners have said against him.”These people are discontented grumblers, living according to their desires; their mouths utter arrogant words, flattering people for their own advantage.
+>Jude 1:14-16 It was about these that Enoch, in the seventh generation from Adam, prophesied: “Look! The Lord comes with tens of thousands of his holy onesto execute judgment on all and to convict all the ungodly concerning all the ungodly acts that they have done in an ungodly way, and concerning all the harsh things ungodly sinners have said against him.”These people are discontented grumblers, living according to their desires; their mouths utter arrogant words, flattering people for their own advantage.
 
 Enoch preached the gospel of God to "people are discontented grumblers, living according to their desires; their mouths utter arrogant words, flattering people for their own advantage."
 

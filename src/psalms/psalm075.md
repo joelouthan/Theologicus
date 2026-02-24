@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 75 (CSB)  
+>Psalm 75  
 ><sup></sup> For the choir director: “Do Not Destroy.” A psalm of Asaph. A song. 
 >
 ><sup>1</sup> We give thanks to you, God; we give thanks to you, for your name is near. People tell about your wondrous works. 

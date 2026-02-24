@@ -6,7 +6,7 @@
 
 ## The Saved: Christ is the Object of Our Faith
 
->Luke 7:1–10 (CSB) When he had concluded saying all this to the people who were listening, he entered Capernaum. A centurion’s servant, who was highly valued by him, was sick and about to die. When the centurion heard about Jesus, he sent some Jewish elders to him, requesting him to come and save the life of his servant. When they reached Jesus, they pleaded with him earnestly, saying, “He is worthy for you to grant this, because he loves our nation and has built us a synagogue.”
+>Luke 7:1–10 When he had concluded saying all this to the people who were listening, he entered Capernaum. A centurion’s servant, who was highly valued by him, was sick and about to die. When the centurion heard about Jesus, he sent some Jewish elders to him, requesting him to come and save the life of his servant. When they reached Jesus, they pleaded with him earnestly, saying, “He is worthy for you to grant this, because he loves our nation and has built us a synagogue.”
 >
 >Jesus went with them, and when he was not far from the house, the centurion sent friends to tell him, “Lord, don’t trouble yourself, since I am not worthy to have you come under my roof. That is why I didn’t even consider myself worthy to come to you. But say the word, and my servant will be healed. For I too am a man placed under authority, having soldiers under my command. I say to this one, ‘Go,’ and he goes; and to another, ‘Come,’ and he comes; and to my servant, ‘Do this,’ and he does it.”
 >
@@ -18,13 +18,13 @@ If God says he will do it, won't he do it?
 
 ## The Saved: Christ is our Compassion
 
->Luke 7:11–17 (CSB) Afterward he was on his way to a town called Nain. His disciples and a large crowd were traveling with him.  Just as he neared the gate of the town, a dead man was being carried out. He was his mother’s only son, and she was a widow. A large crowd from the town was also with her.  When the Lord saw her, he had compassion on her and said, “Don’t weep.”  Then he came up and touched the open coffin, and the pallbearers stopped. And he said, “Young man, I tell you, get up!”  The dead man sat up and began to speak, and Jesus gave him to his mother.  Then fear came over everyone, and they glorified God, saying, “A great prophet has risen among us,” and “God has visited his people.”  This report about him went throughout Judea and all the vicinity.
+>Luke 7:11–17 Afterward he was on his way to a town called Nain. His disciples and a large crowd were traveling with him.  Just as he neared the gate of the town, a dead man was being carried out. He was his mother’s only son, and she was a widow. A large crowd from the town was also with her.  When the Lord saw her, he had compassion on her and said, “Don’t weep.”  Then he came up and touched the open coffin, and the pallbearers stopped. And he said, “Young man, I tell you, get up!”  The dead man sat up and began to speak, and Jesus gave him to his mother.  Then fear came over everyone, and they glorified God, saying, “A great prophet has risen among us,” and “God has visited his people.”  This report about him went throughout Judea and all the vicinity.
 
 If God doesn't give us a new heart and new life, can we even obey God?
 
 ## The Saved: Christ is Our Savior
 
->Luke 7:18–30 (CSB) Then John’s disciples told him about all these things. So John summoned two of his disciples  and sent them to the Lord, asking, “Are you the one who is to come, or should we expect someone else?”
+>Luke 7:18–30 Then John’s disciples told him about all these things. So John summoned two of his disciples  and sent them to the Lord, asking, “Are you the one who is to come, or should we expect someone else?”
 >
 >When the men reached him, they said, “John the Baptist sent us to ask you, ‘Are you the one who is to come, or should we expect someone else?’ ”
 >
@@ -44,7 +44,7 @@ How should we respond to prophets? Should we take them at their word or is there
 
 ## The Saved: Christ is Our Righteousness
 
->Luke 7:29–30 (CSB) (And when all the people, including the tax collectors, heard this, they acknowledged God’s way of righteousness, because they had been baptized with John’s baptism.  But since the Pharisees and experts in the law had not been baptized by him, they rejected the plan of God for themselves.)
+>Luke 7:29–30 (And when all the people, including the tax collectors, heard this, they acknowledged God’s way of righteousness, because they had been baptized with John’s baptism.  But since the Pharisees and experts in the law had not been baptized by him, they rejected the plan of God for themselves.)
 
 Why would anybody reject God?
 
@@ -52,7 +52,7 @@ Why would you reject God?
 
 ## The Saved: Christ is our Vindication
 
->Luke 7:31–35 (CSB) “To what then should I compare the people of this generation, and what are they like?  They are like children sitting in the marketplace and calling to each other:
+>Luke 7:31–35 “To what then should I compare the people of this generation, and what are they like?  They are like children sitting in the marketplace and calling to each other:
 >
 >We played the flute for you,  
 >but you didn’t dance;  
@@ -67,7 +67,7 @@ How does God respond to our cries?
 
 ## The Saved: Christ is Our Anointing
 
->Luke 7:36–50 (CSB) Then one of the Pharisees invited him to eat with him. He entered the Pharisee’s house and reclined at the table.  And a woman in the town who was a sinner found out that Jesus was reclining at the table in the Pharisee’s house. She brought an alabaster jar of perfume  and stood behind him at his feet, weeping, and began to wash his feet with her tears. She wiped his feet with her hair, kissing them and anointing them with the perfume.
+>Luke 7:36–50 Then one of the Pharisees invited him to eat with him. He entered the Pharisee’s house and reclined at the table.  And a woman in the town who was a sinner found out that Jesus was reclining at the table in the Pharisee’s house. She brought an alabaster jar of perfume  and stood behind him at his feet, weeping, and began to wash his feet with her tears. She wiped his feet with her hair, kissing them and anointing them with the perfume.
 >
 >When the Pharisee who had invited him saw this, he said to himself, “This man, if he were a prophet, would know who and what kind of woman this is who is touching him—she’s a sinner!”
 >
@@ -88,4 +88,4 @@ How does God respond to our cries?
 As believers, what is the first thing we must do?
 
 
->2 Corinthians 5:21 (CSB)  He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+>2 Corinthians 5:21  He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.

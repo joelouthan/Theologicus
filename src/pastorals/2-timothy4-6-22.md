@@ -4,7 +4,7 @@
 
 ## The Text
 
->2 Timothy 4:6–22 (CSB)  
+>2 Timothy 4:6–22  
 ><sup> 6 </sup> For I am already being poured out as a drink offering, and the time for my departure is close. 
 >
 ><sup> 7 </sup> I have fought the good fight, I have finished the race, I have kept the faith. 
@@ -45,23 +45,23 @@
 
 ### Glorified by God: there is an end of our time here our earth and it is so short
 
->Job 7:1 (CSB) Isn’t each person consigned to forced labor on earth?
+>Job 7:1 Isn’t each person consigned to forced labor on earth?
 Are not his days like those of a hired worker?
 
->Job 14:5-6 (CSB) Since a person’s days are determined
+>Job 14:5-6 Since a person’s days are determined
 and the number of his months depends on you,
 and since you have set limits he cannot pass,
 look away from him and let him rest
 so that he can enjoy his day like a hired worker.
 
->Hebrews 9:27 (CSB) And just as it is appointed for people to die once—and after this, judgment—
+>Hebrews 9:27 And just as it is appointed for people to die once—and after this, judgment—
 
->Hosea 13:3 (CSB) Therefore, they will be like the morning mist,
+>Hosea 13:3 Therefore, they will be like the morning mist,
 like the early dew that vanishes,
 like chaff blown from a threshing floor,
 or like smoke from a window.
 
->James 4:14 (CSB) Yet you do not know what tomorrow will bring—what your life will be! For you are like vapor that appears for a little while, then vanishes.
+>James 4:14 Yet you do not know what tomorrow will bring—what your life will be! For you are like vapor that appears for a little while, then vanishes.
 
 There is no denying this. Most people think that their time here on earth is much too short. But it is too short. For the lost of our love ones, we wish we could hold them one more time and say, "I love you one more time." 
 
@@ -73,22 +73,22 @@ So many of my family members quickly dying--40s, 50s, 60s--never loving God neve
 
 ### Glorified by God: to those who are his people, Christ has given us his righteousness and his life forever
 
->Romans 9:25-26 (CSB) As it also says in Hosea,
+>Romans 9:25-26 As it also says in Hosea,
 I will call Not My People, My People,
 and she who is Unloved, Beloved.
 And it will be in the place where they were told,
 you are not my people,
 there they will be called sons of the living God.
 
->2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+>2 Corinthians 5:21 He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
->John 1:12-13 (CSB) But to all who did receive him, he gave them the right to be children of God, to those who believe in his name, who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
+>John 1:12-13 But to all who did receive him, he gave them the right to be children of God, to those who believe in his name, who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
 
 ><sup> 9 </sup> Make every effort to come to me soon, because Demas has deserted me, since he loved this present world, and has gone to Thessalonica. Crescens has gone to Galatia, Titus to Dalmatia. 
 
 ### Glorified by God: people will come and go but the presence, peace, and the grip of the love of God will be on you through death
 
->John 10:25-30 (CSB) “I did tell you and you don’t believe,” Jesus answered them. “The works that I do in my Father’s name testify about me. But you don’t believe because you are not of my sheep. My sheep hear my voice, I know them, and they follow me. I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
+>John 10:25-30 “I did tell you and you don’t believe,” Jesus answered them. “The works that I do in my Father’s name testify about me. But you don’t believe because you are not of my sheep. My sheep hear my voice, I know them, and they follow me. I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
 
 Let have Octavius Winslow say it best:
 
@@ -102,9 +102,9 @@ Christ's death means that you get to live forever. Christ's sacrifice means that
 
 ### Glorified by God: the saints of God will see you coming and receiving into the glory of God
 
->Genesis 25:7-9 (CSB) This is the length of Abraham’s life: 175 years. He took his last breath and died at a good old age, old and contented, and he was gathered to his people. His sons Isaac and Ishmael buried him in the cave of Machpelah near Mamre, in the field of Ephron son of Zohar the Hethite.
+>Genesis 25:7-9 This is the length of Abraham’s life: 175 years. He took his last breath and died at a good old age, old and contented, and he was gathered to his people. His sons Isaac and Ishmael buried him in the cave of Machpelah near Mamre, in the field of Ephron son of Zohar the Hethite.
 
->Hebrews 12:1-2 (CSB) Therefore, since we also have such a large cloud of witnesses surrounding us, let us lay aside every hindrance and the sin that so easily ensnares us. Let us run with endurance the race that lies before us, keeping our eyes on Jesus, the pioneer and perfecter of our faith. For the joy that lay before him, he endured the cross, despising the shame, and sat down at the right hand of the throne of God.
+>Hebrews 12:1-2 Therefore, since we also have such a large cloud of witnesses surrounding us, let us lay aside every hindrance and the sin that so easily ensnares us. Let us run with endurance the race that lies before us, keeping our eyes on Jesus, the pioneer and perfecter of our faith. For the joy that lay before him, he endured the cross, despising the shame, and sat down at the right hand of the throne of God.
 
 Only the people of God will witness your end. If you think you are alone, you are never alone when you have the fullness of God. If your life ends with no witness, I promise you that God will receive you into his glory and all of his people--from Adam to Noah to Abraham to Isaac to Jacob to Joseph to Moses to Deborah, Gideon, Ruth, Jesse, David, Solomon all the way to the Apostles and all the saints before--will get to welcome you home into the arms of the Savior where you belong.
 
@@ -118,22 +118,22 @@ Equipping, encouraging, blessing others so that they can take the good news of t
 
 ### Glorified by God: God is your All-in-all in life and in the death
 
->Psalm 16:5-6 (CSB) LORD, you are my portion
+>Psalm 16:5-6 LORD, you are my portion
 and my cup of blessing;
 you hold my future.
 The boundary lines have fallen for me
 in pleasant places;
 indeed, I have a beautiful inheritance.
 
->Psalm 68:6 (CSB) God provides homes for those who are deserted.
+>Psalm 68:6 God provides homes for those who are deserted.
 He leads out the prisoners to prosperity,
 but the rebellious live in a scorched land.
 
->1 Kings 17:1-7 (CSB) Now Elijah the Tishbite, from the Gilead settlers, said to Ahab, “As the LORD God of Israel lives, in whose presence I stand, there will be no dew or rain during these years except by my command!” Then the word of the LORD came to him: “Leave here, turn eastward, and hide at the Wadi Cherith where it enters the Jordan. You are to drink from the wadi. I have commanded the ravens to provide for you there.” So he proceeded to do what the LORD commanded. Elijah left and lived at the Wadi Cherith where it enters the Jordan. The ravens kept bringing him bread and meat in the morning and in the evening, and he would drink from the wadi. After a while, the wadi dried up because there had been no rain in the land.
+>1 Kings 17:1-7 Now Elijah the Tishbite, from the Gilead settlers, said to Ahab, “As the LORD God of Israel lives, in whose presence I stand, there will be no dew or rain during these years except by my command!” Then the word of the LORD came to him: “Leave here, turn eastward, and hide at the Wadi Cherith where it enters the Jordan. You are to drink from the wadi. I have commanded the ravens to provide for you there.” So he proceeded to do what the LORD commanded. Elijah left and lived at the Wadi Cherith where it enters the Jordan. The ravens kept bringing him bread and meat in the morning and in the evening, and he would drink from the wadi. After a while, the wadi dried up because there had been no rain in the land.
 
->Matthew 6:7-8 (CSB) When you pray, don’t babble like the Gentiles, since they imagine they’ll be heard for their many words. Don’t be like them, because your Father knows the things you need before you ask him.
+>Matthew 6:7-8 When you pray, don’t babble like the Gentiles, since they imagine they’ll be heard for their many words. Don’t be like them, because your Father knows the things you need before you ask him.
 
->Matthew 6:31-34 (CSB) So don’t worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’ For the Gentiles eagerly seek all these things, and your heavenly Father knows that you need them. But seek first the kingdom of God and his righteousness, and all these things will be provided for you. Therefore don’t worry about tomorrow, because tomorrow will worry about itself. Each day has enough trouble of its own.
+>Matthew 6:31-34 So don’t worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’ For the Gentiles eagerly seek all these things, and your heavenly Father knows that you need them. But seek first the kingdom of God and his righteousness, and all these things will be provided for you. Therefore don’t worry about tomorrow, because tomorrow will worry about itself. Each day has enough trouble of its own.
 
 You and I need God today. You and I need God tomorrow. You and I need God to live. You and I need God forever.
 
@@ -143,15 +143,15 @@ For your life and your soul and your spirit to live eternally, you will need God
 
 ### Glorified by God: your enemies were never your enemies--they didn't determine you are in God
 
->Colossians 2:15 (CSB) He disarmed the rulers and authorities and disgraced them publicly; he triumphed over them in him.
+>Colossians 2:15 He disarmed the rulers and authorities and disgraced them publicly; he triumphed over them in him.
 
->Ephesians 6:10-12 (CSB) Finally, be strengthened by the Lord and by his vast strength. Put on the full armor of God so that you can stand against the schemes of the devil. For our struggle is not against flesh and blood, but against the rulers, against the authorities, against the cosmic powers of this darkness, against evil, spiritual forces in the heavens
+>Ephesians 6:10-12 Finally, be strengthened by the Lord and by his vast strength. Put on the full armor of God so that you can stand against the schemes of the devil. For our struggle is not against flesh and blood, but against the rulers, against the authorities, against the cosmic powers of this darkness, against evil, spiritual forces in the heavens
 
 ## The Gospel
 
 Nor can they ever separate you from his love:
 
->Romans 8:36-39 (CSB) s it is written:  
+>Romans 8:36-39 s it is written:  
 >Because of you  
 >we are being put to death all day long;  
 >we are counted as sheep to be slaughtered.  
@@ -167,13 +167,13 @@ What are we charged and commissioned by God to do: preach the word. Be ready in 
 
 ### Glorified by God: He brings us all the way home
 
->Romans 8:28-30 (CSB) We know that all things work together for the good of those who love God, who are called according to his purpose. For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
+>Romans 8:28-30 We know that all things work together for the good of those who love God, who are called according to his purpose. For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters. And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
 
 ><sup> 19 </sup> Greet Prisca and Aquila, and the household of Onesiphorus. ><sup> 20 </sup> Erastus has remained at Corinth; I left Trophimus sick at Miletus. <sup> 21 </sup> Make every effort to come before winter. Eubulus greets you, as do Pudens, Linus, Claudia, and all the brothers and sisters. 
 
 ### Glorified by God: Don't live in isolation
 
->Hebrews 10:24-25 (CSB) And let us consider one another in order to provoke love and good works, not neglecting to gather together, as some are in the habit of doing, but encouraging each other, and all the more as you see the day approaching.
+>Hebrews 10:24-25 And let us consider one another in order to provoke love and good works, not neglecting to gather together, as some are in the habit of doing, but encouraging each other, and all the more as you see the day approaching.
 
 I have preached it time and time again: the gospel calls us to God and to one another. We are love one another. Don't forsake going to church. I know that nowadays that is easier said than done. But be innocent as doves and wise as serpents: there are ways around it and continue to be safe.
 

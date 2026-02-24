@@ -4,7 +4,7 @@
 
 ## The Text
 
->1 Timothy 6:17–19 (CSB)  
+>1 Timothy 6:17–19  
 ><sup>17</sup> Instruct those who are rich in the present age not to be arrogant or to set their hope on the uncertainty of wealth, but on God, who richly provides us with all things to enjoy. 
 >
 ><sup>18</sup> Instruct them to do what is good, to be rich in good works, to be generous and willing to share, 
@@ -13,7 +13,7 @@
 
 ## The Meditation
 
->1 Timothy 6:17-19 (CSB) Instruct those who are rich in the present age not to be arrogant or to set their hope on the uncertainty of wealth, but on God, who richly provides us with all things to enjoy.
+>1 Timothy 6:17-19 Instruct those who are rich in the present age not to be arrogant or to set their hope on the uncertainty of wealth, but on God, who richly provides us with all things to enjoy.
 
 ### We are rich
 
@@ -23,7 +23,7 @@ We are not to put our hope in anything else but Christ our Lord. And I don't car
 
 "Today, I will hope in God. Whatever circumstances and the world might do, I will put my hope in God." And then we wake up the next morning and look at Twitter or the news or read this article and go down this rabbit trail of "investigation". We all struggle with it. And it is nuts.
 
->Romans 8:18-25 (CSB) For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us. 19 For the creation eagerly waits with anticipation for God’s sons to be revealed. 20 For the creation was subjected to futility—not willingly, but because of him who subjected it—in the hope 21 that the creation itself will also be set free from the bondage to decay into the glorious freedom of God’s children. 22 For we know that the whole creation has been groaning together with labor pains until now. 23 Not only that, but we ourselves who have the Spirit as the firstfruits—we also groan within ourselves, eagerly waiting for adoption, the redemption of our bodies. 24 Now in this hope we were saved, but hope that is seen is not hope, because who hopes for what he sees? 25 Now if we hope for what we do not see, we eagerly wait for it with patience.
+>Romans 8:18-25 For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us. 19 For the creation eagerly waits with anticipation for God’s sons to be revealed. 20 For the creation was subjected to futility—not willingly, but because of him who subjected it—in the hope 21 that the creation itself will also be set free from the bondage to decay into the glorious freedom of God’s children. 22 For we know that the whole creation has been groaning together with labor pains until now. 23 Not only that, but we ourselves who have the Spirit as the firstfruits—we also groan within ourselves, eagerly waiting for adoption, the redemption of our bodies. 24 Now in this hope we were saved, but hope that is seen is not hope, because who hopes for what he sees? 25 Now if we hope for what we do not see, we eagerly wait for it with patience.
 
 ><sup> 18 </sup>Instruct them to do what is good to be rich in good works to be generous and willing to share
 
@@ -37,7 +37,7 @@ Not prosperity - we have to deal with 2 Corinthians 8 & 9--another episode.
 
 ## The Gospel
 
->Mark 12:41-44 (CSB) Sitting across from the temple treasury, he watched how the crowd dropped money into the treasury. Many rich people were putting in large sums. 42 Then a poor widow came and dropped in two tiny coins worth very little. 43 Summoning his disciples, he said to them, “Truly I tell you, this poor widow has put more into the treasury than all the others. 44 For they all gave out of their surplus, but she out of her poverty has put in everything she had —all she had to live on.”
+>Mark 12:41-44 Sitting across from the temple treasury, he watched how the crowd dropped money into the treasury. Many rich people were putting in large sums. 42 Then a poor widow came and dropped in two tiny coins worth very little. 43 Summoning his disciples, he said to them, “Truly I tell you, this poor widow has put more into the treasury than all the others. 44 For they all gave out of their surplus, but she out of her poverty has put in everything she had —all she had to live on.”
 
 What is the difference between this poor widow versus an unrepentant believer who gave a ga-billion dollars to the same church?
 

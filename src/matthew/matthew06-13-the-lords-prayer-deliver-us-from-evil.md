@@ -9,7 +9,7 @@
 ## The Devotion
 ## Pray Then Like This
 
->Matthew 6:13 (CSB) And do not bring us into temptation, but deliver us from the evil one.
+>Matthew 6:13 And do not bring us into temptation, but deliver us from the evil one.
 
 If we are going to pray like the Son of God because we are sons of God, we have to listen and obey what he says.
 
@@ -35,19 +35,19 @@ Now, instead of focusing on the nuances and trying to see what God will or will 
 
 ### Christ is merciful
 
->1 Corinthians 10:13 (CSB) No temptation has come upon you except what is common to humanity. But God is faithful; he will not allow you to be tempted beyond what you are able, but with the temptation he will also provide the way out so that you may be able to bear it.
+>1 Corinthians 10:13 No temptation has come upon you except what is common to humanity. But God is faithful; he will not allow you to be tempted beyond what you are able, but with the temptation he will also provide the way out so that you may be able to bear it.
 
 ### Christ is good
 
->James 1:13-15 (CSB) No one undergoing a trial should say, “I am being tempted by God,” since God is not tempted by evil, and he himself doesn’t tempt anyone. But each person is tempted when he is drawn away and enticed by his own evil desire. Then after desire has conceived, it gives birth to sin, and when sin is fully grown, it gives birth to death.
+>James 1:13-15 No one undergoing a trial should say, “I am being tempted by God,” since God is not tempted by evil, and he himself doesn’t tempt anyone. But each person is tempted when he is drawn away and enticed by his own evil desire. Then after desire has conceived, it gives birth to sin, and when sin is fully grown, it gives birth to death.
 
 ### Christ is vulnerable
 
->Hebrews 4:14-15 (CSB) Therefore, since we have a great high priest who has passed through the heavens—Jesus the Son of God—let us hold fast to our confession. 15 For we do not have a high priest who is unable to sympathize with our weaknesses, but one who has been tempted in every way as we are, yet without sin.
+>Hebrews 4:14-15 Therefore, since we have a great high priest who has passed through the heavens—Jesus the Son of God—let us hold fast to our confession. 15 For we do not have a high priest who is unable to sympathize with our weaknesses, but one who has been tempted in every way as we are, yet without sin.
 
 ### Christ is for us
 
->Hebrews 2:17-18 (CSB) Therefore, he had to be like his brothers and sisters in every way, so that he could become a merciful and faithful high priest in matters pertaining to God, to make atonement for the sins of the people. 18 For since he himself has suffered when he was tempted, he is able to help those who are tempted.
+>Hebrews 2:17-18 Therefore, he had to be like his brothers and sisters in every way, so that he could become a merciful and faithful high priest in matters pertaining to God, to make atonement for the sins of the people. 18 For since he himself has suffered when he was tempted, he is able to help those who are tempted.
 
 ## But Deliver Us From the Evil One
 
@@ -61,21 +61,21 @@ We read in 1 Corinthians 10 that we are not going to experience something extrao
 
 #### Flee from idolatry
 
->1 Corinthians 10:14 (CSB) So then, my dear friends, flee from idolatry.
+>1 Corinthians 10:14 So then, my dear friends, flee from idolatry.
 
 #### Flee sexual immorality
 
->1 Corinthians 6:18 (CSB) Flee sexual immorality! Every other sin a person commits is outside the body, but the person who is sexually immoral sins against his own body.
+>1 Corinthians 6:18 Flee sexual immorality! Every other sin a person commits is outside the body, but the person who is sexually immoral sins against his own body.
 
 #### Flee from greed
 
->1 Timothy 6:10-11 (CSB) For the love of money is a root of all kinds of evil, and by craving it, some have wandered away from the faith and pierced themselves with many griefs.
+>1 Timothy 6:10-11 For the love of money is a root of all kinds of evil, and by craving it, some have wandered away from the faith and pierced themselves with many griefs.
 >
 >11 But you, man of God, flee from these things, and pursue righteousness, godliness, faith, love, endurance, and gentleness.
 
 #### Flee from anger, unfaithfulness, wickedness, hate, foolishness, and ignorance
 
->2 Timothy 2:22-23 (CSB) Flee from youthful passions, and pursue righteousness, faith, love, and peace, along with those who call on the Lord from a pure heart. 23 But reject foolish and ignorant disputes, because you know that they breed quarrels.
+>2 Timothy 2:22-23 Flee from youthful passions, and pursue righteousness, faith, love, and peace, along with those who call on the Lord from a pure heart. 23 But reject foolish and ignorant disputes, because you know that they breed quarrels.
 
 ## God is with us and will deliver us from the evil one
 
@@ -95,7 +95,7 @@ God commands you to fight. But just like David slew Goliath and the David's migh
 
 Trust in God because God is our strength because he is the Almighty God.
 
->Ephesians 6:10-17 (CSB) Finally, be strengthened by the Lord and by his vast strength.
+>Ephesians 6:10-17 Finally, be strengthened by the Lord and by his vast strength.
 
 Trust in God because God gives you truth and righteousness
 
@@ -117,27 +117,27 @@ Trust in God because God has saved you to himself and he gives you his word
 
 ### Turn from evil and rejoice in the goodness of God
 
->Proverbs 29:6 (CSB) An evil person is caught by sin,  
+>Proverbs 29:6 An evil person is caught by sin,  
 >but the righteous one sings and rejoices.
 
 ### Turn from evil and delight in the righteousness of God
 
->Psalm 17:3 (CSB) You have tested my heart;  
+>Psalm 17:3 You have tested my heart;  
 >you have examined me at night.  
 >You have tried me and found nothing evil;  
 >I have determined that my mouth will not sin.
 
 When you turn to God and believe and trust in him, that same righteousness belongs to you.
 
->2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+>2 Corinthians 5:21 He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
 ### Turn from sin, run with boldness and audacity to Christ and confess your sins
 
->Jeremiah 36:3 (CSB) Perhaps when the house of Judah hears about all the disaster I am planning to bring on them, each one of them will turn from his evil way. Then I will forgive their iniquity and their sin.”
+>Jeremiah 36:3 Perhaps when the house of Judah hears about all the disaster I am planning to bring on them, each one of them will turn from his evil way. Then I will forgive their iniquity and their sin.”
 
 When you do so, look at what you find:
 
->1 John 1:9 (CSB) If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
+>1 John 1:9 If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
 
 You like that? God is faithful and righteous and just to forgive us our sins and cleanse us from all unrighteousness.
 

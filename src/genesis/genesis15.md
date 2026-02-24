@@ -137,7 +137,7 @@ Listen to this worthlessness of Hezekiah:
 
 *Utterly despicable. Yet, God saved him. God saves the worthless and the wicked. God saved me and God saved you.*
 
-## The Gospel
+## His Gospel
 
 ### This is the Gospel Covenant - God has made a promise with God to save his people throught the seed of Abraham
 

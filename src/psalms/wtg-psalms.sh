@@ -13,7 +13,7 @@ for i in {120..150}; do
 
 ## The Psalm
 
->Psalm $i (CSB)  
+>Psalm $i  
 
 ## The Prayer
 

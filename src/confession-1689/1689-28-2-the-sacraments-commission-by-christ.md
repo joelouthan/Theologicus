@@ -8,9 +8,9 @@
 
 ## The Text
 
->Matthew 28:19 (CSB) Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit,
+>Matthew 28:19 Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit,
 
->1 Corinthians 4:1 (CSB) A person should think of us in this way: as servants of Christ and managers of the mysteries of God.
+>1 Corinthians 4:1 A person should think of us in this way: as servants of Christ and managers of the mysteries of God.
 
 ## The Chapter
 
@@ -34,7 +34,7 @@ Communion is you coming absolutely empty handed but with your sins to God and wh
 
 In the exact same way, baptism is the visible representation of God washing away your sins. Can you wash away your sins? Can you dunk yourself and raise yourself up from the water? Baptism the visible representation of Romans 6.
 
->Romans 6:6-10 (CSB) For we know that our old self was crucified with him so that the body ruled by sin might be rendered powerless so that we may no longer be enslaved to sin, since a person who has died is freed from sin. Now if we died with Christ, we believe that we will also live with him, because we know that Christ, having been raised from the dead, will not die again. Death no longer rules over him. For the death he died, he died to sin once for all time; but the life he lives, he lives to God.
+>Romans 6:6-10 For we know that our old self was crucified with him so that the body ruled by sin might be rendered powerless so that we may no longer be enslaved to sin, since a person who has died is freed from sin. Now if we died with Christ, we believe that we will also live with him, because we know that Christ, having been raised from the dead, will not die again. Death no longer rules over him. For the death he died, he died to sin once for all time; but the life he lives, he lives to God.
 
 And looking back on that day, I am glad it was not their dad that baptized them--to lest anyone thinks you can be born into the right family and be saved. But it was a minister of God--the same ministers who give communion and the same ministers who preach Christ and him crucified every Lord's Day are the same ministers who baptizes you in the name of the Father, Son, and the Holy Spirit.
 
