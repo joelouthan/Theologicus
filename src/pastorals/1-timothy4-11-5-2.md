@@ -59,7 +59,7 @@ Let's examine Paul's charges to Pastor Timothy and to you and to me.
 
 ### Command and teach these things. Don’t let anyone despise your youth
 
->Jeremiah 1:4-8 (CSB)
+>Jeremiah 1:4-8
 >The word of the LORD came to me:  
 >I chose you before I formed you in the womb;  
 >I set you apart before you were born.  

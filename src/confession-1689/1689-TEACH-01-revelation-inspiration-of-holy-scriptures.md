@@ -90,7 +90,7 @@ Today, in our first session of RTC's inaugural mini conference, we are going to 
 
 **The Old Testament in Hebrew (which was the native language of the people of God of old), and the New Testament in Greek (which at the time of the writing of it was most generally known to the nations), being immediately inspired by God, and by His singular care and providence kept pure in all ages, are therefore authentic; so as in all controversies of religion, the church is finally to appeal to them. But because these original tongues are not known to all the people of God, who have a right unto, and interest in the Scriptures, and are commanded in the fear of God to read, and search them, therefore they are to be translated into the vulgar language of every nation unto which they come, that the Word of God dwelling plentifully in all, they may worship Him in an acceptable manner, and through patience and comfort of the Scriptures may have hope.**
 
->2 Timothy 3:16-17 (CSB)
+>2 Timothy 3:16-17
 All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
 
 >Matthew 4:4 He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”

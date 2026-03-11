@@ -4,7 +4,7 @@
 
 ## The Text
 
->Romans 8:27 (CSB)
+>Romans 8:27
 >And he who searches our hearts knows the mind of the Spirit, because he intercedes for the saints according to the will of God. 
 
 ## The Support

@@ -113,7 +113,7 @@ As far as being saved through childbearing. This ties straight back to Genesis 3
 
 That is exclusively for all believers. This ties right back to the first proclamation of the gospel:
 
->Genesis 3:15 (CSB)
+>Genesis 3:15
 > I will put hostility between you and the woman,  
 >and between your offspring and her offspring.  
 >He will strike your head,  

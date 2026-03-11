@@ -4,7 +4,7 @@
 
 ## The Text
 
->Romans 8:28 (CSB)
+>Romans 8:28
 ><sup> 28 </sup> We know that all things work together for the good of those who love God, who are called according to his purpose.
 
 ## Our God

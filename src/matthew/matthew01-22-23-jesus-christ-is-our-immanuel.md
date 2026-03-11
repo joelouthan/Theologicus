@@ -26,7 +26,7 @@ its wheels were blazing fire.
 
 ### El Chuwl: The God Who Gave You Birth
 
->Isaiah 43:1-4 (CSB)
+>Isaiah 43:1-4
 Now this is what the LORD says —
 the one who created you, Jacob,
 and the one who formed you, Israel —
@@ -131,7 +131,7 @@ I have what I need.
 
 ### Jehovah-Shammah: The LORD is There
 
->Ezekiel 48:35; also Psalm 139:7-8 (CSB)
+>Ezekiel 48:35; also Psalm 139:7-8
 Where can I go to escape your Spirit?
 Where can I flee from your presence?
 If I go up to heaven, you are there;
