@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 23:5c (CSB)   my cup overflows
+>Psalm 23:5c   my cup overflows
 
 ## The Prayer
 

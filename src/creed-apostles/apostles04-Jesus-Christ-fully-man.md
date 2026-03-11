@@ -25,13 +25,13 @@
 
 ## The Word
 
->John 12:32-33 (CSB) As for me, if I am lifted up from the earth I will draw all people to myself.” He said this to indicate what kind of death he was about to die.
+>John 12:32-33 As for me, if I am lifted up from the earth I will draw all people to myself.” He said this to indicate what kind of death he was about to die.
 
 ## The Belief
 
 ### Who was conceived of the Holy Spirit
 
->Matthew 1:18–25 (CSB)  
+>Matthew 1:18–25  
 ><sup>18</sup> The birth of Jesus Christ came about this way: After his mother Mary had been engaged to Joseph, it was discovered before they came together that she was pregnant from the Holy Spirit. 
 >
 ><sup>19</sup> So her husband, Joseph, being a righteous man, and not wanting to disgrace her publicly, decided to divorce her secretly. 
@@ -53,7 +53,7 @@ Big facts:
 - it was the will of the Father and the power of the Spirit that conceived Jesus Christ within Mary
 - the Roman Catholic Church will still teach that Mary is and will forever be a virgin. However, we know from the Bible that Joseph and Mary had at least 6 more children after Jesus:
 
->Mark 6:3 (CSB) Isn’t this the carpenter, the son of Mary, and the brother of James, Joses, Judas, and Simon? And aren’t his sisters here with us? ” So they were offended by him.
+>Mark 6:3 Isn’t this the carpenter, the son of Mary, and the brother of James, Joses, Judas, and Simon? And aren’t his sisters here with us? ” So they were offended by him.
 
 ### born of the Virgin Mary
 
@@ -61,7 +61,7 @@ Why is this so important? Why was it so important for Mary to be a virgin when s
 
 It was one of the many Messianic prophecies from Isaiah some 400 years before the birth of the Messiah:
 
->Isaiah 7:14 (CSB) Therefore, the Lord himself will give you a sign: See, the virgin will conceive, have a son, and name him Immanuel.
+>Isaiah 7:14 Therefore, the Lord himself will give you a sign: See, the virgin will conceive, have a son, and name him Immanuel.
 
 There have been times in church history where it was important that Mary was a virgin or not. One pastor exclaimed, "If we scientifically proved that Mary was not a virgin, then my faith in Christ would not waiver."
 

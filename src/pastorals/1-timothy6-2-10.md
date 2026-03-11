@@ -4,7 +4,7 @@
 
 ## The Text
 
->1 Timothy 6:2–10 (CSB)  
+>1 Timothy 6:2–10  
 ><sup>2</sup> Let those who have believing masters not be disrespectful to them because they are brothers, but serve them even better, since those who benefit from their service are believers and dearly loved. Teach and encourage these things. 
 >
 ><sup>3</sup> If anyone teaches false doctrine and does not agree with the sound teaching of our Lord Jesus Christ and with the teaching that promotes godliness, 
@@ -89,7 +89,7 @@ Abstained from and run far from such teaching. Run to the word and sit in him.
 
 Whatever God gives us, we give. For:
 
->Psalm 16:5-9 (CSB)  
+>Psalm 16:5-9  
 >LORD, you are my portion  
 >and my cup of blessing;  
 >you hold my future.  
@@ -107,7 +107,7 @@ Whatever God gives us, we give. For:
 
 And
 
->Psalm 50:10 (CSB) ... for every animal of the forest is mine, the cattle on a thousand hills.
+>Psalm 50:10 ... for every animal of the forest is mine, the cattle on a thousand hills.
 
 And because he is our great Father in heaven, who has given the world and the galaxy to His Son, Christ Jesus our Lord, and because of his Son, we are made co-heirs with the heir of the entire world.
 
@@ -117,7 +117,7 @@ Everything belongs to the Lord. And he gives grace for us to do his will. What i
 
 Here's straight facts: world has nothing to give you that is worthwhile. I spent all of my life running hard after those things. The moment I held it in my hands, I realized I had nothing. The world gives crap and does nothing that fills the hole inside of your heart. That hole that you are so desperate to fill is actually infinite.
 
->Ecclesiastes 3:11 (CSB) He has made everything appropriate in its time. He has also put eternity in their hearts, but no one can discover the work God has done from beginning to end.
+>Ecclesiastes 3:11 He has made everything appropriate in its time. He has also put eternity in their hearts, but no one can discover the work God has done from beginning to end.
 
 What do you think that sex, money, power, family, marriage, work, fame, skill, talent is going to fill the infinite? To fill the infinite, it has to be infinite. Only the Infinite God can fill that space inside your heart and soul.
 
@@ -127,7 +127,7 @@ Be content in him.
 
 Here's the truth: God provides for all of your needs because the Father knows what you need.
 
->Matthew 6:7-8 (CSB) When you pray, don’t babble like the Gentiles, since they imagine they’ll be heard for their many words. 8 Don’t be like them, because your Father knows the things you need before you ask him.
+>Matthew 6:7-8 When you pray, don’t babble like the Gentiles, since they imagine they’ll be heard for their many words. 8 Don’t be like them, because your Father knows the things you need before you ask him.
 
 The ultimate truth is that you and I need Christ. All of my bills paid, a roof over my head, and a running car and good credit and my kids in college will not mean jack unless we have and treasure Christ Jesus as our Lord, Savior, and our literal All in all.
 

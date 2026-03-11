@@ -4,7 +4,7 @@
 
 ## The Text
 
->1 Timothy 6:11–16 (CSB)  
+>1 Timothy 6:11–16  
 ><sup>11</sup> But you, man of God, flee from these things, and pursue righteousness, godliness, faith, love, endurance, and gentleness. 
 >
 ><sup>12</sup> Fight the good fight of the faith. Take hold of eternal life to which you were called and about which you have made a good confession in the presence of many witnesses. 
@@ -25,11 +25,11 @@ We might read the Bible and think that certain passages apply to everyone. That 
 
 For example:
 
->Romans 1:16-17 (CSB) For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek. For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
+>Romans 1:16-17 For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek. For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
 
 What does it say? Is the gospel that is the power of God for salvation to everyone or everyone who believes?
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
 What does it say? Will everyone not perish or everyone believes in him will not perish.
 
@@ -43,7 +43,7 @@ So here, by stating this:
 
 What are these things?
 
->1 Timothy 6:9-10 (CSB) But those who want to be rich fall into temptation, a trap, and many foolish and harmful desires, which plunge people into ruin and destruction. For the love of money is a root of all kinds of evil, and by craving it, some have wandered away from the faith and pierced themselves with many griefs.
+>1 Timothy 6:9-10 But those who want to be rich fall into temptation, a trap, and many foolish and harmful desires, which plunge people into ruin and destruction. For the love of money is a root of all kinds of evil, and by craving it, some have wandered away from the faith and pierced themselves with many griefs.
 
 Flee from:
 
@@ -63,13 +63,13 @@ And
 
 Jesus said it best:
 
->Matthew 6:24 (CSB) “No one can serve two masters, since either he will hate one and love the other, or he will be devoted to one and despise the other. You cannot serve both God and money.
+>Matthew 6:24 “No one can serve two masters, since either he will hate one and love the other, or he will be devoted to one and despise the other. You cannot serve both God and money.
 
 ### Fight the good fight of the faith
 
 Paul is going to say it again to Timothy:
 
->2 Timothy 1:13 - 2:7 (CSB) Hold on to the pattern of sound teaching that you have heard from me, in the faith and love that are in Christ Jesus. Guard the good deposit through the Holy Spirit who lives in us. You know that all those in the province of Asia have deserted me, including Phygelus and Hermogenes. May the Lord grant mercy to the household of Onesiphorus, because he often refreshed me and was not ashamed of my chains. On the contrary, when he was in Rome, he diligently searched for me and found me. May the Lord grant that he obtain mercy from him on that day. You know very well how much he ministered at Ephesus.
+>2 Timothy 1:13 - 2:7 Hold on to the pattern of sound teaching that you have heard from me, in the faith and love that are in Christ Jesus. Guard the good deposit through the Holy Spirit who lives in us. You know that all those in the province of Asia have deserted me, including Phygelus and Hermogenes. May the Lord grant mercy to the household of Onesiphorus, because he often refreshed me and was not ashamed of my chains. On the contrary, when he was in Rome, he diligently searched for me and found me. May the Lord grant that he obtain mercy from him on that day. You know very well how much he ministered at Ephesus.
 >
 >You, therefore, my son, be strong in the grace that is in Christ Jesus. What you have heard from me in the presence of many witnesses, commit to faithful men who will be able to teach others also.
 >
@@ -77,13 +77,13 @@ Paul is going to say it again to Timothy:
 
 Christ puts it this way:
 
->Luke 14:25-30 (CSB) ow great crowds were traveling with him. So he turned and said to them, “If anyone comes to me and does not hate his own father and mother, wife and children, brothers and sisters—yes, and even his own life—he cannot be my disciple. Whoever does not bear his own cross and come after me cannot be my disciple.
+>Luke 14:25-30 ow great crowds were traveling with him. So he turned and said to them, “If anyone comes to me and does not hate his own father and mother, wife and children, brothers and sisters—yes, and even his own life—he cannot be my disciple. Whoever does not bear his own cross and come after me cannot be my disciple.
 >
 >“For which of you, wanting to build a tower, doesn’t first sit down and calculate the cost to see if he has enough to complete it? Otherwise, after he has laid the foundation and cannot finish it, all the onlookers will begin to ridicule him, saying, ‘This man started to build and wasn’t able to finish.’
 
 Here's the point: while God the Father does not lose his kids (John 10:28-29), there is a cost to following Jesus:
 
->Matthew 16:24-25 (CSB) Then Jesus said to his disciples, “If anyone wants to follow after me, let him deny himself, take up his cross, and follow me. For whoever wants to save his life will lose it, but whoever loses his life because of me will find it.
+>Matthew 16:24-25 Then Jesus said to his disciples, “If anyone wants to follow after me, let him deny himself, take up his cross, and follow me. For whoever wants to save his life will lose it, but whoever loses his life because of me will find it.
 
 You are going to have to lay down your life, everyday, for the rest of your life here. There are no exceptions. Have you counted the cost of what it takes to follow Jesus?
 
@@ -105,7 +105,7 @@ What is the command? Take quick hold of the perfect life, death, and resurrectio
 
 Christ was the only innocent, perfect, and spotless human in the history of human existence ever. That is why Isaiah says:
 
->Isaiah 53:7 (CSB)  
+>Isaiah 53:7  
 >He was oppressed and afflicted,  
 >yet he did not open his mouth.  
 >Like a lamb led to the slaughter  
@@ -114,7 +114,7 @@ Christ was the only innocent, perfect, and spotless human in the history of huma
 
 And yet, because Christ was innocently slain for our sin, Paul will go on to say:
 
->Romans 8:36-37 (CSB) As it is written:
+>Romans 8:36-37 As it is written:
 >Because of you  
 >we are being put to death all day long;  
 >we are counted as sheep to be slaughtered.  
@@ -133,11 +133,11 @@ Christians believe and take hold of God. They have put their hope in this God (R
 
 We don't know but we trust God that he will send Christ once more (Acts 1:7):
 
->Acts 1:7 (CSB) He said to them, “It is not for you to know times or periods that the Father has set by his own authority.
+>Acts 1:7 He said to them, “It is not for you to know times or periods that the Father has set by his own authority.
 
 What is ours to do? You know the answer:
 
->Acts 1:8 (CSB) But you will receive power when the Holy Spirit has come on you, and you will be my witnesses in Jerusalem, in all Judea and Samaria, and to the ends of the earth.”
+>Acts 1:8 But you will receive power when the Holy Spirit has come on you, and you will be my witnesses in Jerusalem, in all Judea and Samaria, and to the ends of the earth.”
 
 You and I have been commissioned to go and preach to everyone about this amazingly good news:
 

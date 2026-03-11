@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 148 (CSB)  
+>Psalm 148  
 ><sup>1</sup> Hallelujah! Praise the LORD from the heavens; praise him in the heights. 
 >
 ><sup>2</sup> Praise him, all his angels; praise him, all his heavenly armies. 

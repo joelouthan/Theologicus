@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 78 (CSB)  
+>Psalm 78  
 ><sup></sup> A Maskil of Asaph. 
 >
 ><sup>1</sup> My people, hear my instruction; listen to the words from my mouth. 

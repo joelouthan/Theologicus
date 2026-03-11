@@ -4,11 +4,11 @@
 
 ## The Word
 
->Luke 4:5-8 (CSB) So [Satan] took him up and showed him all the kingdoms of the world in a moment of time. The devil said to him, “I will give you their splendor and all this authority, because it has been given over to me, and I can give it to anyone I want. If you, then, will worship me, all will be yours.” And Jesus answered him, “It is written: <bgy>Worship the Lord your God, and serve him only.</bgy>”
+>Luke 4:5-8 So [Satan] took him up and showed him all the kingdoms of the world in a moment of time. The devil said to him, “I will give you their splendor and all this authority, because it has been given over to me, and I can give it to anyone I want. If you, then, will worship me, all will be yours.” And Jesus answered him, “It is written: <bgy>Worship the Lord your God, and serve him only.</bgy>”
 
 ## The Passage
 
->1 Samuel 6 (CSB)  
+>1 Samuel 6  
 ><sup>1</sup> When the ark of the LORD had been in Philistine territory for seven months, 
 >
 ><sup>2</sup> the Philistines summoned the priests and the diviners and pleaded, “What should we do with the ark of the LORD? Tell us how we can send it back to its place.” 
@@ -71,7 +71,7 @@
 
 ### No Other Gods: We Have All Exchanged God For Other Gods
 
->Romans 1:21-25 (CSB) For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. Claiming to be wise, they became fools and exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles. Therefore God delivered them over in the desires of their hearts to sexual impurity, so that their bodies were degraded among themselves. They exchanged the truth of God for a lie, and worshiped and served what has been created instead of the Creator, who is praised forever. Amen.
+>Romans 1:21-25 For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. Claiming to be wise, they became fools and exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles. Therefore God delivered them over in the desires of their hearts to sexual impurity, so that their bodies were degraded among themselves. They exchanged the truth of God for a lie, and worshiped and served what has been created instead of the Creator, who is praised forever. Amen.
 
 ---
 
@@ -101,7 +101,7 @@
 
 ### No Other Gods: God is the Only God That Gives to Us
 
->Matthew 1:21–23 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.” Now all this took place to fulfill what was spoken by the Lord through the prophet: See, the virgin will become pregnant and give birth to a son, and they will name him Immanuel, which is translated “God is with us.”
+>Matthew 1:21–23 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.” Now all this took place to fulfill what was spoken by the Lord through the prophet: See, the virgin will become pregnant and give birth to a son, and they will name him Immanuel, which is translated “God is with us.”
 
 ---
 
@@ -113,7 +113,7 @@
 
 ### No Other Gods: Worshiping God at Our Convenience Will Not Save Us
 
->Matthew 7:21–23 (CSB) “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father in heaven. On that day many will say to me, ‘Lord, Lord, didn’t we prophesy in your name, drive out demons in your name, and do many miracles in your name?’ Then I will announce to them, ‘I never knew you. Depart from me, you lawbreakers!’
+>Matthew 7:21–23 “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father in heaven. On that day many will say to me, ‘Lord, Lord, didn’t we prophesy in your name, drive out demons in your name, and do many miracles in your name?’ Then I will announce to them, ‘I never knew you. Depart from me, you lawbreakers!’
 
 For the moment vs. for all of eternity
 
@@ -123,7 +123,7 @@ For the moment vs. for all of eternity
 
 ### No Other Gods: God is Holy
 
->Isaiah 6:1–5 (CSB) In the year that King Uzziah died, I saw the Lord seated on a high and lofty throne, and the hem of his robe filled the temple. Seraphim were standing above him; they each had six wings: with two they covered their faces, with two they covered their feet, and with two they flew. And one called to another: Holy, holy, holy is the LORD of Armies; his glory fills the whole earth. The foundations of the doorways shook at the sound of their voices, and the temple was filled with smoke. Then I said: Woe is me for I am ruined because I am a man of unclean lips and live among a people of unclean lips, and because my eyes have seen the King, the LORD of Armies.
+>Isaiah 6:1–5 In the year that King Uzziah died, I saw the Lord seated on a high and lofty throne, and the hem of his robe filled the temple. Seraphim were standing above him; they each had six wings: with two they covered their faces, with two they covered their feet, and with two they flew. And one called to another: Holy, holy, holy is the LORD of Armies; his glory fills the whole earth. The foundations of the doorways shook at the sound of their voices, and the temple was filled with smoke. Then I said: Woe is me for I am ruined because I am a man of unclean lips and live among a people of unclean lips, and because my eyes have seen the King, the LORD of Armies.
 
 ---
 
@@ -133,13 +133,13 @@ For the moment vs. for all of eternity
 
 ### No Other Gods: God is the Only One Who Can Save Us from His Wrath
 
->John 3:36 (CSB) The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
+>John 3:36 The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 
 ---
 
 ## The Psalm
 
->Psalm 97:9–12 (CSB)  
+>Psalm 97:9–12  
 ><sup>9</sup> For you, LORD, are the Most High over the whole earth; you are exalted above all the gods. 
 >
 ><sup>10</sup> You who love the LORD, hate evil! He protects the lives of his faithful ones; he rescues them from the power of the wicked. 

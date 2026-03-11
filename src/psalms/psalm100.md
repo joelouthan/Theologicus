@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 100 (CSB)  
+>Psalm 100  
 ><sup></sup> A psalm of thanksgiving. 
 >
 ><sup>1</sup> Let the whole earth shout triumphantly to the LORD! 

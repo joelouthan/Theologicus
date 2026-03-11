@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 61 (CSB)  
+>Psalm 61  
 ><sup></sup> For the choir director: on stringed instruments. Of David. 
 >
 ><sup>1</sup> God, hear my cry; pay attention to my prayer. 

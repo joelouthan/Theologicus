@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 42 (CSB)  
+>Psalm 42  
 ><sup></sup> For the choir director. A Maskil of the sons of Korah. 
 >
 ><sup>1</sup> As a deer longs for flowing streams, so I long for you, God. 

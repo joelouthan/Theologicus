@@ -4,11 +4,11 @@
 
 ## The Word
 
->Hebrews 11:3 (CSB) By faith we understand that the universe was created by the word of God, so that what is seen was made from things that are not visible.
+>Hebrews 11:3 By faith we understand that the universe was created by the word of God, so that what is seen was made from things that are not visible.
 
 ## The Text
 
->Genesis 1:20-25 (CSB) Then God said, “Let the water swarm with living creatures, and let birds fly above the earth across the expanse of the sky.” So God created the large sea-creatures and every living creature that moves and swarms in the water, according to their kinds. He also created every winged creature according to its kind. And God saw that it was good. God blessed them: “Be fruitful, multiply, and fill the waters of the seas, and let the birds multiply on the earth.” Evening came and then morning: the fifth day.
+>Genesis 1:20-25 Then God said, “Let the water swarm with living creatures, and let birds fly above the earth across the expanse of the sky.” So God created the large sea-creatures and every living creature that moves and swarms in the water, according to their kinds. He also created every winged creature according to its kind. And God saw that it was good. God blessed them: “Be fruitful, multiply, and fill the waters of the seas, and let the birds multiply on the earth.” Evening came and then morning: the fifth day.
 >
 >Then God said, “Let the earth produce living creatures according to their kinds: livestock, creatures that crawl, and the wildlife of the earth according to their kinds.” And it was so. So God made the wildlife of the earth according to their kinds, the livestock according to their kinds, and all the creatures that crawl on the ground according to their kinds. And God saw that it was good.
 
@@ -38,7 +38,7 @@ However, I will say this again: to be a Christian is to believe that Christ is y
 
 This is not from a mere observation viewpoint as God sees everything as he told Job:
 
->Job 39:1-4 (CSB) Do you know when mountain goats give birth?  
+>Job 39:1-4 Do you know when mountain goats give birth?  
 >Have you watched the deer in labor?  
 >Can you count the months they are pregnant  
 >so you can know the time they give birth?  
@@ -49,7 +49,7 @@ This is not from a mere observation viewpoint as God sees everything as he told 
 
 However, remember of the story of Noah. Noah was declared righteous and then he obeyed God in building the ark. Noah did not have to command creation--that responsibility fell directly on God who is Lord:
 
->Genesis 7:8-9 (CSB) From the animals that are clean, and from the animals that are not clean, and from the birds and every creature that crawls on the ground, two of each, male and female, came to Noah and entered the ark, just as God had commanded him.
+>Genesis 7:8-9 From the animals that are clean, and from the animals that are not clean, and from the birds and every creature that crawls on the ground, two of each, male and female, came to Noah and entered the ark, just as God had commanded him.
 
 ### God is Provider for All of Creation
 
@@ -57,7 +57,7 @@ If you continue to read on in Job 39 till chapter 41, God will continue to empha
 
 The author of Psalm 104 worships in this way:
 
->Psalm 104:10-18 (CSB)  
+>Psalm 104:10-18  
 >He causes the springs to gush into the valleys;  
 >they flow between the mountains.  
 >They supply water for every wild beast;  
@@ -83,9 +83,9 @@ During the ministry of Jesus, he was confronted with the practical needs of the 
 
 Look at how Jesus speaks of this provision for our most basic needs:
 
->Matthew 6:26-30 (CSB) Consider the birds of the sky: They don’t sow or reap or gather into barns, yet your heavenly Father feeds them. Aren’t you worth more than they? Can any of you add one moment to his life span by worrying? And why do you worry about clothes? Observe how the wildflowers of the field grow: They don’t labor or spin thread. Yet I tell you that not even Solomon in all his splendor was adorned like one of these. If that’s how God clothes the grass of the field, which is here today and thrown into the furnace tomorrow, won’t he do much more for you—you of little faith?
+>Matthew 6:26-30 Consider the birds of the sky: They don’t sow or reap or gather into barns, yet your heavenly Father feeds them. Aren’t you worth more than they? Can any of you add one moment to his life span by worrying? And why do you worry about clothes? Observe how the wildflowers of the field grow: They don’t labor or spin thread. Yet I tell you that not even Solomon in all his splendor was adorned like one of these. If that’s how God clothes the grass of the field, which is here today and thrown into the furnace tomorrow, won’t he do much more for you—you of little faith?
 
-## The Gospel
+## His Gospel
 
 This is the gospel commandment of God: believe and trust in Him alone.
 
@@ -93,7 +93,7 @@ If we are to believe and trust in him, we must understand a couple of things.
 
 ### God is need of nothing--He owns all of creation
 
->Psalm 50:1-13 (CSB)  
+>Psalm 50:1-13  
 >The Mighty One, God, the LORD, speaks;  
 >he summons the earth  
 >from the rising of the sun to its setting.  
@@ -130,7 +130,7 @@ If we are to believe and trust in him, we must understand a couple of things.
 
 ### Since he owns everything--everything we have comes from God
 
->Psalm 16:5-6 (CSB)  
+>Psalm 16:5-6  
 >LORD, you are my portion  
 >and my cup of blessing;  
 >you hold my future.  
@@ -148,7 +148,7 @@ Our paychecks, our livelihood, the knowledge in our brains, the strength in our 
 
 But to say we believe in God, trust in Christ and take him at his word, means that we know that He will provide for all of our needs.
 
->Matthew 6:31-32 (CSB) So don’t worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’ For the Gentiles eagerly seek all these things, and your heavenly Father knows that you need them.
+>Matthew 6:31-32 So don’t worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’ For the Gentiles eagerly seek all these things, and your heavenly Father knows that you need them.
 
 God spoke all of creation out of nothing into existence. Do you think he struggles with providing for our needs? Absolutely not.
 
@@ -156,14 +156,14 @@ If we know that and trust God in that, how can we respond?
 
 ### Thank the Lord Because He Provides for Us Everything
 
->Psalm 50:14-15 (CSB) Offer a thanksgiving sacrifice to God,  
+>Psalm 50:14-15 Offer a thanksgiving sacrifice to God,  
 >and pay your vows to the Most High.  
 >Call on me in a day of trouble;  
 >I will rescue you, and you will honor me.”
 
 ### Seek After What Really Matters
 
->Matthew 6:33 (CSB) But seek first the kingdom of God and his righteousness, and all these things will be provided for you. 
+>Matthew 6:33 But seek first the kingdom of God and his righteousness, and all these things will be provided for you. 
 
 Just like God provides the necessary sacrifice to save Isaac, God sends his Son as the necessary sacrifice to save our lives.
 

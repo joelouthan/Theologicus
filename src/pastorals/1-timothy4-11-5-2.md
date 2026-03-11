@@ -4,7 +4,7 @@
 
 ## The Text
 
->1 Timothy 4:11–5:2 (CSB)  
+>1 Timothy 4:11–5:2  
 ><sup>11</sup> Command and teach these things. 
 >
 ><sup>12</sup> Don’t let anyone despise your youth, but set an example for the believers in speech, in conduct, in love, in faith, and in purity. 
@@ -75,11 +75,11 @@ Let's examine Paul's charges to Pastor Timothy and to you and to me.
 
 Or if you want even younger than that:
 
->Luke 1:11-17 (CSB) An angel of the Lord appeared to him, standing to the right of the altar of incense. When Zechariah saw him, he was terrified and overcome with fear. But the angel said to him, “Do not be afraid, Zechariah, because your prayer has been heard. Your wife Elizabeth will bear you a son, and you will name him John. There will be joy and delight for you, and many will rejoice at his birth. For he will be great in the sight of the Lord and will never drink wine or beer. He will be filled with the Holy Spirit while still in his mother’s womb. He will turn many of the children of Israel to the Lord their God. And he will go before him in the spirit and power of Elijah, to turn the hearts of fathers to their children, and the disobedient to the understanding of the righteous, to make ready for the Lord a prepared people.”
+>Luke 1:11-17 An angel of the Lord appeared to him, standing to the right of the altar of incense. When Zechariah saw him, he was terrified and overcome with fear. But the angel said to him, “Do not be afraid, Zechariah, because your prayer has been heard. Your wife Elizabeth will bear you a son, and you will name him John. There will be joy and delight for you, and many will rejoice at his birth. For he will be great in the sight of the Lord and will never drink wine or beer. He will be filled with the Holy Spirit while still in his mother’s womb. He will turn many of the children of Israel to the Lord their God. And he will go before him in the spirit and power of Elijah, to turn the hearts of fathers to their children, and the disobedient to the understanding of the righteous, to make ready for the Lord a prepared people.”
 
 You know when to minister? Now is the time to minister to one another. "But I am only 12 years old." So were some of the Disciples of Christ. "But I am young in the faith and don't know that much." Listen, if you believe and trust Jesus Christ, then the Spirit of Christ is in you.
 
->Romans 8:11 (CSB) And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
+>Romans 8:11 And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
 
 The same Spirit that filled Jesus, the disciples, the prophets, the kings, the priests, and all believers since Pentecost and empowered them for all ministry to one another. If you believe and trust in Christ, then that same Spirit, who is the Living God, dwells in you.
 
@@ -89,13 +89,13 @@ Go and minister.
 
 This is not legalism nor a bunch of works we have to do in order for others to accept us and judge us in their own eyes. There judgment doesn't matter. Only God's. But here is the thing.
 
->Luke 13:6-9 (CSB) And he told this parable: “A man had a fig tree that was planted in his vineyard. He came looking for fruit on it and found none. He told the vineyard worker, ‘Listen, for three years I have come looking for fruit on this fig tree and haven’t found any. Cut it down! Why should it even waste the soil?’
+>Luke 13:6-9 And he told this parable: “A man had a fig tree that was planted in his vineyard. He came looking for fruit on it and found none. He told the vineyard worker, ‘Listen, for three years I have come looking for fruit on this fig tree and haven’t found any. Cut it down! Why should it even waste the soil?’
 >
 >“But he replied to him, ‘Sir, leave it this year also, until I dig around it and fertilize it. Perhaps it will produce fruit next year, but if not, you can cut it down.’”
 
 Let me explain that parable in another way:
 
->Galatians 5:18-26 (CSB) But if you are led by the Spirit, you are not under the law.
+>Galatians 5:18-26 But if you are led by the Spirit, you are not under the law.
 >
 >Now the works of the flesh are obvious: sexual immorality, moral impurity, promiscuity, idolatry, sorcery, hatreds, strife, jealousy, outbursts of anger, selfish ambitions, dissensions, factions, envy, drunkenness, carousing, and anything similar. I am warning you about these things—as I warned you before—that those who practice such things will not inherit the kingdom of God.
 >
@@ -107,7 +107,7 @@ You are going to fail and crash. And when that happens, your life will just bott
 
 Here is the good news: Christ is inviting you right now to give him that back-breaking load.
 
->Matthew 11:28-30 (CSB) “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
+>Matthew 11:28-30 “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
 
 Some of y'all are not ready to give up on your idols and your sins just yet. Keep on. That will take you straight to death and into Hell.
 
@@ -157,7 +157,7 @@ We live in jacked up world. And that is no excuse for those claiming to be Chris
 
 But here's the flipside of that coin: we are all called to love and minister to one another and our character in loving and serving and ministering to one another absolutely matters. You are not going to be perfect like the Lord Jesus. Yet, go and read the promises that God has for his children:
 
->Romans 8:29 (CSB) For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
+>Romans 8:29 For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
 
 We are all being conformed and sanctified so that one day, we will truly look like his son.
 

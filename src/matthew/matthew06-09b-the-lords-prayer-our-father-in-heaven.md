@@ -9,7 +9,7 @@
 ## The Devotion
 ## Pray Then Like This
 
->Matthew 6:9b (CSB) Our Father in heaven
+>Matthew 6:9b Our Father in heaven
 
 ## Our Father In Heaven
 
@@ -27,7 +27,7 @@ Even the other faiths that began with Abraham: Jewish and Muslim. For those of t
 
 Christ proclaims that for us to come to the Father, we must believe and trust in the life, death, and resurrection of Christ.
 
->John 20:11-18 (CSB) But Mary stood outside the tomb, crying. As she was crying, she stooped to look into the tomb. She saw two angels in white sitting where Jesus’s body had been lying, one at the head and the other at the feet. They said to her, “Woman, why are you crying?”
+>John 20:11-18 But Mary stood outside the tomb, crying. As she was crying, she stooped to look into the tomb. She saw two angels in white sitting where Jesus’s body had been lying, one at the head and the other at the feet. They said to her, “Woman, why are you crying?”
 >“Because they’ve taken away my Lord,” she told them, “and I don’t know where they’ve put him.”
 >Having said this, she turned around and saw Jesus standing there, but she did not know it was Jesus. “Woman,” Jesus said to her, “why are you crying? Who is it that you’re seeking?”
 >
@@ -48,13 +48,13 @@ You behold God? You trust in his Son? Here is what you gain as having God as Fat
 
 ### You are alive
 
->Romans 8:12-13 (CSB) So then, brothers and sisters, we are not obligated to the flesh to live according to the flesh, because if you live according to the flesh, you are going to die. But if by the Spirit you put to death the deeds of the body, you will live.
+>Romans 8:12-13 So then, brothers and sisters, we are not obligated to the flesh to live according to the flesh, because if you live according to the flesh, you are going to die. But if by the Spirit you put to death the deeds of the body, you will live.
 
 ### You are being led by the Spirit of God
 
->Romans 8:14 (CSB) For all those led by God’s Spirit are God’s sons.
+>Romans 8:14 For all those led by God’s Spirit are God’s sons.
 
->Hebrews 12:5-11 (CSB) And you have forgotten the exhortation that addresses you as sons:  
+>Hebrews 12:5-11 And you have forgotten the exhortation that addresses you as sons:  
 >My son, do not take the Lord’s discipline lightly  
 >or lose heart when you are reproved by him,  
 >for the Lord disciplines the one he loves  
@@ -63,7 +63,7 @@ You behold God? You trust in his Son? Here is what you gain as having God as Fat
 
 ### You don't get to descend back into slavery
 
->Romans 8:15a (CSB) For you did not receive a spirit of slavery to fall back into fear. 
+>Romans 8:15a For you did not receive a spirit of slavery to fall back into fear. 
 
 ### You are adopted by God and you get to cry to God as Father
 
@@ -71,13 +71,13 @@ You behold God? You trust in his Son? Here is what you gain as having God as Fat
 
 ### You are defended by God in front of God to the glory of God
 
->Romans 8:16 (CSB) The Spirit himself testifies together with our spirit that we are God’s children,
+>Romans 8:16 The Spirit himself testifies together with our spirit that we are God’s children,
 
 ### You are now co-heirs (or another way to put it, joint heirs) with the One whom is heir of all things
 
->Romans 8:17-18 (CSB) and if children, also heirs—heirs of God and coheirs with Christ—
+>Romans 8:17-18 and if children, also heirs—heirs of God and coheirs with Christ—
 
->Hebrews 1:1-2 (CSB) Long ago God spoke to our ancestors by the prophets at different times and in different ways. In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
+>Hebrews 1:1-2 Long ago God spoke to our ancestors by the prophets at different times and in different ways. In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
 
 ### You will suffer like Christ
 
@@ -85,16 +85,16 @@ You behold God? You trust in his Son? Here is what you gain as having God as Fat
 
 ### You will look like Christ
 
->Romans 8:28-29 (CSB) We know that all things work together for the good of those who love God, who are called according to his purpose. For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
+>Romans 8:28-29 We know that all things work together for the good of those who love God, who are called according to his purpose. For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
 
->Psalm 17:15 (CSB) But I will see your face in righteousness;  
+>Psalm 17:15 But I will see your face in righteousness;  
 >when I awake, I will be satisfied with your presence.
 
 ### You will be glorified in Christ
 
->Romans 8:30 (CSB) And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
+>Romans 8:30 And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
 
->Psalm 16:5-11 (CSB)  
+>Psalm 16:5-11  
 >LORD, you are my portion  
 >and my cup of blessing;  
 >you hold my future.  

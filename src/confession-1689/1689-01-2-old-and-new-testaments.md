@@ -8,7 +8,7 @@
 
 ## The Text
 
->2 Timothy 3:16 - 4:5 (CSB) All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
+>2 Timothy 3:16 - 4:5 All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
 >
 >I solemnly charge you before God and Christ Jesus, who is going to judge the living and the dead, and because of his appearing and his kingdom: Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching. For the time will come when people will not tolerate sound doctrine, but according to their own desires, will multiply teachers for themselves because they have an itch to hear what they want to hear. They will turn away from hearing the truth and will turn aside to myths. But as for you, exercise self-control in everything, endure hardship, do the work of an evangelist, fulfill your ministry.
 
@@ -36,7 +36,7 @@ If you don't know your Bible well, you might be tempted to think that there is b
 
 And if you don't know your Bible well, you might be tempted to dismiss this altogether by saying, "Well, the Bible contradict itself so what does it matter." Let me consider that you, probably not a Biblical scholar, little to no knowledge of the ancient Biblical languages, are going to make such baseless claims not because you know (which you don't) but rather, is it, are you afraid of what is in this Bible might be true. Because if it is true, then you have to decide--do you want to live or do you want to die?
 
->John 6:63-69 (CSB) The Spirit is the one who gives life. The flesh doesn’t help at all. The words that I have spoken to you are spirit and are life. But there are some among you who don’t believe.” (For Jesus knew from the beginning those who did not believe and the one who would betray him.) He said, “This is why I told you that no one can come to me unless it is granted to him by the Father.”
+>John 6:63-69 The Spirit is the one who gives life. The flesh doesn’t help at all. The words that I have spoken to you are spirit and are life. But there are some among you who don’t believe.” (For Jesus knew from the beginning those who did not believe and the one who would betray him.) He said, “This is why I told you that no one can come to me unless it is granted to him by the Father.”
 >
 >From that moment many of his disciples turned back and no longer accompanied him. So Jesus said to the Twelve, “You don’t want to go away too, do you?”
 >
@@ -44,9 +44,9 @@ And if you don't know your Bible well, you might be tempted to dismiss this alto
 
 ### All of which are given by the inspiration of God, to be the rule of faith and life
 
->2 Timothy 3:16-17 (CSB) All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
+>2 Timothy 3:16-17 All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
 
->Luke 16:29-31 (CSB) But Abraham said, ‘They have Moses and the prophets; they should listen to them.’ “‘No, father Abraham,’ he said. ‘But if someone from the dead goes to them, they will repent.’ “But he told him, ‘If they don’t listen to Moses and the prophets, they will not be persuaded if someone rises from the dead.’”
+>Luke 16:29-31 But Abraham said, ‘They have Moses and the prophets; they should listen to them.’ “‘No, father Abraham,’ he said. ‘But if someone from the dead goes to them, they will repent.’ “But he told him, ‘If they don’t listen to Moses and the prophets, they will not be persuaded if someone rises from the dead.’”
 
 But there is one who returned from the dead, who breathed out the words of God by the power of the Holy Spirit from the sovereign grace and mercy of God our Father--that is, Jesus Christ our Lord.
 

@@ -4,7 +4,7 @@
 
 ## The Text
 
->2 Timothy 3:1–12 (CSB)  
+>2 Timothy 3:1–12  
 ><sup> 1 </sup> But know this: Hard times will come in the last days. 
 >
 ><sup> 2 </sup> For people will be lovers of self, lovers of money, boastful, proud, demeaning, disobedient to parents, ungrateful, unholy, 
@@ -37,11 +37,11 @@
 
 If you are going against the grain, the wind, and the stream of the world, you will enter into hard times. That's not because of the world but because God dwells in you.
 
->Romans 5:1-5 (CSB) Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. 2 We have also obtained access through him by faith into this grace in which we stand, and we boast in the hope of the glory of God. 3 And not only that, but we also boast in our afflictions, because we know that affliction produces endurance, 4 endurance produces proven character, and proven character produces hope. 5 This hope will not disappoint us, because God’s love has been poured out in our hearts through the Holy Spirit who was given to us.
+>Romans 5:1-5 Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. 2 We have also obtained access through him by faith into this grace in which we stand, and we boast in the hope of the glory of God. 3 And not only that, but we also boast in our afflictions, because we know that affliction produces endurance, 4 endurance produces proven character, and proven character produces hope. 5 This hope will not disappoint us, because God’s love has been poured out in our hearts through the Holy Spirit who was given to us.
 
->Romans 8:16-18 (CSB) The Spirit himself testifies together with our spirit that we are God’s children, 17 and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him. 18 For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us.
+>Romans 8:16-18 The Spirit himself testifies together with our spirit that we are God’s children, 17 and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him. 18 For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us.
 
->Luke 24:26-27 (CSB) Wasn’t it necessary for the Messiah to suffer these things and enter into his glory?” 27 Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
+>Luke 24:26-27 Wasn’t it necessary for the Messiah to suffer these things and enter into his glory?” 27 Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
 
 If our Messiah "suffered many things", how can we do any less?
 
@@ -57,11 +57,11 @@ Christians are already walked away from God that was way before the pandemic.
 
 ### Refined by God: because you have been commanded by God, you don't get to act like the world
 
->Romans 6:1-4 (CSB) What should we say then? Should we continue in sin so that grace may multiply? 2 Absolutely not! How can we who died to sin still live in it? 3 Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? 4 Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life.
+>Romans 6:1-4 What should we say then? Should we continue in sin so that grace may multiply? 2 Absolutely not! How can we who died to sin still live in it? 3 Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? 4 Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life.
 
 Our affections are not for this world. The old will pass away. The new heavens and the new earth are coming. Our affections are for nothing on this world but rather on God.
 
->Romans 8:19-21 (CSB) For the creation eagerly waits with anticipation for God’s sons to be revealed. 20 For the creation was subjected to futility—not willingly, but because of him who subjected it—in the hope 21 that the creation itself will also be set free from the bondage to decay into the glorious freedom of God’s children.
+>Romans 8:19-21 For the creation eagerly waits with anticipation for God’s sons to be revealed. 20 For the creation was subjected to futility—not willingly, but because of him who subjected it—in the hope 21 that the creation itself will also be set free from the bondage to decay into the glorious freedom of God’s children.
 
 We are not tied to this world. We are not of this world. We are here to preach the good news of the only God that sets the captives free. We were once in bondage in slavery--but because of Christ you can be set free from sin and into the freedom that belongs to the children of God.
 
@@ -83,7 +83,7 @@ You have the knowledge of the truth. Take it easy. Rest in that. Start from that
 
 ### Refined by God: because we have been made fully alive by God, you are no longer dead in your trespasses
 
->Ephesians 2:3-5 (CSB) We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. 4 But God, who is rich in mercy, because of his great love that he had for us, 5 made us alive with Christ even though we were dead in trespasses. You are saved by grace!
+>Ephesians 2:3-5 We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. 4 But God, who is rich in mercy, because of his great love that he had for us, 5 made us alive with Christ even though we were dead in trespasses. You are saved by grace!
 
 We are not better than unbelievers. We are not. We are saved by grace--not by anything we have done or been born into but only because of the grace of God, who looked up us, saw us in our weakness, depravity, wickedness, and sinfulness, and saved us and loved us and restored us and will bring us home.
 

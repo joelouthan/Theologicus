@@ -4,7 +4,7 @@
 
 ## The Review
 
->1 Corinthians 2:2–5 (CSB) I decided to know nothing among you except Jesus Christ and him crucified. I came to you in weakness, in fear, and in much trembling. My speech and my preaching were not with persuasive words of wisdom but with a demonstration of the Spirit’s power, so that your faith might not be based on human wisdom but on God’s power.
+>1 Corinthians 2:2–5 I decided to know nothing among you except Jesus Christ and him crucified. I came to you in weakness, in fear, and in much trembling. My speech and my preaching were not with persuasive words of wisdom but with a demonstration of the Spirit’s power, so that your faith might not be based on human wisdom but on God’s power.
 
 You know something? I don’t have to preach like anybody else I have ever heard.
 
@@ -18,6 +18,6 @@ But then, you get another try at it. God’s grace abounds and you get one more 
 
 So, what are you going to do with that one shot?
 
->2 Timothy 4:1–5 (CSB) I solemnly charge you before God and Christ Jesus, who is going to judge the living and the dead, and because of his appearing and his kingdom: Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching. For the time will come when people will not tolerate sound doctrine, but according to their own desires, will multiply teachers for themselves because they have an itch to hear what they want to hear. They will turn away from hearing the truth and will turn aside to myths. But as for you, exercise self-control in everything, endure hardship, do the work of an evangelist, fulfill your ministry.
+>2 Timothy 4:1–5 I solemnly charge you before God and Christ Jesus, who is going to judge the living and the dead, and because of his appearing and his kingdom: Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching. For the time will come when people will not tolerate sound doctrine, but according to their own desires, will multiply teachers for themselves because they have an itch to hear what they want to hear. They will turn away from hearing the truth and will turn aside to myths. But as for you, exercise self-control in everything, endure hardship, do the work of an evangelist, fulfill your ministry.
 
 Do the work. Praise be to God!

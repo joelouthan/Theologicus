@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 34 (CSB)  
+>Psalm 34  
 ><sup>9</sup> You who are his holy ones, fear the LORD, for those who fear him lack nothing. 
 
 ## The Prayer

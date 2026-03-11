@@ -8,7 +8,7 @@
 
 ## The Text
 
->Proverbs 24:16 (CSB) Though a righteous person falls seven times, he will get up, but the wicked will stumble into ruin.
+>Proverbs 24:16 Though a righteous person falls seven times, he will get up, but the wicked will stumble into ruin.
 
 ## The Chapter
 
@@ -18,9 +18,9 @@
 
 ### Whereas there is none that doth good and sinneth not, and the best of men may, through the power and deceitfulness of their corruption dwelling in them
 
->Ecclesiastes 7:20 (CSB) There is certainly no one righteous on the earth who does good and never sins.
+>Ecclesiastes 7:20 There is certainly no one righteous on the earth who does good and never sins.
 
->Romans 3:10–12 (CSB) as it is written: There is no one righteous, not even one. There is no one who understands; there is no one who seeks God. All have turned away; all alike have become worthless. There is no one who does what is good, not even one.
+>Romans 3:10–12 as it is written: There is no one righteous, not even one. There is no one who understands; there is no one who seeks God. All have turned away; all alike have become worthless. There is no one who does what is good, not even one.
 
 We must always reset base facts. I do this through my writing and preaching because I grew up in the prevalent Evangelical understand, that, although God along saves us, there has to be something in us that caused us to change our mind and turn to Christ.
 
@@ -65,7 +65,7 @@ Why? Sin.
 
 And because our personal infection of sin, what is the only thing we can do?
 
->Isaiah 64:6 (CSB) All of us have become like something unclean, and all our righteous acts are like a polluted garment; all of us wither like a leaf, and our iniquities carry us away like the wind.
+>Isaiah 64:6 All of us have become like something unclean, and all our righteous acts are like a polluted garment; all of us wither like a leaf, and our iniquities carry us away like the wind.
 
 Even when we try to do good and righteous, we can only do one thing: sin. Our supposed good works are not for God because God is not served by human hands. (Acts 17:25) Even if we truly and graciously help our fellow man (who really need our good works), those works are always tinctured with sin somehow or some way.
 
@@ -73,9 +73,9 @@ So, that is the very least of our sins.
 
 And because of sins, some of humanity, like myself, have fallen into the most vile and heinous of sins. 
 
->Romans 1:28-32 (CSB) And because they did not think it worthwhile to acknowledge God, God delivered them over to a corrupt mind so that they do what is not right. They are filled with all unrighteousness, evil, greed, and wickedness. They are full of envy, murder, quarrels, deceit, and malice. They are gossips, slanderers, God-haters, arrogant, proud, boastful, inventors of evil, disobedient to parents, senseless, untrustworthy, unloving, and unmerciful. Although they know God’s just sentence — that those who practice such things deserve to die — they not only do them, but even applaud others who practice them.
+>Romans 1:28-32 And because they did not think it worthwhile to acknowledge God, God delivered them over to a corrupt mind so that they do what is not right. They are filled with all unrighteousness, evil, greed, and wickedness. They are full of envy, murder, quarrels, deceit, and malice. They are gossips, slanderers, God-haters, arrogant, proud, boastful, inventors of evil, disobedient to parents, senseless, untrustworthy, unloving, and unmerciful. Although they know God’s just sentence — that those who practice such things deserve to die — they not only do them, but even applaud others who practice them.
 
->Titus 3:3 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
+>Titus 3:3 For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
 
 Do you feel that despair yet? Wretched people that we are? Who can save us?
 
@@ -83,7 +83,7 @@ Do you feel that despair yet? Wretched people that we are? Who can save us?
 
 ### God hath, in the covenant of grace
 
->Ephesians 1:3–14 (CSB)  
+>Ephesians 1:3–14  
 ><sup>3</sup> Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. 
 >
 ><sup>4</sup> For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. 
@@ -126,15 +126,15 @@ Who is like my God and who dares to compare to him? He alone is pure, holy, love
 
 ---
 
->Luke 22:31–32 (CSB) “Simon, Simon, look out. Satan has asked to sift you like wheat. But I have prayed for you that your faith may not fail. And you, when you have turned back, strengthen your brothers.”
+>Luke 22:31–32 “Simon, Simon, look out. Satan has asked to sift you like wheat. But I have prayed for you that your faith may not fail. And you, when you have turned back, strengthen your brothers.”
 
 ### mercifully provided that believers so sinning and falling be renewed through repentance unto salvation.
 
->Romans 8:34 (CSB) Who is the one who condemns? Christ Jesus is the one who died, but even more, has been raised; he also is at the right hand of God and intercedes for us.
+>Romans 8:34 Who is the one who condemns? Christ Jesus is the one who died, but even more, has been raised; he also is at the right hand of God and intercedes for us.
 
->Titus 3:4–7 (CSB) But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior so that, having been justified by his grace, we may become heirs with the hope of eternal life.
+>Titus 3:4–7 But when the kindness of God our Savior and his love for mankind appeared, he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Savior so that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
->Romans 9:15-16 (CSB) For he tells Moses, I will show mercy to whom I will show mercy, and I will have compassion on whom I will have compassion. So then, it does not depend on human will or effort but on God who shows mercy.
+>Romans 9:15-16 For he tells Moses, I will show mercy to whom I will show mercy, and I will have compassion on whom I will have compassion. So then, it does not depend on human will or effort but on God who shows mercy.
 
 You hear Christ adamantly proclaim this absolutely truth, "Repent, because the kingdom of heaven has come near!" (Matthew 4:17)
 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 29 (CSB)  
+>Psalm 29  
 ><sup></sup> A psalm of David. 
 >
 ><sup>1</sup> Ascribe to the LORD, you heavenly beings, ascribe to the LORD glory and strength. 

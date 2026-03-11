@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 115 (CSB)  
+>Psalm 115  
 ><sup>1</sup> Not to us, LORD, not to us, but to your name give glory because of your faithful love, because of your truth. 
 >
 ><sup>2</sup> Why should the nations say, “Where is their God?” 

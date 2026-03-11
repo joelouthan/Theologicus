@@ -4,7 +4,7 @@
 
 ## The Text
 
->1 Timothy 4:1–5 (CSB)  
+>1 Timothy 4:1–5  
 ><sup>1</sup> Now the Spirit explicitly says that in later times some will depart from the faith, paying attention to deceitful spirits and the teachings of demons, 
 >
 ><sup>2</sup> through the hypocrisy of liars whose consciences are seared. 
@@ -21,7 +21,7 @@ The heart of man is a idol factory says John Calvin. Why so? We have a hard time
 
 When you say it like that, it sounds almost insane because it is insane. God said so:
 
->Isaiah 37:19 (CSB) They have thrown their gods into the fire, for they were not gods but made from wood and stone by human hands. So they have destroyed them.
+>Isaiah 37:19 They have thrown their gods into the fire, for they were not gods but made from wood and stone by human hands. So they have destroyed them.
 
 We laugh at ancient people and think they were so dumb. Yet, we have the tendency to turn right around and with our mouths and our actions declare:
 
@@ -37,7 +37,7 @@ Happy. Okay. Fulfilled. Right?  All of those are found in God alone.
 
 How did David pray it?
 
->Psalm 17:14-15 (CSB)  
+>Psalm 17:14-15  
 >With your hand, LORD, save me from men,  
 >from men of the world  
 >whose portion is in this life:  
@@ -51,7 +51,7 @@ I mention this because what Paul is describing and warning Timothy is the idol o
 
 Sounds insane, right? But most American Christians do it. I don't care what your church background is--Baptist or Charismatic--we all do it. Yet, Romans 4 dismisses that foolish notion:
 
->Romans 4:1-5 (CSB) What then will we say that Abraham, our forefather according to the flesh, has found? If Abraham was justified by works, he has something to boast about—but not before God. For what does the Scripture say? Abraham believed God, and it was credited to him for righteousness. Now to the one who works, pay is not credited as a gift, but as something owed. But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness.
+>Romans 4:1-5 What then will we say that Abraham, our forefather according to the flesh, has found? If Abraham was justified by works, he has something to boast about—but not before God. For what does the Scripture say? Abraham believed God, and it was credited to him for righteousness. Now to the one who works, pay is not credited as a gift, but as something owed. But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness.
 
 In other words,...
 ### We do not put God in our debt
@@ -60,7 +60,7 @@ And Paul is not even using that strong enough language.
 
 Look at what Christ says about those who would oppress people with religion:
 
->Matthew 23:1-15 (CSB) Then Jesus spoke to the crowds and to his disciples: “The scribes and the Pharisees are seated in the chair of Moses. Therefore do whatever they tell you, and observe it. But don’t do what they do, because they don’t practice what they teach. They tie up heavy loads that are hard to carry and put them on people’s shoulders, but they themselves aren’t willing to lift a finger to move them. They do everything to be seen by others: They enlarge their phylacteries and lengthen their tassels. They love the place of honor at banquets, the front seats in the synagogues, greetings in the marketplaces, and to be called ‘Rabbi’ by people.
+>Matthew 23:1-15 Then Jesus spoke to the crowds and to his disciples: “The scribes and the Pharisees are seated in the chair of Moses. Therefore do whatever they tell you, and observe it. But don’t do what they do, because they don’t practice what they teach. They tie up heavy loads that are hard to carry and put them on people’s shoulders, but they themselves aren’t willing to lift a finger to move them. They do everything to be seen by others: They enlarge their phylacteries and lengthen their tassels. They love the place of honor at banquets, the front seats in the synagogues, greetings in the marketplaces, and to be called ‘Rabbi’ by people.
 >
 >“But you are not to be called ‘Rabbi,’ because you have one Teacher, and you are all brothers and sisters. Do not call anyone on earth your father, because you have one Father, who is in heaven. You are not to be called instructors either, because you have one Instructor, the Messiah. The greatest among you will be your servant. Whoever exalts himself will be humbled, and whoever humbles himself will be exalted.
 >
@@ -80,7 +80,7 @@ What shall we do?
 
 ### Come to Christ
 
->Matthew 11:28-30 (CSB) “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
+>Matthew 11:28-30 “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
 
 Christ said, "Come to him. Destroy your idols who just like the Egyptian slavemasters that will break your back, your heart, and your soul. Come to him. He will take on the full burden of our sin and we get the light and easy yoke of his righteousness. When we do that, we get to finally, completely, satisfactorily rest in Him alone.
 

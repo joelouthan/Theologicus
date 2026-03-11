@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 23:4c (CSB)   for you are with me
+>Psalm 23:4c   for you are with me
 
 ## The Prayer
 

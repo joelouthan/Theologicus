@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 4 (CSB)  
+>Psalm 4  
 ><sup></sup> For the choir director: with stringed instruments. A psalm of David. 
 >
 ><sup>1</sup> Answer me when I call, God, who vindicates me. You freed me from affliction; be gracious to me and hear my prayer. 

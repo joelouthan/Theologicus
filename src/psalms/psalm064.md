@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 64 (CSB)  
+>Psalm 64  
 ><sup></sup> For the choir director. A psalm of David. 
 >
 ><sup>1</sup> God, hear my voice when I am in anguish. Protect my life from the terror of the enemy. 

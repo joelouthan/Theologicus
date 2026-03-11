@@ -18,7 +18,7 @@ Let us search for the answer.
 
 ## The Text
 
->Genesis 6:8-9 (CSB) Noah, however, found favor with the LORD.
+>Genesis 6:8-9 Noah, however, found favor with the LORD.
 
 ><sup> 9 </sup>These are the family records of Noah. Noah was a righteous man, blameless among his contemporaries; Noah walked with God.
 
@@ -26,7 +26,7 @@ Let us search for the answer.
 
 In order to be saved from sin and saved from this body of death, the Lord must look upon your wicked soul, your treasonous existence and see that you are so far from him, must grant you favor.
 
->Genesis 6:8-10 (CSB) Noah, however, found favor with the LORD.
+>Genesis 6:8-10 Noah, however, found favor with the LORD.
 
 Growing up in church, because of the foolishness of our assumptions that we must be good based on what we have done, we see this verse and think, "Oh, Noah must have been a righteous fellow. That is why he found favor in the eyes of the Lord. Noah must have been worshipping God, giving tithes, attended church, and always blessing the Lord's name. Noah was the only righteous one in the land.
 
@@ -34,7 +34,7 @@ But that is not what the text says!
 
 Go back to verse 5:
 
->Genesis 6:5-7 (CSB) When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time,the LORD regretted that he had made man on the earth, and he was deeply grieved. Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky—for I regret that I made them.”
+>Genesis 6:5-7 When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time,the LORD regretted that he had made man on the earth, and he was deeply grieved. Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky—for I regret that I made them.”
 
 Let me ask a silly question: was Noah human? Did Noah have a human mind?
 
@@ -50,19 +50,19 @@ Here's what the world wants: I just want the things of God like provision, riche
 
 Every inclination of mankind was nothing but evil all the time.
 
-## The Gospel
+## His Gospel
 
 To say Noah was the exception or in the case with our church culture, the normal and the usual. "God has to save Noah because Noah was doing the right things" wasn't the case because there isn't another case like that in the Bible.
 
 What I do find in the Bible is that we are sinners and God came to us:
 
->Mark 2:17 (CSB) When Jesus heard this, he told them, “It is not those who are well who need a doctor, but those who are sick. I didn’t come to call the righteous, but sinners.”
+>Mark 2:17 When Jesus heard this, he told them, “It is not those who are well who need a doctor, but those who are sick. I didn’t come to call the righteous, but sinners.”
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
->Romans 5:8 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us.
+>Romans 5:8 But God proves his own love for us in that while we were still sinners, Christ died for us.
 
->Ephesians 2:1-5 (CSB) And you were dead in your trespasses and sinsin which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. But God, who is rich in mercy, because of his great love that he had for us,made us alive with Christ even though we were dead in trespasses. You are saved by grace!
+>Ephesians 2:1-5 And you were dead in your trespasses and sinsin which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. But God, who is rich in mercy, because of his great love that he had for us,made us alive with Christ even though we were dead in trespasses. You are saved by grace!
 
 Do a character study. Tell me what Adam was doing or Abraham or Jacob or David or Ruth or Isaiah or John the Baptist.
 
@@ -80,17 +80,17 @@ We are declared righteous.
 
 >Noah was a righteous man
 
->2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+>2 Corinthians 5:21 He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
 We are declared blameless.
 
 >blameless among his contemporaries
 
->Isaiah 43:25 (CSB) “I am the one,I sweep away your transgressions  
+>Isaiah 43:25 “I am the one,I sweep away your transgressions  
 >for my own sake  
 >and remember your sins no more.
 
->Psalm 103:10-12 (CSB) He has not dealt with us as our sins deserve  
+>Psalm 103:10-12 He has not dealt with us as our sins deserve  
 >or repaid us according to our iniquities.  
 >11 For as high as the heavens are above the earth,  
 >so great is his faithful love  
@@ -101,11 +101,11 @@ We are declared blameless.
 
 ## Our Response
 
->1 John 1:9 (CSB) If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
+>1 John 1:9 If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
 
 ### We are to confess our sins to God
 
->Psalm 51:1-4 (CSB) Be gracious to me, God,  
+>Psalm 51:1-4 Be gracious to me, God,  
 >according to your faithful love;  
 >according to your abundant compassion,  
 >blot out my rebellion.  

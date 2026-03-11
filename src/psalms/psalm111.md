@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 111 (CSB)  
+>Psalm 111  
 ><sup>1</sup> Hallelujah! I will praise the LORD with all my heart in the assembly of the upright and in the congregation. 
 >
 ><sup>2</sup> The LORD’s works are great, studied by all who delight in them. 

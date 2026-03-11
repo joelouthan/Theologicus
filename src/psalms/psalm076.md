@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 76 (CSB)  
+>Psalm 76  
 ><sup></sup> For the choir director: with stringed instruments. A psalm of Asaph. A song. 
 >
 ><sup>1</sup> God is known in Judah; his name is great in Israel. 

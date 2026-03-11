@@ -8,7 +8,7 @@
 
 ## The Text
 
->Galatians 1:6–10 (CSB) I am amazed that you are so quickly turning away from him who called you by the grace of Christ and are turning to a different gospel—not that there is another gospel, but there are some who are troubling you and want to distort the gospel of Christ. But even if we or an angel from heaven should preach to you a gospel contrary to what we have preached to you, a curse be on him! As we have said before, I now say again: If anyone is preaching to you a gospel contrary to what you received, a curse be on him! For am I now trying to persuade people, or God? Or am I striving to please people? If I were still trying to please people, I would not be a servant of Christ.
+>Galatians 1:6–10 I am amazed that you are so quickly turning away from him who called you by the grace of Christ and are turning to a different gospel—not that there is another gospel, but there are some who are troubling you and want to distort the gospel of Christ. But even if we or an angel from heaven should preach to you a gospel contrary to what we have preached to you, a curse be on him! As we have said before, I now say again: If anyone is preaching to you a gospel contrary to what you received, a curse be on him! For am I now trying to persuade people, or God? Or am I striving to please people? If I were still trying to please people, I would not be a servant of Christ.
 
 ## The Chapter
 
@@ -26,7 +26,7 @@ In the Reformed doctrine of *sola Scriptura*, one key teaching remains primary: 
 
 This reminds me of Luther and Calvin's hard counter to the Nicolaus Copernicus' theory of heliocentric (that is our system revolves around the sun). Luther and Calvin's view held to a widely accepted common belief that our system revolved around the earth.[^1] Calvin and Luther held staunchly to this and defended it because of the account in Joshua 10:
 
->Joshua 10:13 (CSB) And the sun stood still and the moon stopped until the nation took vengeance on its enemies. Isn’t this written in the Book of Jashar? So the sun stopped in the middle of the sky and delayed its setting almost a full day.
+>Joshua 10:13 And the sun stood still and the moon stopped until the nation took vengeance on its enemies. Isn’t this written in the Book of Jashar? So the sun stopped in the middle of the sky and delayed its setting almost a full day.
 
 The Bible said. "The sun and the moon stood still. Obviously, that means they rotate around the earth." Which we now know, thanks to the works of Galileo Galilei, among many others, that indeed, our system revolves around the sun.
 
@@ -34,11 +34,11 @@ Wny do I say all of that? I have long told others, "The Bible is not a science b
 
 Yet, the author of the Bible is the Creator of all things. All things include historical events and scientific facts. For all events are by his sovereignty, for:
 
->Job 42:2 (CSB) I know that you can do anything and no plan of yours can be thwarted.
+>Job 42:2 I know that you can do anything and no plan of yours can be thwarted.
 
 And all science and knowledge come from him, for:
 
->1 Corinthians 3:21-23 (CSB) So let no one boast in human leaders, for everything is yours — whether Paul or Apollos or Cephas or the world or life or death or things present or things to come — everything is yours, and you belong to Christ, and Christ belongs to God.
+>1 Corinthians 3:21-23 So let no one boast in human leaders, for everything is yours — whether Paul or Apollos or Cephas or the world or life or death or things present or things to come — everything is yours, and you belong to Christ, and Christ belongs to God.
 
 That is all fine and good, but what about the theory of evolution?
 

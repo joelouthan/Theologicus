@@ -4,7 +4,7 @@
 
 ## The Text
 
->1 Timothy 2:1-7 (CSB) First of all, then, I urge that petitions, prayers, intercessions, and thanksgivings be made for everyone, for kings and all those who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity. This is good, and it pleases God our Savior, who wants everyone to be saved and to come to the knowledge of the truth.
+>1 Timothy 2:1-7 First of all, then, I urge that petitions, prayers, intercessions, and thanksgivings be made for everyone, for kings and all those who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity. This is good, and it pleases God our Savior, who wants everyone to be saved and to come to the knowledge of the truth.
 >
 >For there is one God and one mediator between God and mankind, the man Christ Jesus, who gave himself as a ransom for all, a testimony at the proper time.
 >
@@ -18,7 +18,7 @@ Let us boldly petition God for God for everyone. What does that mean?
 
 Look at Luke's account of the Lord's prayer.
 
->Luke 11:5-13 (CSB) He also said to them, “Suppose one of you has a friend and goes to him at midnight and says to him, ‘Friend, lend me three loaves of bread, because a friend of mine on a journey has come to me, and I don’t have anything to offer him.’ Then he will answer from inside and say, ‘Don’t bother me! The door is already locked, and my children and I have gone to bed. I can’t get up to give you anything.’ I tell you, even though he won’t get up and give him anything because he is his friend, yet because of his friend’s shameless boldness, he will get up and give him as much as he needs.
+>Luke 11:5-13 He also said to them, “Suppose one of you has a friend and goes to him at midnight and says to him, ‘Friend, lend me three loaves of bread, because a friend of mine on a journey has come to me, and I don’t have anything to offer him.’ Then he will answer from inside and say, ‘Don’t bother me! The door is already locked, and my children and I have gone to bed. I can’t get up to give you anything.’ I tell you, even though he won’t get up and give him anything because he is his friend, yet because of his friend’s shameless boldness, he will get up and give him as much as he needs.
 >
 >“So I say to you, ask, and it will be given to you. Seek, and you will find. Knock, and the door will be opened to you. For everyone who asks receives, and the one who seeks finds, and to the one who knocks, the door will be opened. What father among you, if his son asks for a fish, will give him a snake instead of a fish? Or if he asks for an egg, will give him a scorpion? If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him? ”
 
@@ -33,7 +33,7 @@ But Jesus tells us to have this mindset and attitude when approaching our Good F
 
 But guess what, you cannot "bug" nor "bother" the God of the universe whose Son actively in his mind actively holds together the molecules of the universe:
 
->Colossians 1:15-20 (CSB) He is the image of the invisible God,  
+>Colossians 1:15-20 He is the image of the invisible God,  
 >the firstborn over all creation.  
 >For everything was created by him,  
 >in heaven and on earth,  
@@ -85,13 +85,13 @@ You know what is the effect of intentionally praying, petitioning, interceding, 
 
 Our Father owns the cattle on a thousand hills. We are so stupidly wealthy. Kill others with kindness--literally, "money whip" others--so that:
 
->Luke 16:9 (CSB) And I tell you, make friends for yourselves by means of worldly wealth so that when it fails, they may welcome you into eternal dwellings.
+>Luke 16:9 And I tell you, make friends for yourselves by means of worldly wealth so that when it fails, they may welcome you into eternal dwellings.
 
 I am not off subject. Look at what Paul tells us to do: "lead a tranquil and quiet life in all godliness and dignity." Paul never says, "lead a quiet, godly life if your circumstances see fit." No, you cannot control your circumstances--I don't care what prosperity false preachers told you. No, you cannot control other people. But you can lead a godly, tranquil, quiet life and you do so by first praying for others and giving thanks for them.
 
 ### This is good, and it pleases God our Savior, who wants everyone to be saved and to come to the knowledge of the truth
 
->Romans 2:3-4 (CSB) Do you think—anyone of you who judges those who do such things yet do the same—that you will escape God’s judgment? Or do you despise the riches of his kindness, restraint, and patience, not recognizing that God’s kindness is intended to lead you to repentance?
+>Romans 2:3-4 Do you think—anyone of you who judges those who do such things yet do the same—that you will escape God’s judgment? Or do you despise the riches of his kindness, restraint, and patience, not recognizing that God’s kindness is intended to lead you to repentance?
 
 You know what these passages are not about? Trying to full some Calvinist vs. non-Calvinist online debate. You know what this passage is about? Look and marvel at the sweetness of God our Savior and his tender mercies and kindness towards mankind.
 
@@ -101,11 +101,11 @@ If you do not know God in this way, ask a friend. Ask your neighbor. Read your B
 
 ### For there is one God and one mediator between God and mankind, the man Christ Jesus, who gave himself as a ransom for all, a testimony at the proper time
 
->Romans 6:8-11 (CSB) Now if we died with Christ, we believe that we will also live with him, because we know that Christ, having been raised from the dead, will not die again. Death no longer rules over him. For the death he died, he died to sin once for all time; but the life he lives, he lives to God. So, you too consider yourselves dead to sin and alive to God in Christ Jesus.
+>Romans 6:8-11 Now if we died with Christ, we believe that we will also live with him, because we know that Christ, having been raised from the dead, will not die again. Death no longer rules over him. For the death he died, he died to sin once for all time; but the life he lives, he lives to God. So, you too consider yourselves dead to sin and alive to God in Christ Jesus.
 
 Sum this up:
 
->Romans 5:8 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us.
+>Romans 5:8 But God proves his own love for us in that while we were still sinners, Christ died for us.
 
 Christ gave his life for his people over 2,000 years ago. The deal is done. The sacrifice is complete. Nothing more to do. His work is complete. We are saved.
 

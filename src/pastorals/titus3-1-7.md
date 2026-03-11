@@ -4,7 +4,7 @@
 
 ## The Text
 
->Titus 3:1–7 (CSB)  
+>Titus 3:1–7  
 ><sup> 1 </sup> Remind them to submit to rulers and authorities, to obey, to be ready for every good work, 
 >
 ><sup> 2 </sup> to slander no one, to avoid fighting, and to be kind, always showing gentleness to all people. 
@@ -29,15 +29,15 @@
 
 For
 
->1 Timothy 2:1-4 (CSB) First of all, then, I urge that petitions, prayers, intercessions, and thanksgivings be made for everyone, 2 for kings and all those who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity. 3 This is good, and it pleases God our Savior, 4 who wants everyone to be saved and to come to the knowledge of the truth.
+>1 Timothy 2:1-4 First of all, then, I urge that petitions, prayers, intercessions, and thanksgivings be made for everyone, 2 for kings and all those who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity. 3 This is good, and it pleases God our Savior, 4 who wants everyone to be saved and to come to the knowledge of the truth.
 
 And
 
->Romans 13:1 (CSB) Let everyone submit to the governing authorities, since there is no authority except from God, and the authorities that exist are instituted by God.
+>Romans 13:1 Let everyone submit to the governing authorities, since there is no authority except from God, and the authorities that exist are instituted by God.
 
 And
 
->1 John 4:7 (CSB) Dear friends, let us love one another, because love is from God, and everyone who loves has been born of God and knows God.
+>1 John 4:7 Dear friends, let us love one another, because love is from God, and everyone who loves has been born of God and knows God.
 
 You are like, "Joseph, these things are not tied together. One is called to submit to governing authorities and the other is to love another. How are they related." But Paul relates them:
 
@@ -65,7 +65,7 @@ Here is the gospel:
 
 ## Christ Appeared: He Saved Us
 
->John 1:16–18 (CSB)  
+>John 1:16–18  
 ><sup> 16 </sup> Indeed, we have all received grace upon grace from his fullness, 
 >
 ><sup> 17 </sup> for the law was given through Moses; grace and truth came through Jesus Christ. 
@@ -74,9 +74,9 @@ Here is the gospel:
 
 And
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
->2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+>2 Corinthians 5:21 He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
 Do you see the perfect work of Christ? Do you see that Jesus Christ, Son of God who is God, and by the very definition of God, does all things good and perfect? And when he appeared as a little bitty baby in the Bethlehem, Christ "saved his people from their sins". Because that little babe, although "grew in stature and in wisdom" (Luke 2:52), will perfectly spend the next 33 years making a beeline to the cross in order that the Father could give our Christ our sin so that God would give his righteousness to us.
 
@@ -96,7 +96,7 @@ Again and again, Christ calls you, encourages you, exhorts you, preaches you, in
 
 No! Christ commands you to give up, give in and **rest in him**.
 
->Matthew 11:28–30 (CSB)  
+>Matthew 11:28–30  
 ><sup> 28 </sup> “Come to me, all of you who are weary and burdened, and I will give you rest. 
 >
 ><sup> 29 </sup> Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. 
@@ -111,28 +111,28 @@ Take this gift of God's sweet loving rest. It is yours because you are in Christ
 
 The Father sends the Son to do what we could not do and to die in our place. But Christ said this of himself:
 
->John 16:7 (CSB) Nevertheless, I am telling you the truth. It is for your benefit that I go away, because if I don’t go away the Counselor will not come to you. If I go, I will send him to you.
+>John 16:7 Nevertheless, I am telling you the truth. It is for your benefit that I go away, because if I don’t go away the Counselor will not come to you. If I go, I will send him to you.
 
 God himself will dwell in the hearts of men. He does so by sending His Spirit to come and dwell in the hearts of his people--not temporarily like we saw in the Old Testament--but forever. By the almighty power of the Triune God, he gives you his heart, his Spirit, makes his home in you and gives you peace and righteousness.
 
 From there, you are saved. No second baptism of the Holy Spirit. No waiting around for the filling of the Holy Spirit. God from the day he saved you went to work in you to conform you to the image of his son: 
 
->Romans 8:29 (CSB) For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
+>Romans 8:29 For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
 
->Zechariah 13:8–9 (CSB)  In the whole land— this is the LORD’s declaration— two-thirds will be cut off and die, but a third will be left in it.  
+>Zechariah 13:8–9  In the whole land— this is the LORD’s declaration— two-thirds will be cut off and die, but a third will be left in it.  
 
 > I will put this third through the fire; I will refine them as silver is refined and test them as gold is tested. They will call on my name, and I will answer them. I will say, ‘They are my people’, and they will say, ‘The LORD is our God.’ ”'
 
->Isaiah 48:10 (CSB) Look, I have refined you, but not as silver;  
+>Isaiah 48:10 Look, I have refined you, but not as silver;  
 I have tested you in the furnace of affliction.
 
 See what God has promised. See what God has done. See what God has done. He has told you and me to rest in his Son. Are there sins we must repent? Everyday. But God gave His Son, His Spirit and as a result, the gift of repentance to turn away from sin and death and to turn to him that is life, fullness of joy, and pleasures evermore.
 
 That work in you to conform you to the image of His Son. That is a promise of God. Do we obey? Yes, but that is because God dwells in you. But God promises, He will finish it. All the promises of God are yes and amen.
 
->Philippians 1:6 (CSB) I am sure of this, that he who started a good work in you will carry it on to completion until the day of Christ Jesus.
+>Philippians 1:6 I am sure of this, that he who started a good work in you will carry it on to completion until the day of Christ Jesus.
 
->Hebrews 12:1-2 (CSB) Therefore, since we also have such a large cloud of witnesses surrounding us, let us lay aside every hindrance and the sin that so easily ensnares us. Let us run with endurance the race that lies before us, 2 keeping our eyes on Jesus, the pioneer and perfecter of our faith. For the joy that lay before him, he endured the cross, despising the shame, and sat down at the right hand of the throne of God.
+>Hebrews 12:1-2 Therefore, since we also have such a large cloud of witnesses surrounding us, let us lay aside every hindrance and the sin that so easily ensnares us. Let us run with endurance the race that lies before us, 2 keeping our eyes on Jesus, the pioneer and perfecter of our faith. For the joy that lay before him, he endured the cross, despising the shame, and sat down at the right hand of the throne of God.
 
 Christ is the perfecter and finisher of our faith. He will do the work. Trust in him. Rest in him alone.
 
@@ -140,7 +140,7 @@ Christ is the perfecter and finisher of our faith. He will do the work. Trust in
 
 ## Christ Appeared: He Glorified Us
 
->Romans 8:30 (CSB) And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
+>Romans 8:30 And those he predestined, he also called; and those he called, he also justified; and those he justified, he also glorified.
 
 If Christ perfectly saved us, sanctified us because He is God and He is perfect and He cannot lie and He cannot break promises, then in that promise it is not bad English for Paul to write down these words:
 
@@ -150,7 +150,7 @@ But you might be saying, "Joseph, how can that be? We are not in the end. We hav
 
 Because God is perfect. God doesn't break promises. God does not lie. What God began, he will finished. His great grace and love will bring us all the way home. For:
 
->Romans 8:38–39 (CSB) ... no any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
+>Romans 8:38–39 ... no any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
 
 You might think, "I feel so far from him. How can this be?"
 

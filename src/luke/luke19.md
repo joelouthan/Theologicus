@@ -6,7 +6,7 @@
 
 ## Blessed is He: He Came To Be With Us
 
->Luke 19:1-10 (CSB) He entered Jericho and was passing through. There was a man named Zacchaeus who was a chief tax collector, and he was rich. He was trying to see who Jesus was, but he was not able because of the crowd, since he was a short man. So running ahead, he climbed up a sycamore tree to see Jesus, since he was about to pass that way. When Jesus came to the place, he looked up and said to him, “Zacchaeus, hurry and come down because today it is necessary for me to stay at your house.”
+>Luke 19:1-10 He entered Jericho and was passing through. There was a man named Zacchaeus who was a chief tax collector, and he was rich. He was trying to see who Jesus was, but he was not able because of the crowd, since he was a short man. So running ahead, he climbed up a sycamore tree to see Jesus, since he was about to pass that way. When Jesus came to the place, he looked up and said to him, “Zacchaeus, hurry and come down because today it is necessary for me to stay at your house.”
 >
 >So he quickly came down and welcomed him joyfully. All who saw it began to complain, “He’s gone to stay with a sinful man.”
 >
@@ -14,7 +14,7 @@
 >
 >“Today salvation has come to this house,” Jesus told him, “because he too is a son of Abraham. For the Son of Man has come to seek and to save the lost.”
 
->Revelation 3:14-20 (CSB) “Write to the angel of the church in Laodicea: Thus says the Amen, the faithful and true witness, the originator of God’s creation: I know your works, that you are neither cold nor hot. I wish that you were cold or hot. So, because you are lukewarm, and neither hot nor cold, I am going to vomit you out of my mouth. For you say, ‘I’m rich; I have become wealthy and need nothing,’ and you don’t realize that you are wretched, pitiful, poor, blind, and naked. I advise you to buy from me gold refined in the fire so that you may be rich, white clothes so that you may be dressed and your shameful nakedness not be exposed, and ointment to spread on your eyes so that you may see. As many as I love, I rebuke and discipline. So be zealous and repent. See! I stand at the door and knock. If anyone hears my voice and opens the door, I will come in to him and eat with him, and he with me.
+>Revelation 3:14-20 “Write to the angel of the church in Laodicea: Thus says the Amen, the faithful and true witness, the originator of God’s creation: I know your works, that you are neither cold nor hot. I wish that you were cold or hot. So, because you are lukewarm, and neither hot nor cold, I am going to vomit you out of my mouth. For you say, ‘I’m rich; I have become wealthy and need nothing,’ and you don’t realize that you are wretched, pitiful, poor, blind, and naked. I advise you to buy from me gold refined in the fire so that you may be rich, white clothes so that you may be dressed and your shameful nakedness not be exposed, and ointment to spread on your eyes so that you may see. As many as I love, I rebuke and discipline. So be zealous and repent. See! I stand at the door and knock. If anyone hears my voice and opens the door, I will come in to him and eat with him, and he with me.
 
 1. Was Zacchaeus seen by God because of what he did or was it because Christ was looking for him?
 
@@ -24,7 +24,7 @@
 
 ## Blessed is He: He Came With Ultimate Authority
 
->Luke 19:11-27 (CSB) As they were listening to this, he went on to tell a parable because he was near Jerusalem, and they thought the kingdom of God was going to appear right away.
+>Luke 19:11-27 As they were listening to this, he went on to tell a parable because he was near Jerusalem, and they thought the kingdom of God was going to appear right away.
 >
 >Therefore he said, “A nobleman traveled to a far country to receive for himself authority to be king and then to return. He called ten of his servants, gave them ten minas, and told them, ‘Engage in business until I come back.’
 >
@@ -54,7 +54,7 @@
 
 ## Blessed is He: He Came As King of Kings
 
->Luke 19:28-40 (CSB) When he had said these things, he went on ahead, going up to Jerusalem. As he approached Bethphage and Bethany, at the place called the Mount of Olives, he sent two of the disciples and said, “Go into the village ahead of you. As you enter it, you will find a colt tied there, on which no one has ever sat. Untie it and bring it. If anyone asks you, ‘Why are you untying it?’ say this: ‘The Lord needs it.’”
+>Luke 19:28-40 When he had said these things, he went on ahead, going up to Jerusalem. As he approached Bethphage and Bethany, at the place called the Mount of Olives, he sent two of the disciples and said, “Go into the village ahead of you. As you enter it, you will find a colt tied there, on which no one has ever sat. Untie it and bring it. If anyone asks you, ‘Why are you untying it?’ say this: ‘The Lord needs it.’”
 >
 >So those who were sent left and found it just as he had told them. As they were untying the colt, its owners said to them, “Why are you untying the colt?”
 >
@@ -69,7 +69,7 @@
 >
 >He answered, “I tell you, if they were to keep silent, the stones would cry out.”
 
->Romans 1:18-25 (CSB) For God’s wrath is revealed from heaven against all godlessness and unrighteousness of people who by their unrighteousness suppress the truth, since what can be known about God is evident among them, because God has shown it to them. For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse. For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. Claiming to be wise, they became fools and exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles.
+>Romans 1:18-25 For God’s wrath is revealed from heaven against all godlessness and unrighteousness of people who by their unrighteousness suppress the truth, since what can be known about God is evident among them, because God has shown it to them. For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse. For though they knew God, they did not glorify him as God or show gratitude. Instead, their thinking became worthless, and their senseless hearts were darkened. Claiming to be wise, they became fools and exchanged the glory of the immortal God for images resembling mortal man, birds, four-footed animals, and reptiles.
 >
 >Therefore God delivered them over in the desires of their hearts to sexual impurity, so that their bodies were degraded among themselves. They exchanged the truth of God for a lie, and worshiped and served what has been created instead of the Creator, who is praised forever. Amen.
 
@@ -79,7 +79,7 @@
 
 ## Blessed is He: He Came As The Prophet
 
->Luke 19:41-44 (CSB) As he approached and saw the city, he wept for it, saying, “If you knew this day what would bring peace—but now it is hidden from your eyes. For the days will come on you when your enemies will build a barricade around you, surround you, and hem you in on every side. They will crush you and your children among you to the ground, and they will not leave one stone on another in your midst, because you did not recognize the time when God visited you.”
+>Luke 19:41-44 As he approached and saw the city, he wept for it, saying, “If you knew this day what would bring peace—but now it is hidden from your eyes. For the days will come on you when your enemies will build a barricade around you, surround you, and hem you in on every side. They will crush you and your children among you to the ground, and they will not leave one stone on another in your midst, because you did not recognize the time when God visited you.”
 
 1. Why did many Jews in Jesus' time not believe and obey Jesus?
 
@@ -87,11 +87,11 @@
 
 ## Blessed is He: He Came To Set The Captives Free
 
->Luke 19:45-48 (CSB) He went into the temple and began to throw out those who were selling, and he said, “It is written, my house will be a house of prayer, but you have made it a den of thieves!”
+>Luke 19:45-48 He went into the temple and began to throw out those who were selling, and he said, “It is written, my house will be a house of prayer, but you have made it a den of thieves!”
 >
 >Every day he was teaching in the temple. The chief priests, the scribes, and the leaders of the people were looking for a way to kill him, but they could not find a way to do it, because all the people were captivated by what they heard.
 
->Matthew 11:11-15 (CSB) “Truly I tell you, among those born of women no one greater than John the Baptist has appeared, but the least in the kingdom of heaven is greater than he. From the days of John the Baptist until now, the kingdom of heaven has been suffering violence, and the violent have been seizing it by force. For all the prophets and the law prophesied until John. And if you’re willing to accept it, he is the Elijah who is to come. Let anyone who has ears listen.
+>Matthew 11:11-15 “Truly I tell you, among those born of women no one greater than John the Baptist has appeared, but the least in the kingdom of heaven is greater than he. From the days of John the Baptist until now, the kingdom of heaven has been suffering violence, and the violent have been seizing it by force. For all the prophets and the law prophesied until John. And if you’re willing to accept it, he is the Elijah who is to come. Let anyone who has ears listen.
 
 1. Just how serious was Christ in saving His people from their sins?
 
@@ -100,4 +100,4 @@
 3. How serious do you think God is in saving you? You think he will be quiet and peaceful or will it be violent?
 
 
->Ezekiel 36:25-28 (CSB) I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances. You will live in the land that I gave your ancestors; you will be my people, and I will be your God.
+>Ezekiel 36:25-28 I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances. You will live in the land that I gave your ancestors; you will be my people, and I will be your God.

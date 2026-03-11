@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 136 (CSB)  
+>Psalm 136  
 ><sup>1</sup> Give thanks to the LORD, for he is good. His faithful love endures forever. 
 >
 ><sup>2</sup> Give thanks to the God of gods. His faithful love endures forever. 

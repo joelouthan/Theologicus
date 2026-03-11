@@ -4,11 +4,11 @@
 
 ## The Word
 
->John 3:36 (CSB) The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
+>John 3:36 The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 
 ## The Passage
 
->1 Samuel 4 (CSB)  
+>1 Samuel 4  
 ><sup>1</sup> And Samuel’s words came to all Israel. Israel went out to meet the Philistines in battle and camped at Ebenezer while the Philistines camped at Aphek. 
 >
 ><sup>2</sup> The Philistines lined up in battle formation against Israel, and as the battle intensified, Israel was defeated by the Philistines, who struck down about four thousand men on the battlefield. 
@@ -63,11 +63,11 @@
 
 ### The Execution of God: Our Lives Are In His Hands
 
->Job 14:5 (CSB) Since a person’s days are determined
+>Job 14:5 Since a person’s days are determined
 and the number of his months depends on you,
 and since you have set limits he cannot pass,
 
->Psalm 39:4-5 (CSB) “LORD, make me aware of my end  
+>Psalm 39:4-5 “LORD, make me aware of my end  
 and the number of my days  
 so that I will know how short-lived I am.  
 In fact, you have made my days just inches long,  
@@ -96,13 +96,13 @@ Yes, every human being stands as only a vapor. Selah
 
 ### The Execution of God: We Cannot Manipulate God
 
->Philippians 2:12-13 (CSB) Therefore, my dear friends, just as you have always obeyed, so now, not only in my presence but even more in my absence, work out your own salvation with fear and trembling. For it is God who is working in you both to will and to work according to his good purpose.
+>Philippians 2:12-13 Therefore, my dear friends, just as you have always obeyed, so now, not only in my presence but even more in my absence, work out your own salvation with fear and trembling. For it is God who is working in you both to will and to work according to his good purpose.
 
 We cannot thwart the will of the Almighty God.
 
 Yet, the church is flirting with the notion that we can somehow coerce or manipulate God into doing our will. Like "if you do the right things, God will bless you." Or as if if you do the right things, God somehow owes you something.
 
->Romans 4:2-5 (CSB) If Abraham was justified by works, he has something to boast about — but not before God. For what does the Scripture say? Abraham believed God, and it was credited to him for righteousness. Now to the one who works, pay is not credited as a gift, but as something owed. But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness.
+>Romans 4:2-5 If Abraham was justified by works, he has something to boast about — but not before God. For what does the Scripture say? Abraham believed God, and it was credited to him for righteousness. Now to the one who works, pay is not credited as a gift, but as something owed. But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness.
 
 In a way, this is the gospel. God Almighty demands sheer perfection--that our good deeds (declared good by him alone) must be done with the absolute perfect motive. And that is where we fall short. We cannot do anything that would please him. We half-hearted do a bunch of good things like not-sin and then we sit around and act like, "Okay, God, give me what I want. Where are you?" God is in the heavens and ruling over all creation. He does everything for his glory and good pleasure.
 
@@ -112,9 +112,9 @@ He gave us everything!
 
 How do I know this? Because he gave his only begotten Son, Jesus Christ! And to seal the deal once and for all, he gave his Holy Spirit!
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
->Ephesians 1:7-10 (CSB) In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace that he richly poured out on us with all wisdom and understanding. He made known to us the mystery of his will, according to his good pleasure that he purposed in Christ as a plan for the right time — to bring everything together in Christ, both things in heaven and things on earth in him.
+>Ephesians 1:7-10 In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace that he richly poured out on us with all wisdom and understanding. He made known to us the mystery of his will, according to his good pleasure that he purposed in Christ as a plan for the right time — to bring everything together in Christ, both things in heaven and things on earth in him.
 
 Who is like our God and who dares to compare to him?
 
@@ -126,7 +126,7 @@ Who can condemn us? We have the Christ!
 
 Who can separate us from the love of God? We have the Christ!
 
->Philippians 4:19 (CSB) And my God will supply all your needs according to his riches in glory in Christ Jesus.
+>Philippians 4:19 And my God will supply all your needs according to his riches in glory in Christ Jesus.
 
 >In Christ, you have given me so much that heaven can give me no more.
 >
@@ -164,9 +164,9 @@ The books of Samuel are to declare one thing. Judges may come and go. Prophets m
 
 ### The Execution of God: We Are Not Of The World
 
->John 17:14-16 (CSB) I have given them your word. The world hated them because they are not of the world, just as I am not of the world. I am not praying that you take them out of the world but that you protect them from the evil one. They are not of the world, just as I am not of the world.
+>John 17:14-16 I have given them your word. The world hated them because they are not of the world, just as I am not of the world. I am not praying that you take them out of the world but that you protect them from the evil one. They are not of the world, just as I am not of the world.
 
->Romans 8:17 (CSB) and if children, also heirs — heirs of God and coheirs with Christ — if indeed we suffer with him so that we may also be glorified with him.
+>Romans 8:17 and if children, also heirs — heirs of God and coheirs with Christ — if indeed we suffer with him so that we may also be glorified with him.
 
 We are co-heirs with the Son who is heir of all things.
 
@@ -182,7 +182,7 @@ Who can stand against us? We have the Christ.
 
 ## The Psalm
 
->Psalm 115 (CSB)  
+>Psalm 115  
 ><sup>1</sup> Not to us, LORD, not to us, but to your name give glory because of your faithful love, because of your truth. 
 >
 ><sup>2</sup> Why should the nations say, “Where is their God?” 

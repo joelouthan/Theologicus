@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 150 (CSB)  
+>Psalm 150  
 ><sup>1</sup> Hallelujah! Praise God in his sanctuary. Praise him in his mighty expanse. 
 >
 ><sup>2</sup> Praise him for his powerful acts; praise him for his abundant greatness. 
@@ -56,7 +56,7 @@ And this I know, You have declared Your sweets words to be true (Psalm 119). You
 
 How can I begin to describe the feeling when your sweet words falls upon my ears, eyes, mind and heart?
 
-Psalm 19:7–10 (CSB)  
+Psalm 19:7–10  
 * The instruction of the LORD is perfect,  
 * renewing one’s life;  
 * the testimony of the LORD is trustworthy,  
@@ -288,7 +288,7 @@ Your Son.
 His name is  
 the Lord Jesus Christ.  
 
->Revelation 22:20 (CSB) He who testifies about these things says, “Yes, I am coming soon.” Amen! Come, Lord Jesus!
+>Revelation 22:20 He who testifies about these things says, “Yes, I am coming soon.” Amen! Come, Lord Jesus!
 
 Yes! Come, Lord Jesus! Right now, come, right now!
 

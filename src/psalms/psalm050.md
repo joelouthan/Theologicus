@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 50 (CSB)  
+>Psalm 50  
 ><sup></sup> A psalm of Asaph. 
 >
 ><sup>1</sup> The Mighty One, God, the LORD, speaks; he summons the earth from the rising of the sun to its setting. 

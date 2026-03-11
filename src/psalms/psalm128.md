@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 128 (CSB)  
+>Psalm 128  
 ><sup></sup> A song of ascents. 
 >
 ><sup>1</sup> How happy is everyone who fears the LORD, who walks in his ways! 

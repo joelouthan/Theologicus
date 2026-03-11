@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 102 (CSB)  
+>Psalm 102  
 ><sup></sup> A prayer of a suffering person who is weak and pours out his lament before the LORD. 
 >
 ><sup>1</sup> LORD, hear my prayer; let my cry for help come before you. 

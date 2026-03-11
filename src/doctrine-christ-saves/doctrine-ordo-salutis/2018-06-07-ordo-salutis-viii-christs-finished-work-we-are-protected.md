@@ -61,7 +61,7 @@ Did God kill them right away? No. But what cannot be denied, evident by the enti
 
 Because of sin, God’s wrath and judgment fall in three ways: eventual death, sudden death and a giving over to what we want. All three ways lead to separation from God.
 
->Genesis 3:15–24 (CSB)  
+>Genesis 3:15–24  
 ><sup>15</sup> I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel. 
 >
 ><sup>16</sup> He said to the woman: I will intensify your labor pains; you will bear children with painful effort. Your desire will be for your husband, yet he will rule over you. 

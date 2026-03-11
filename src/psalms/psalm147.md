@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 147 (CSB)  
+>Psalm 147  
 ><sup>1</sup> Hallelujah! How good it is to sing to our God, for praise is pleasant and lovely. 
 >
 ><sup>2</sup> The LORD rebuilds Jerusalem; he gathers Israel’s exiled people. 

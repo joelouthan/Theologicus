@@ -6,7 +6,7 @@
 
 ## The Text
 
->Matthew 1:12–16 (CSB)  
+>Matthew 1:12–16  
 ><sup> 12  </sup>After the exile to Babylon Jeconiah fathered Shealtiel, Shealtiel fathered Zerubbabel,
 >
 ><sup> 13  </sup>Zerubbabel fathered Abiud, Abiud fathered Eliakim, Eliakim fathered Azor,
@@ -27,16 +27,16 @@ Think of what Christ, as God Almighty, responding to the real needs of his peopl
 
 Think on the faith that God gave each one and it is the same faith for you and me.
 
->Genesis 3:15 (CSB) I will put hostility between you and the woman,
+>Genesis 3:15 I will put hostility between you and the woman,
 and between your offspring and her offspring.
 He will strike your head,
 and you will strike his heel.
 
->Galatians 3:16 (CSB) Now the promises were spoken to Abraham and to his seed. He does not say “and to seeds,” as though referring to many, but referring to one, and to your seed, who is Christ.
+>Galatians 3:16 Now the promises were spoken to Abraham and to his seed. He does not say “and to seeds,” as though referring to many, but referring to one, and to your seed, who is Christ.
 
 The faith to believe God. The heart to love God. The mind of Christ. The Spirit to bond us to God.
 
->Isaiah 61:1-3 (CSB) The Spirit of the Lord GOD is on me,  
+>Isaiah 61:1-3 The Spirit of the Lord GOD is on me,  
 >because the LORD has anointed me  
 >to bring good news to the poor.  
 >He has sent me to heal the brokenhearted,  

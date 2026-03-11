@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 47 (CSB)  
+>Psalm 47  
 ><sup></sup> For the choir director. A psalm of the sons of Korah. 
 >
 ><sup>1</sup> Clap your hands, all you peoples; shout to God with a jubilant cry. 

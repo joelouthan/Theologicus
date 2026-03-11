@@ -4,7 +4,7 @@
 
 ## The Text
 
->1 Timothy 4:6–10 (CSB)  
+>1 Timothy 4:6–10  
 ><sup>6</sup> If you point these things out to the brothers and sisters, you will be a good servant of Christ Jesus, nourished by the words of the faith and the good teaching that you have followed. 
 >
 ><sup>7</sup> But have nothing to do with pointless and silly myths. Rather, train yourself in godliness. 
@@ -21,9 +21,9 @@
 
 What are these things?
 
->1 Timothy 4:4-5 (CSB) For everything created by God is good, and nothing is to be rejected if it is received with thanksgiving, since it is sanctified by the word of God and by prayer.
+>1 Timothy 4:4-5 For everything created by God is good, and nothing is to be rejected if it is received with thanksgiving, since it is sanctified by the word of God and by prayer.
 
->Philippians 4:8-9 (CSB) Finally brothers and sisters, whatever is true, whatever is honorable, whatever is just, whatever is pure, whatever is lovely, whatever is commendable—if there is any moral excellence and if there is anything praiseworthy—dwell on these things. Do what you have learned and received and heard from me, and seen in me, and the God of peace will be with you.
+>Philippians 4:8-9 Finally brothers and sisters, whatever is true, whatever is honorable, whatever is just, whatever is pure, whatever is lovely, whatever is commendable—if there is any moral excellence and if there is anything praiseworthy—dwell on these things. Do what you have learned and received and heard from me, and seen in me, and the God of peace will be with you.
 
 We are called not to reject anything that God has said to be good but to receive all things with thanksgiving to God.
 
@@ -65,7 +65,7 @@ As my old professor, Sinclair Ferguson, also said:
 
 You think you knowing nothing and pursuing nothing of God will automatically train you in godliness?
 
->Hebrews 5:11 - 6:3 (CSB) We have a great deal to say about this, and it is difficult to explain, since you have become too lazy to understand. Although by this time you ought to be teachers, you need someone to teach you the basic principles of God’s revelation again. You need milk, not solid food. Now everyone who lives on milk is inexperienced with the message about righteousness, because he is an infant. But solid food is for the mature—for those whose senses have been trained to distinguish between good and evil.
+>Hebrews 5:11 - 6:3 We have a great deal to say about this, and it is difficult to explain, since you have become too lazy to understand. Although by this time you ought to be teachers, you need someone to teach you the basic principles of God’s revelation again. You need milk, not solid food. Now everyone who lives on milk is inexperienced with the message about righteousness, because he is an infant. But solid food is for the mature—for those whose senses have been trained to distinguish between good and evil.
 >
 >Therefore, let us leave the elementary teaching about Christ and go on to maturity, not laying again a foundation of repentance from dead works, faith in God, teaching about ritual washings, laying on of hands, the resurrection of the dead, and eternal judgment. And we will do this if God permits.
 
@@ -89,7 +89,7 @@ Look at the opposite of that direction:
 
 In other words:
 
->Romans 8:3-8 (CSB) For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering, in order that the law’s requirement would be fulfilled in us who do not walk according to the flesh but according to the Spirit. For those who live according to the flesh have their minds set on the things of the flesh, but those who live according to the Spirit have their minds set on the things of the Spirit. Now the mindset of the flesh is death, but the mindset of the Spirit is life and peace. The mindset of the flesh is hostile to God because it does not submit to God’s law. Indeed, it is unable to do so. Those who are in the flesh cannot please God.
+>Romans 8:3-8 For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering, in order that the law’s requirement would be fulfilled in us who do not walk according to the flesh but according to the Spirit. For those who live according to the flesh have their minds set on the things of the flesh, but those who live according to the Spirit have their minds set on the things of the Spirit. Now the mindset of the flesh is death, but the mindset of the Spirit is life and peace. The mindset of the flesh is hostile to God because it does not submit to God’s law. Indeed, it is unable to do so. Those who are in the flesh cannot please God.
 
 I don't care what the Mormons, Catholics, Jehovah Witnesses, and the rest the world wants you to believe: there ain't no third way. There is only eternal life or eternal wrath and death. There is no middle ground.
 
@@ -97,7 +97,7 @@ In other words, you are either in Christ under his protection or you are in his 
 
 ### This saying is trustworthy and deserves full acceptance--For this reason we labor and strive, because we have put our hope in the living God, who is the Savior of all people, especially of those who believe
 
->Romans 8:18-25 (CSB) For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us. For the creation eagerly waits with anticipation for God’s sons to be revealed. For the creation was subjected to futility—not willingly, but because of him who subjected it—in the hope that the creation itself will also be set free from the bondage to decay into the glorious freedom of God’s children. For we know that the whole creation has been groaning together with labor pains until now. Not only that, but we ourselves who have the Spirit as the firstfruits—we also groan within ourselves, eagerly waiting for adoption, the redemption of our bodies. Now in this hope we were saved, but hope that is seen is not hope, because who hopes for what he sees? Now if we hope for what we do not see, we eagerly wait for it with patience.
+>Romans 8:18-25 For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us. For the creation eagerly waits with anticipation for God’s sons to be revealed. For the creation was subjected to futility—not willingly, but because of him who subjected it—in the hope that the creation itself will also be set free from the bondage to decay into the glorious freedom of God’s children. For we know that the whole creation has been groaning together with labor pains until now. Not only that, but we ourselves who have the Spirit as the firstfruits—we also groan within ourselves, eagerly waiting for adoption, the redemption of our bodies. Now in this hope we were saved, but hope that is seen is not hope, because who hopes for what he sees? Now if we hope for what we do not see, we eagerly wait for it with patience.
 
 ## The Gospel
 

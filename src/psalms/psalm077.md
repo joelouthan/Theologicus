@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 77 (CSB)  
+>Psalm 77  
 ><sup></sup> For the choir director: according to Jeduthun. Of Asaph. A psalm. 
 >
 ><sup>1</sup> I cry aloud to God, aloud to God, and he will hear me. 

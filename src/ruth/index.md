@@ -12,7 +12,7 @@ Why is this so distinctive?
 
 In the mercies and providence of God, he had decided to bring about the salvation of his people through the Jewish people--starting with the father of our faith, Abraham.
 
->Deuteronomy 7:7 (CSB) “The LORD had his heart set on you and chose you, not because you were more numerous than all peoples, for you were the fewest of all peoples.
+>Deuteronomy 7:7 “The LORD had his heart set on you and chose you, not because you were more numerous than all peoples, for you were the fewest of all peoples.
 
 He did not choose the Israelites because they were strong but because they were little and weak. Throughout history, God always chooses to display his love and might through the weak and the foolish.
 
@@ -20,7 +20,7 @@ His plan of redemption included the Israelites and through the Israelites but wa
 
 In other words, God's plan of salvation always included the non-Jewish--the Gentiles--that is, you and me, if you are not of Jewish descent.
 
->Romans 11:13a;17a (CSB) Now I am speaking to you Gentiles... you, though a wild olive branch, were grafted in among them and have come to share in the rich root of the cultivated olive tree.
+>Romans 11:13a;17a Now I am speaking to you Gentiles... you, though a wild olive branch, were grafted in among them and have come to share in the rich root of the cultivated olive tree.
 
 Just to show that this was God's plan all along, we have the story of Ruth. Ruth is young Moabite widow, whose people originated with incest and continued into the demonic worship of the Moabite god, Chemosh, brings her to a figurative fork in the road: one leading back to her old way of life or one leading her into unfamiliar path of salvation.
 

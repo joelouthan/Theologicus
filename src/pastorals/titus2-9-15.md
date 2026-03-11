@@ -4,7 +4,7 @@
 
 ## The Text
 
->Titus 2:9–15 (CSB)  
+>Titus 2:9–15  
 ><sup> 9 </sup> Slaves are to submit to their masters in everything, and to be well-pleasing, not talking back 
 >
 ><sup> 10 </sup> or stealing, but demonstrating utter faithfulness, so that they may adorn the teaching of God our Savior in everything. 
@@ -27,9 +27,9 @@
 
 Ooh, super tense wording and visual. Why didn't Paul forsee the wickedness of Europeans and Americans building their little dirt empires on the back of slaves. So uncomfortable, right? Modern, mostly Western world version of slavery is explicitly forbidden by God as wicked sin against Him and the specific consequence is for the kidnapper to be put to death.
 
->Exodus 21:16 (CSB) Whoever kidnaps a person must be put to death, whether he sells him or the person is found in his possession.
+>Exodus 21:16 Whoever kidnaps a person must be put to death, whether he sells him or the person is found in his possession.
 
->Deuteronomy 24:7 (CSB) “If a man is discovered kidnapping one of his Israelite brothers, whether he treats him as a slave or sells him, the kidnapper must die. You must purge the evil from you.
+>Deuteronomy 24:7 “If a man is discovered kidnapping one of his Israelite brothers, whether he treats him as a slave or sells him, the kidnapper must die. You must purge the evil from you.
 
 ><sup> 11 </sup> For the grace of God has appeared, bringing salvation for all people, <sup> 12 </sup> instructing us to deny godlessness and worldly lusts and to live in a sensible, righteous, and godly way in the present age, <sup> 13 </sup> while we wait for the blessed hope, the appearing of the glory of our great God and Savior, Jesus Christ.
 
@@ -39,13 +39,13 @@ Sometimes, slavery in the Bible was the payment of a debt that the debtee could 
 
 God sent his Son to ransom us from sin and death. For:
 
->1 Corinthians 6:19-20 (CSB) Don’t you know that your body is a temple of the Holy Spirit who is in you, whom you have from God? You are not your own, for you were bought at a price. So glorify God with your body.
+>1 Corinthians 6:19-20 Don’t you know that your body is a temple of the Holy Spirit who is in you, whom you have from God? You are not your own, for you were bought at a price. So glorify God with your body.
 
 If you are in Christ, you and I belong to Him alone. The same way a slave in the broken, sin-filled, depraved world is forever bonded to their master, we in this new kingdom of God is forever bonded to our master, Jesus Christ.
 
 Listen, our master is sweetest name you will ever know. He doesn't put more pressure on you and more laws on your and more work on you. No! God gives us His Spirit so that we are adopted as His children, get to enjoy the freedom of the glory of God. (Romans 8:14-21) God gave us His Son to take away your back breaking sin and despair to lovingly, graciously, mercifully exchange it for His own righteousness so You will be with him forever and ever. For, Christ command us to...
 
->Matthew 11:28-30 (CSB) “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
+>Matthew 11:28-30 “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
 
 Christ says, "Come to me. Let me take that thing that is crushing you so can possess the freedom of God. Give it to me and I will give you all that I have." (Hebrews 1:1-2; Romans 8:16-17)
 
@@ -55,7 +55,7 @@ We can take these Titus verses and make them about our employers or our bosses. 
 
 How does this ownership happen? How does this purchase happened? How do this oneness and bonding happen? Did we contribute anything to making it happen? Absolutely not. For we:
 
->Ephesians 2:1-2 (CSB) And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient.
+>Ephesians 2:1-2 And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient.
 
 We were once dead in our sins. 
 
@@ -73,7 +73,7 @@ Now why do I mention that? Because that is the driven force and the power behind
 
 Christ appeared.
 
->John 1:14-18 (CSB) The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth. (John testified concerning him and exclaimed, “This was the one of whom I said, ‘The one coming after me ranks ahead of me, because he existed before me.’ ”) Indeed, we have all received grace upon grace from his fullness, for the law was given through Moses; grace and truth came through Jesus Christ. No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side —he has revealed him.
+>John 1:14-18 The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth. (John testified concerning him and exclaimed, “This was the one of whom I said, ‘The one coming after me ranks ahead of me, because he existed before me.’ ”) Indeed, we have all received grace upon grace from his fullness, for the law was given through Moses; grace and truth came through Jesus Christ. No one has ever seen God. The one and only Son, who is himself God and is at the Father’s side —he has revealed him.
 
 Christ appeared. And he didn't come empty handed. He came to save His people from their sins.
 
@@ -85,7 +85,7 @@ Try as they might, the Israelites in the Old Testament could not successfully ob
 
 But God knew that. I will never forget the sweetness of Psalm 103:
 
-> Psalm 103:9–14 (CSB)  
+> Psalm 103:9–14  
 > <sup>9 </sup>He will not always accuse us  
 > or be angry forever.  
 > <sup>10 </sup>He has not dealt with us as our sins deserve  
@@ -108,17 +108,17 @@ God knew that about the Israelites. He knew that they would fail and rebel and s
 
 So now the people of God have the son of God. Which means we have the Spirit of God and it means we have the heart of God. Which means, we get to obey God. We get to glorify God and enjoy him forever.
 
->Ezekiel 36:25-27 (CSB) I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
+>Ezekiel 36:25-27 I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
 
 God has not left you and me to die in this world. God has saved us so that we would live unto Him in this age and the age to come to the glory of His Son.
 
 As Christ said, you and me are in the end times. This is the end game. Christ will come again, in the glorious power. For Christ said this that...
 
->Matthew 24:30-31 (CSB) ... the sign of the Son of Man will appear in the sky, and then all the peoples of the earth will mourn; and they will see the Son of Man coming on the clouds of heaven with power and great glory. He will send out his angels with a loud trumpet, and they will gather his elect from the four winds, from one end of the sky to the other.
+>Matthew 24:30-31 ... the sign of the Son of Man will appear in the sky, and then all the peoples of the earth will mourn; and they will see the Son of Man coming on the clouds of heaven with power and great glory. He will send out his angels with a loud trumpet, and they will gather his elect from the four winds, from one end of the sky to the other.
 
 That is where our hope lies--in the returning of His Son, that His kingdom would be complete and firmly perfectly established. Where:
 
->Revelation 21:3-4 (CSB) Then I heard a loud voice from the throne: Look, God’s dwelling is with humanity, and he will live with them. They will be his peoples, and God himself will be with them and will be their God. He will wipe away every tear from their eyes. Death will be no more; grief, crying, and pain will be no more, because the previous things have passed away.
+>Revelation 21:3-4 Then I heard a loud voice from the throne: Look, God’s dwelling is with humanity, and he will live with them. They will be his peoples, and God himself will be with them and will be their God. He will wipe away every tear from their eyes. Death will be no more; grief, crying, and pain will be no more, because the previous things have passed away.
 
 ### One with Christ: proclaim what He has done for us
 
@@ -126,6 +126,6 @@ That is where our hope lies--in the returning of His Son, that His kingdom would
 
 Because God's word is true and declares and defines our identity in Christ, go and tell the world.
 
->1 John 3:18 (CSB) Little children, let us not love in word or speech, but in action and in truth.
+>1 John 3:18 Little children, let us not love in word or speech, but in action and in truth.
 
 No weightless talk. No empty speeches. No social media posts that makes us sound godly and smart. But real love. Loving God and loving our neighbor as ourselves. How does that look like? It starts by proclaiming these words to your kids, your family, your parents, your neighbors and figuring out how to love them well by giving over your time, effort, energy, money and resources. Do this until Christ comes back. We do this because we have Christ and we have everything.

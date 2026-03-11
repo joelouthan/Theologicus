@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 104 (CSB)  
+>Psalm 104  
 ><sup>1</sup> My soul, bless the LORD! LORD my God, you are very great; you are clothed with majesty and splendor. 
 >
 ><sup>2</sup> He wraps himself in light as if it were a robe, spreading out the sky like a canopy, 

@@ -4,15 +4,15 @@
 
 ## The Introduction
 
->Romans 8:34 (CSB) Who is the one who condemns? Christ Jesus is the one who died, but even more, has been raised; he also is at the right hand of God and intercedes for us.
+>Romans 8:34 Who is the one who condemns? Christ Jesus is the one who died, but even more, has been raised; he also is at the right hand of God and intercedes for us.
 
 Let’s try to find a verse that sums up the whole Bible concerning the gospel of our Lord Jesus Christ, and you will have your choice of a few verses:
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
->Galatians 2:20 (CSB) I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
+>Galatians 2:20 I have been crucified with Christ, and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.
 
->Romans 5:8 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us.
+>Romans 5:8 But God proves his own love for us in that while we were still sinners, Christ died for us.
 
 … just to name a few.
 
@@ -50,7 +50,7 @@ David- This one is a keeper. Whom God called “a man after my own heart,” who
 
 And yet, look at what Paul says about all the sins of the Old Testament saints:
 
->Romans 3:21–26 (CSB) But now, apart from the law, the righteousness of God has been revealed, attested by the Law and the Prophets. The righteousness of God is through faith in Jesus Christ to all who believe, since there is no distinction. **For all have sinned and fall short of the glory of God; they are justified freely by his grace through the redemption that is in Christ Jesus. God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.**
+>Romans 3:21–26 But now, apart from the law, the righteousness of God has been revealed, attested by the Law and the Prophets. The righteousness of God is through faith in Jesus Christ to all who believe, since there is no distinction. **For all have sinned and fall short of the glory of God; they are justified freely by his grace through the redemption that is in Christ Jesus. God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.**
 
 The old saints were just as jacked up as any sinner who ever lived, but they were not given a free pass. What saved the saints of old is the same thing that saved the saints of the new (including you and me) and that is the cross of Jesus Christ.
 
@@ -64,11 +64,11 @@ So, because of Jesus Christ, who lived, died, buried, and rose again to save his
 
 First, he is at the right hand of the Father. That might not mean much to you or me. My kids sit at my right hand all the time when we are watching cartoons. But to God, it is everything:
 
->Daniel 7:9–14 (CSB) “As I kept watching, thrones were set in place, and the Ancient of Days took his seat. His clothing was white like snow, and the hair of his head like whitest wool. His throne was flaming fire; its wheels were blazing fire. A river of fire was flowing, coming out from his presence. Thousands upon thousands served him; ten thousand times ten thousand stood before him. The court was convened, and the books were opened. “I watched, then, because of the sound of the arrogant words the horn was speaking. As I continued watching, the beast was killed and its body destroyed and given over to the burning fire. As for the rest of the beasts, their dominion was removed, but an extension of life was granted to them for a certain period of time. I continued watching in the night visions, and suddenly one like a son of man was coming with the clouds of heaven. He approached the Ancient of Days and was escorted before him. He was given dominion and glory and a kingdom, so that those of every people, nation, and language should serve him. His dominion is an everlasting dominion that will not pass away, and his kingdom is one that will not be destroyed.
+>Daniel 7:9–14 “As I kept watching, thrones were set in place, and the Ancient of Days took his seat. His clothing was white like snow, and the hair of his head like whitest wool. His throne was flaming fire; its wheels were blazing fire. A river of fire was flowing, coming out from his presence. Thousands upon thousands served him; ten thousand times ten thousand stood before him. The court was convened, and the books were opened. “I watched, then, because of the sound of the arrogant words the horn was speaking. As I continued watching, the beast was killed and its body destroyed and given over to the burning fire. As for the rest of the beasts, their dominion was removed, but an extension of life was granted to them for a certain period of time. I continued watching in the night visions, and suddenly one like a son of man was coming with the clouds of heaven. He approached the Ancient of Days and was escorted before him. He was given dominion and glory and a kingdom, so that those of every people, nation, and language should serve him. His dominion is an everlasting dominion that will not pass away, and his kingdom is one that will not be destroyed.
 
 And to naysayers who would say, “Nah, I don’t care how obvious the Son of Man reference is. That is not Jesus Christ.” Except, Paul writes:
 
->Ephesians 1:15–23 (CSB) This is why, since I heard about your faith in the Lord Jesus and your love for all the saints, I never stop giving thanks for you as I remember you in my prayers. I pray that the God of our Lord Jesus Christ, the glorious Father, would give you the Spirit of wisdom and revelation in the knowledge of him. I pray that the eyes of your heart may be enlightened so that you may know what is the hope of his calling, what is the wealth of his glorious inheritance in the saints, and what is the immeasurable greatness of his power toward us who believe, according to the mighty working of his strength. He exercised this power in Christ by raising him from the dead and seating him at his right hand in the heavens—far above every ruler and authority, power and dominion, and every title given, not only in this age but also in the one to come. And he subjected everything under his feet and appointed him as head over everything for the church, which is his body, the fullness of the one who fills all things in every way.
+>Ephesians 1:15–23 This is why, since I heard about your faith in the Lord Jesus and your love for all the saints, I never stop giving thanks for you as I remember you in my prayers. I pray that the God of our Lord Jesus Christ, the glorious Father, would give you the Spirit of wisdom and revelation in the knowledge of him. I pray that the eyes of your heart may be enlightened so that you may know what is the hope of his calling, what is the wealth of his glorious inheritance in the saints, and what is the immeasurable greatness of his power toward us who believe, according to the mighty working of his strength. He exercised this power in Christ by raising him from the dead and seating him at his right hand in the heavens—far above every ruler and authority, power and dominion, and every title given, not only in this age but also in the one to come. And he subjected everything under his feet and appointed him as head over everything for the church, which is his body, the fullness of the one who fills all things in every way.
 
 So Christ is ruling and reigning over all creation. Cool, cool, cool. Got it.
 

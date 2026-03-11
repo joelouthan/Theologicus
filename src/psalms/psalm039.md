@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 39 (CSB)  
+>Psalm 39  
 ><sup></sup> For the choir director, for Jeduthun. A psalm of David. 
 >
 ><sup>1</sup> I said, “I will guard my ways so that I may not sin with my tongue; I will guard my mouth with a muzzle as long as the wicked are in my presence.” 

@@ -6,7 +6,7 @@
 
 ## The Text
 
->Matthew 4:23–25 (CSB)  
+>Matthew 4:23–25  
 ><sup>23</sup> Now Jesus began to go all over Galilee, teaching in their synagogues, preaching the good news of the kingdom, and healing every disease and sickness among the people. 
 >
 ><sup>24</sup> Then the news about him spread throughout Syria. So they brought to him all those who were afflicted, those suffering from various diseases and intense pains, the demon-possessed, the epileptics, and the paralytics. And he healed them. 

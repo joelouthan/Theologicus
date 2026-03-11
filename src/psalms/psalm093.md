@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 93 (CSB)  
+>Psalm 93  
 ><sup> 1  </sup>The LORD reigns! He is robed in majesty; the LORD is robed, enveloped in strength. The world is firmly established; it cannot be shaken. 
 >
 ><sup> 2  </sup>Your throne has been established from the beginning; you are from eternity. 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 6 (CSB)  
+>Psalm 6  
 ><sup></sup> For the choir director: with stringed instruments, according to Sheminith. A psalm of David. 
 >
 ><sup>1</sup> LORD, do not rebuke me in your anger; do not discipline me in your wrath. 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 112 (CSB)  
+>Psalm 112  
 ><sup>1</sup> Hallelujah! Happy is the person who fears the LORD, taking great delight in his commands. 
 >
 ><sup>2</sup> His descendants will be powerful in the land; the generation of the upright will be blessed. 

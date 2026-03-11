@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 130 (CSB)  
+>Psalm 130  
 ><sup></sup> A song of ascents. 
 >
 ><sup>1</sup> Out of the depths I call to you, LORD! 

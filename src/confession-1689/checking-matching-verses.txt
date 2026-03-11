@@ -3,214 +3,214 @@
 ./1689-30-1-lord's-supper-always-observed.md-## The Chapter
 ./1689-17-3-Son-of-God.md:## The Text
 ./1689-17-3-Son-of-God.md-
-./1689-17-3-Son-of-God.md: >John 21:15–17 (CSB)  
+./1689-17-3-Son-of-God.md: >John 21:15–17  
 ./1689-30-8-lord's-supper-does-not-belong-to-unbelievers.md:## The Text
 ./1689-30-8-lord's-supper-does-not-belong-to-unbelievers.md-
 ./1689-30-8-lord's-supper-does-not-belong-to-unbelievers.md-## The Chapter
 ./1689-26-2-of-the-bride-those-of-the-whole-world.md:## The Text
 ./1689-26-2-of-the-bride-those-of-the-whole-world.md-
-./1689-26-2-of-the-bride-those-of-the-whole-world.md: >1 Timothy 2:5-6 (CSB) For there is one God and one mediator between God and mankind, the man Christ Jesus, who gave himself as a ransom for all, a testimony at the proper time.
+./1689-26-2-of-the-bride-those-of-the-whole-world.md: >1 Timothy 2:5-6 For there is one God and one mediator between God and mankind, the man Christ Jesus, who gave himself as a ransom for all, a testimony at the proper time.
 ./1689-03-2-the-decretive-will-of-God.md:## The Text
 ./1689-03-2-the-decretive-will-of-God.md-
-./1689-03-2-the-decretive-will-of-God.md: >Romans 3:25–26 (CSB) God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.
+./1689-03-2-the-decretive-will-of-God.md: >Romans 3:25–26 God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.
 ./1689-10-1-the-calling-of-god-at-us.md:## The Text
 ./1689-10-1-the-calling-of-god-at-us.md-
-./1689-10-1-the-calling-of-god-at-us.md: >John 11:43-44 (CSB) After he said this, he shouted with a loud voice, “Lazarus, come out! ” The dead man came out bound hand and foot with linen strips and with his face wrapped in a cloth. Jesus said to them, “Unwrap him and let him go.”
+./1689-10-1-the-calling-of-god-at-us.md: >John 11:43-44 After he said this, he shouted with a loud voice, “Lazarus, come out! ” The dead man came out bound hand and foot with linen strips and with his face wrapped in a cloth. Jesus said to them, “Unwrap him and let him go.”
 ./1689-05-1-the-governance-of-all-things.md:## The Text
 ./1689-05-1-the-governance-of-all-things.md-
-./1689-05-1-the-governance-of-all-things.md: >Revelation 1:8 (CSB) “I am the Alpha and the Omega,” says the Lord God, “the one who is, who was, and who is to come, the Almighty.”
+./1689-05-1-the-governance-of-all-things.md: >Revelation 1:8 “I am the Alpha and the Omega,” says the Lord God, “the one who is, who was, and who is to come, the Almighty.”
 ./1689-21-2-free-indeed-power-of-god.md:## The Text
 ./1689-21-2-free-indeed-power-of-god.md-
-./1689-21-2-free-indeed-power-of-god.md: >Romans 6:1–4 (CSB) What should we say then? Should we continue in sin so that grace may multiply? Absolutely not! How can we who died to sin still live in it? Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life.
+./1689-21-2-free-indeed-power-of-god.md: >Romans 6:1–4 What should we say then? Should we continue in sin so that grace may multiply? Absolutely not! How can we who died to sin still live in it? Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life.
 ./1689-02-3-the-triune-God.md:## The Text
 ./1689-02-3-the-triune-God.md-
-./1689-02-3-the-triune-God.md: >Matthew 28:16–20 (CSB) The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, **“All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”**
+./1689-02-3-the-triune-God.md: >Matthew 28:16–20 The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, **“All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”**
 ./1689-13-1-God-does-conforms.md:## The Text
 ./1689-13-1-God-does-conforms.md-
-./1689-13-1-God-does-conforms.md: >John 3:14–15 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
+./1689-13-1-God-does-conforms.md: >John 3:14–15 “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
 ./1689-04-3-the-law-of-God.md:## The Text
 ./1689-04-3-the-law-of-God.md-
-./1689-04-3-the-law-of-God.md: >Romans 2:14-16 (CSB) So, when Gentiles, who do not by nature have the law, do what the law demands, they are a law to themselves even though they do not have the law. They show that the work of the law is written on their hearts. Their consciences confirm this. Their competing thoughts either accuse or even excuse them on the day when God judges what people have kept secret, according to my gospel through Christ Jesus.
+./1689-04-3-the-law-of-God.md: >Romans 2:14-16 So, when Gentiles, who do not by nature have the law, do what the law demands, they are a law to themselves even though they do not have the law. They show that the work of the law is written on their hearts. Their consciences confirm this. Their competing thoughts either accuse or even excuse them on the day when God judges what people have kept secret, according to my gospel through Christ Jesus.
 ./1689-28-2-the-sacraments-commission-by-christ.md:## The Text
 ./1689-28-2-the-sacraments-commission-by-christ.md-
 ./1689-28-2-the-sacraments-commission-by-christ.md-## The Chapter
 ./1689-01-2-old-and-new-testaments.md:## The Text
 ./1689-01-2-old-and-new-testaments.md-
-./1689-01-2-old-and-new-testaments.md: >2 Timothy 3:16 - 4:5 (CSB) All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
+./1689-01-2-old-and-new-testaments.md: >2 Timothy 3:16 - 4:5 All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
 ./1689-26-13-of-the-bride-bonded-to-one-another.md:## The Text
 ./1689-26-13-of-the-bride-bonded-to-one-another.md-
-./1689-26-13-of-the-bride-bonded-to-one-another.md: >1 Corinthians 12:12-14 (CSB) For just as the body is one and has many parts, and all the parts of that body, though many, are one body — so also is Christ. For we were all baptized by one Spirit into one body — whether Jews or Greeks, whether slaves or free — and we were all given one Spirit to drink. Indeed, the body is not one part but many.
+./1689-26-13-of-the-bride-bonded-to-one-another.md: >1 Corinthians 12:12-14 For just as the body is one and has many parts, and all the parts of that body, though many, are one body — so also is Christ. For we were all baptized by one Spirit into one body — whether Jews or Greeks, whether slaves or free — and we were all given one Spirit to drink. Indeed, the body is not one part but many.
 ./1689-01-8-the-inspiration-of-God-on-scripture.md:## The Text
 ./1689-01-8-the-inspiration-of-God-on-scripture.md-
-./1689-01-8-the-inspiration-of-God-on-scripture.md: >Psalms 119:72 (CSB) Instruction from your lips is better for me than thousands of gold and silver pieces.
+./1689-01-8-the-inspiration-of-God-on-scripture.md: >Psalms 119:72 Instruction from your lips is better for me than thousands of gold and silver pieces.
 ./1689-22-6-i-exalt-thee.md:## The Text
 ./1689-22-6-i-exalt-thee.md-
-./1689-22-6-i-exalt-thee.md: >John 4:21-26 (CSB) Jesus told her, “Believe me, woman, an hour is coming when you will worship the Father neither on this mountain nor in Jerusalem. You Samaritans worship what you do not know. We worship what we do know, because salvation is from the Jews. But an hour is coming, and is now here, when the true worshipers will worship the Father in Spirit and in truth. Yes, the Father wants such people to worship him. God is spirit, and those who worship him must worship in Spirit and in truth.”
+./1689-22-6-i-exalt-thee.md: >John 4:21-26 Jesus told her, “Believe me, woman, an hour is coming when you will worship the Father neither on this mountain nor in Jerusalem. You Samaritans worship what you do not know. We worship what we do know, because salvation is from the Jews. But an hour is coming, and is now here, when the true worshipers will worship the Father in Spirit and in truth. Yes, the Father wants such people to worship him. God is spirit, and those who worship him must worship in Spirit and in truth.”
 ./1689-06-5-the-nature-of-mankind.md:## The Text
 ./1689-06-5-the-nature-of-mankind.md-
-./1689-06-5-the-nature-of-mankind.md: >2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+./1689-06-5-the-nature-of-mankind.md: >2 Corinthians 5:21 He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 ./1689-31-1-made-from-dust-return-to-dust.md:## The Text
 ./1689-31-1-made-from-dust-return-to-dust.md-
 ./1689-31-1-made-from-dust-return-to-dust.md-## The Chapter
 ./1689-19-1-the-instruction-of-the-lord-is-perfect.md:## The Text
 ./1689-19-1-the-instruction-of-the-lord-is-perfect.md-
-./1689-19-1-the-instruction-of-the-lord-is-perfect.md: >Psalm 19:7a (CSB) The instruction of the LORD is perfect, renewing one’s life;
+./1689-19-1-the-instruction-of-the-lord-is-perfect.md: >Psalm 19:7a The instruction of the LORD is perfect, renewing one’s life;
 ./1689-06-3-the-corruption-of-mankind.md:## The Text
 ./1689-06-3-the-corruption-of-mankind.md-
-./1689-06-3-the-corruption-of-mankind.md: >Titus 3:3 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
+./1689-06-3-the-corruption-of-mankind.md: >Titus 3:3 For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
 ./1689-08-3-the-son-of-man.md:## The Text
 ./1689-08-3-the-son-of-man.md-
-./1689-08-3-the-son-of-man.md: >Daniel 7:9-14 (CSB)  
+./1689-08-3-the-son-of-man.md: >Daniel 7:9-14  
 ./1689-30-7-lord's-supper-belongs-to-believers.md:## The Text
 ./1689-30-7-lord's-supper-belongs-to-believers.md-
 ./1689-30-7-lord's-supper-belongs-to-believers.md-## The Chapter
 ./1689-03-5-the-election-of-God.md:## The Text
 ./1689-03-5-the-election-of-God.md-
-./1689-03-5-the-election-of-God.md: >Isaiah 42:6–9 (CSB) “I am the LORD. I have called you for a righteous purpose, and I will hold you by your hand. I will watch over you, and I will appoint you to be a covenant for the people and a light to the nations, in order to open blind eyes, to bring out prisoners from the dungeon, and those sitting in darkness from the prison house. I am the LORD. That is my name, and I will not give my glory to another or my praise to idols. The past events have indeed happened. Now I declare new events; I announce them to you before they occur.”
+./1689-03-5-the-election-of-God.md: >Isaiah 42:6–9 “I am the LORD. I have called you for a righteous purpose, and I will hold you by your hand. I will watch over you, and I will appoint you to be a covenant for the people and a light to the nations, in order to open blind eyes, to bring out prisoners from the dungeon, and those sitting in darkness from the prison house. I am the LORD. That is my name, and I will not give my glory to another or my praise to idols. The past events have indeed happened. Now I declare new events; I announce them to you before they occur.”
 ./1689-08-5-the-slaying-of-the-lamb.md:## The Text
 ./1689-08-5-the-slaying-of-the-lamb.md-
-./1689-08-5-the-slaying-of-the-lamb.md: >Revelation 5:12-13 (CSB) They said with a loud voice,  
+./1689-08-5-the-slaying-of-the-lamb.md: >Revelation 5:12-13 They said with a loud voice,  
 ./1689-07-2-the-covenant-of-grace.md:## The Text
 ./1689-07-2-the-covenant-of-grace.md-
-./1689-07-2-the-covenant-of-grace.md: >Romans 6:23 (CSB) For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
+./1689-07-2-the-covenant-of-grace.md: >Romans 6:23 For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
 ./1689-01-5-the-inward-work-of-Holy-Spirit-concerning-scripture.md:## The Text
 ./1689-01-5-the-inward-work-of-Holy-Spirit-concerning-scripture.md-
-./1689-01-5-the-inward-work-of-Holy-Spirit-concerning-scripture.md: >John 16:13 (CSB)  When the Spirit of truth comes, he will guide you into all the truth. For he will not speak on his own, but he will speak whatever he hears. He will also declare to you what is to come.
+./1689-01-5-the-inward-work-of-Holy-Spirit-concerning-scripture.md: >John 16:13  When the Spirit of truth comes, he will guide you into all the truth. For he will not speak on his own, but he will speak whatever he hears. He will also declare to you what is to come.
 ./1689-27-2-communion-of-the-saints-cattle-on-a-thousand-hills.md:## The Text
 ./1689-27-2-communion-of-the-saints-cattle-on-a-thousand-hills.md-
 ./1689-27-2-communion-of-the-saints-cattle-on-a-thousand-hills.md-## The Chapter
 ./1689-19-6-the-ordinances-of-the-lord-are-reliable.md:## The Text
 ./1689-19-6-the-ordinances-of-the-lord-are-reliable.md-
-./1689-19-6-the-ordinances-of-the-lord-are-reliable.md: >Psalm 19:9b (CSB) [...] the ordinances of the LORD are reliable and altogether righteous.
+./1689-19-6-the-ordinances-of-the-lord-are-reliable.md: >Psalm 19:9b [...] the ordinances of the LORD are reliable and altogether righteous.
 ./1689-19-5-the-fear-of-the-lord-is-pure.md:## The Text
 ./1689-19-5-the-fear-of-the-lord-is-pure.md-
-./1689-19-5-the-fear-of-the-lord-is-pure.md: >Psalm 19:9a (CSB) The fear of the LORD is pure, enduring forever;
+./1689-19-5-the-fear-of-the-lord-is-pure.md: >Psalm 19:9a The fear of the LORD is pure, enduring forever;
 ./1689-05-6-the-rendering-of-God.md:## The Text
 ./1689-05-6-the-rendering-of-God.md-
-./1689-05-6-the-rendering-of-God.md: >Hebrews 6:4-6 (CSB) For it is impossible to renew to repentance those who were once enlightened, who tasted the heavenly gift, who shared in the Holy Spirit, who tasted God’s good word and the powers of the coming age, and who have fallen away. This is because, to their own harm, they are recrucifying the Son of God and holding him up to contempt.
+./1689-05-6-the-rendering-of-God.md: >Hebrews 6:4-6 For it is impossible to renew to repentance those who were once enlightened, who tasted the heavenly gift, who shared in the Holy Spirit, who tasted God’s good word and the powers of the coming age, and who have fallen away. This is because, to their own harm, they are recrucifying the Son of God and holding him up to contempt.
 ./1689-09-3-the-bondage-of-the-will.md:## The Text
 ./1689-09-3-the-bondage-of-the-will.md-
-./1689-09-3-the-bondage-of-the-will.md: >Hosea 6:6–7 (CSB) For I desire faithful love and not sacrifice, the knowledge of God rather than burnt offerings. But they, like Adam, have violated the covenant; there they have betrayed me.
+./1689-09-3-the-bondage-of-the-will.md: >Hosea 6:6–7 For I desire faithful love and not sacrifice, the knowledge of God rather than burnt offerings. But they, like Adam, have violated the covenant; there they have betrayed me.
 ./1689-28-1-the-sacraments-appointed-by-christ.md:## The Text
 ./1689-28-1-the-sacraments-appointed-by-christ.md-
 ./1689-28-1-the-sacraments-appointed-by-christ.md-## The Chapter
 ./1689-18-2-on-the-mount-of-crucifixion.md:## The Text
 ./1689-18-2-on-the-mount-of-crucifixion.md-
-./1689-18-2-on-the-mount-of-crucifixion.md: >Revelation 12:10-12 (CSB)  
+./1689-18-2-on-the-mount-of-crucifixion.md: >Revelation 12:10-12  
 ./1689-02-1-the-attributes-of-God.md:## The Text
 ./1689-02-1-the-attributes-of-God.md-
-./1689-02-1-the-attributes-of-God.md: >Psalm 97:9 (CSB) For you, LORD, are the Most High over the whole earth; you are exalted above all the gods.
+./1689-02-1-the-attributes-of-God.md: >Psalm 97:9 For you, LORD, are the Most High over the whole earth; you are exalted above all the gods.
 ./1689-20-3-of-the-gospel-of-God-alone.md:## The Text
 ./1689-20-3-of-the-gospel-of-God-alone.md-
-./1689-20-3-of-the-gospel-of-God-alone.md: >John 1:12-13 (CSB) But to all who did receive him, he gave them the right to be children of God, to those who believe in his name, who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
+./1689-20-3-of-the-gospel-of-God-alone.md: >John 1:12-13 But to all who did receive him, he gave them the right to be children of God, to those who believe in his name, who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
 ./1689-08-9-the-office-of-the-mediator.md:## The Text
 ./1689-08-9-the-office-of-the-mediator.md-
-./1689-08-9-the-office-of-the-mediator.md: >Hebrews 9:15 (CSB) Therefore, he is the mediator of a new covenant, so that those who are called might receive the promise of the eternal inheritance, because a death has taken place for redemption from the transgressions committed under the first covenant.
+./1689-08-9-the-office-of-the-mediator.md: >Hebrews 9:15 Therefore, he is the mediator of a new covenant, so that those who are called might receive the promise of the eternal inheritance, because a death has taken place for redemption from the transgressions committed under the first covenant.
 ./1689-16-6-abundance-righteousness.md:## The Text
 ./1689-16-6-abundance-righteousness.md-
-./1689-16-6-abundance-righteousness.md: >Luke 15:21–24 (CSB) The son said to him, ‘Father, I have sinned against heaven and in your sight. I’m no longer worthy to be called your son.’ <bgy>“But the father told his servants, ‘Quick! Bring out the best robe and put it on him; put a ring on his finger and sandals on his feet. Then bring the fattened calf and slaughter it, and let’s celebrate with a feast, because this son of mine was dead and is alive again; he was lost and is found!’ So they began to celebrate.</bgy>
+./1689-16-6-abundance-righteousness.md: >Luke 15:21–24 The son said to him, ‘Father, I have sinned against heaven and in your sight. I’m no longer worthy to be called your son.’ <bgy>“But the father told his servants, ‘Quick! Bring out the best robe and put it on him; put a ring on his finger and sandals on his feet. Then bring the fattened calf and slaughter it, and let’s celebrate with a feast, because this son of mine was dead and is alive again; he was lost and is found!’ So they began to celebrate.</bgy>
 ./1689-22-2-we-will-worship-the-lamb-of-glory.md:## The Text
 ./1689-22-2-we-will-worship-the-lamb-of-glory.md-
-./1689-22-2-we-will-worship-the-lamb-of-glory.md: >Revelation 5:8-14 (CSB) When he took the scroll, the four living creatures and the twenty-four elders fell down before the Lamb. Each one had a harp and golden bowls filled with incense, which are the prayers of the saints. And they sang a new song:  
+./1689-22-2-we-will-worship-the-lamb-of-glory.md: >Revelation 5:8-14 When he took the scroll, the four living creatures and the twenty-four elders fell down before the Lamb. Each one had a harp and golden bowls filled with incense, which are the prayers of the saints. And they sang a new song:  
 ./1689-08-7-the-two-natures-of-jesus.md:## The Text
 ./1689-08-7-the-two-natures-of-jesus.md-
-./1689-08-7-the-two-natures-of-jesus.md: >John 3:14-18 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life. For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him. Anyone who believes in him is not condemned, but anyone who does not believe is already condemned, because he has not believed in the name of the one and only Son of God.
+./1689-08-7-the-two-natures-of-jesus.md: >John 3:14-18 “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life. For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him. Anyone who believes in him is not condemned, but anyone who does not believe is already condemned, because he has not believed in the name of the one and only Son of God.
 ./1689-22-8-still.md:## The Text
 ./1689-22-8-still.md-
-./1689-22-8-still.md: >Genesis 2:2-3 (CSB) On the seventh day God had completed his work that he had done, and he rested on the seventh day from all his work that he had done. God blessed the seventh day and declared it holy, for on it he rested from all his work of creation.
+./1689-22-8-still.md: >Genesis 2:2-3 On the seventh day God had completed his work that he had done, and he rested on the seventh day from all his work that he had done. God blessed the seventh day and declared it holy, for on it he rested from all his work of creation.
 ./1689-14-2-God-gives-promise-in-his-word.md:## The Text
 ./1689-14-2-God-gives-promise-in-his-word.md-
-./1689-14-2-God-gives-promise-in-his-word.md: >Matthew 4:4 (CSB) He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
+./1689-14-2-God-gives-promise-in-his-word.md: >Matthew 4:4 He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
 ./1689-26-5-of-the-bride-the-calling-of-his-people.md:## The Text
 ./1689-26-5-of-the-bride-the-calling-of-his-people.md-
-./1689-26-5-of-the-bride-the-calling-of-his-people.md: >John 10:14-16 (CSB) “I am the good shepherd. I know my own, and my own know me, just as the Father knows me, and I know the Father. I lay down my life for the sheep. But I have other sheep that are not from this sheep pen; I must bring them also, and they will listen to my voice. Then there will be one flock, one shepherd.
+./1689-26-5-of-the-bride-the-calling-of-his-people.md: >John 10:14-16 “I am the good shepherd. I know my own, and my own know me, just as the Father knows me, and I know the Father. I lay down my life for the sheep. But I have other sheep that are not from this sheep pen; I must bring them also, and they will listen to my voice. Then there will be one flock, one shepherd.
 ./1689-29-2-baptism-freed-from-sin.md:## The Text
 ./1689-29-2-baptism-freed-from-sin.md-
 ./1689-29-2-baptism-freed-from-sin.md-## The Chapter
 ./1689-15-2-God-gives-more-renewal.md:## The Text
 ./1689-15-2-God-gives-more-renewal.md-
-./1689-15-2-God-gives-more-renewal.md: >Proverbs 24:16 (CSB) Though a righteous person falls seven times, he will get up, but the wicked will stumble into ruin.
+./1689-15-2-God-gives-more-renewal.md: >Proverbs 24:16 Though a righteous person falls seven times, he will get up, but the wicked will stumble into ruin.
 ./1689-22-1-awesome-god.md:## The Text
 ./1689-22-1-awesome-god.md-
-./1689-22-1-awesome-god.md: >Psalm 113 (CSB)  
+./1689-22-1-awesome-god.md: >Psalm 113  
 ./1689-32-2-the-quick-and-the-dead-manifestation-of-his-glory.md:## The Text
 ./1689-32-2-the-quick-and-the-dead-manifestation-of-his-glory.md-
 ./1689-32-2-the-quick-and-the-dead-manifestation-of-his-glory.md-## The Chapter
 ./1689-26-12-of-the-bride-saved-to-one-another.md:## The Text
 ./1689-26-12-of-the-bride-saved-to-one-another.md-
-./1689-26-12-of-the-bride-saved-to-one-another.md: >Romans 8:14–17 (CSB) For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
+./1689-26-12-of-the-bride-saved-to-one-another.md: >Romans 8:14–17 For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
 ./1689-30-2-lord's-supper-in-remembrance-.md:## The Text
 ./1689-30-2-lord's-supper-in-remembrance-.md-
 ./1689-30-2-lord's-supper-in-remembrance-.md-## The Chapter
 ./1689-06-4-the-inclination-of-mankind.md:## The Text
 ./1689-06-4-the-inclination-of-mankind.md-
-./1689-06-4-the-inclination-of-mankind.md: >Genesis 6:5-6 (CSB) When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, the LORD regretted that he had made man on the earth, and he was deeply grieved.
+./1689-06-4-the-inclination-of-mankind.md: >Genesis 6:5-6 When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, the LORD regretted that he had made man on the earth, and he was deeply grieved.
 ./1689-26-14-of-the-bride-brothers-and-sisters-of-christ.md:## The Text
 ./1689-26-14-of-the-bride-brothers-and-sisters-of-christ.md-
 ./1689-26-14-of-the-bride-brothers-and-sisters-of-christ.md: >1 Thessalonians 2:8 (NIV 1984) We loved you so much that we were delighted to share with you not only the gospel of God but our lives as well, because you had become so dear to us.
 ./1689-07-3-the-preaching-of-the-first-gospel.md:## The Text
 ./1689-07-3-the-preaching-of-the-first-gospel.md-
-./1689-07-3-the-preaching-of-the-first-gospel.md: >Ephesians 1:3-8 (CSB) Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One. In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace that he richly poured out on us with all wisdom and understanding.
+./1689-07-3-the-preaching-of-the-first-gospel.md: >Ephesians 1:3-8 Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One. In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace that he richly poured out on us with all wisdom and understanding.
 ./1689-21-1-free-indeed-sons-of-god.md:## The Text
 ./1689-21-1-free-indeed-sons-of-god.md-
-./1689-21-1-free-indeed-sons-of-god.md: >Romans 8:18–21 (CSB) For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us. For the creation eagerly waits with anticipation for God’s sons to be revealed. For the creation was subjected to futility—not willingly, but because of him who subjected it—in the hope that the creation itself will also be set free from the bondage to decay into the glorious freedom of God’s children.
+./1689-21-1-free-indeed-sons-of-god.md: >Romans 8:18–21 For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us. For the creation eagerly waits with anticipation for God’s sons to be revealed. For the creation was subjected to futility—not willingly, but because of him who subjected it—in the hope that the creation itself will also be set free from the bondage to decay into the glorious freedom of God’s children.
 ./1689-11-3-justify-son.md:## The Text
 ./1689-11-3-justify-son.md-
-./1689-11-3-justify-son.md: >Colossians 2:13–14 (CSB) And when you were dead in trespasses and in the uncircumcision of your flesh, he made you alive with him and forgave us all our trespasses. He erased the certificate of debt, with its obligations, that was against us and opposed to us, and has taken it away by nailing it to the cross.
+./1689-11-3-justify-son.md: >Colossians 2:13–14 And when you were dead in trespasses and in the uncircumcision of your flesh, he made you alive with him and forgave us all our trespasses. He erased the certificate of debt, with its obligations, that was against us and opposed to us, and has taken it away by nailing it to the cross.
 ./1689-29-3-baptism-in-the-name-of-god.md:## The Text
 ./1689-29-3-baptism-in-the-name-of-god.md-
 ./1689-29-3-baptism-in-the-name-of-god.md-## The Chapter
 ./1689-16-2-abundance-Christ.md:## The Text
 ./1689-16-2-abundance-Christ.md-
-./1689-16-2-abundance-Christ.md: >John 10:10 (CSB) A thief comes only to steal and kill and destroy. I have come so that they may have life and have it in abundance.
+./1689-16-2-abundance-Christ.md: >John 10:10 A thief comes only to steal and kill and destroy. I have come so that they may have life and have it in abundance.
 ./1689-07-1-the-infiniteness-of-righteousness.md:## The Text
 ./1689-07-1-the-infiniteness-of-righteousness.md-
-./1689-07-1-the-infiniteness-of-righteousness.md: >Psalms 97:9 (CSB) For you, LORD,  
+./1689-07-1-the-infiniteness-of-righteousness.md: >Psalms 97:9 For you, LORD,  
 ./1689-26-7-of-the-bride-the-authority-given.md:## The Text
 ./1689-26-7-of-the-bride-the-authority-given.md-
-./1689-26-7-of-the-bride-the-authority-given.md: >Matthew 28:16-20 (CSB) The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age."
+./1689-26-7-of-the-bride-the-authority-given.md: >Matthew 28:16-20 The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age."
 ./1689-31-2-made-from-dust-raised-to-god.md:## The Text
 ./1689-31-2-made-from-dust-raised-to-god.md-
 ./1689-31-2-made-from-dust-raised-to-god.md-## The Chapter
 ./1689-21-3-free-indeed-righteousness-of-god.md:## The Text
 ./1689-21-3-free-indeed-righteousness-of-god.md-
-./1689-21-3-free-indeed-righteousness-of-god.md: >Matthew 5:17–19 (CSB) “Don’t think that I came to abolish the Law or the Prophets. I did not come to abolish but to fulfill. For truly I tell you, until heaven and earth pass away, not the smallest letter or one stroke of a letter will pass away from the law until all things are accomplished. Therefore, whoever breaks one of the least of these commands and teaches others to do the same will be called least in the kingdom of heaven. But whoever does and teaches these commands will be called great in the kingdom of heaven.
+./1689-21-3-free-indeed-righteousness-of-god.md: >Matthew 5:17–19 “Don’t think that I came to abolish the Law or the Prophets. I did not come to abolish but to fulfill. For truly I tell you, until heaven and earth pass away, not the smallest letter or one stroke of a letter will pass away from the law until all things are accomplished. Therefore, whoever breaks one of the least of these commands and teaches others to do the same will be called least in the kingdom of heaven. But whoever does and teaches these commands will be called great in the kingdom of heaven.
 ./1689-11-1-justify-cleanses.md:## The Text
 ./1689-11-1-justify-cleanses.md-
-./1689-11-1-justify-cleanses.md: >2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+./1689-11-1-justify-cleanses.md: >2 Corinthians 5:21 He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 ./1689-32-3-the-quick-and-the-dead-come-lord-jesus-amen.md:## The Text
 ./1689-32-3-the-quick-and-the-dead-come-lord-jesus-amen.md-
 ./1689-32-3-the-quick-and-the-dead-come-lord-jesus-amen.md-## The Chapter
 ./1689-26-15-of-the-bride-peace-of-god.md:## The Text
 ./1689-26-15-of-the-bride-peace-of-god.md-
-./1689-26-15-of-the-bride-peace-of-god.md: >Ephesians 4:11-16 (CSB) And he himself gave some to be apostles, some prophets, some evangelists, some pastors and teachers, to equip the saints for the work of ministry, to build up the body of Christ, until we all reach unity in the faith and in the knowledge of God’s Son, growing into maturity with a stature measured by Christ’s fullness. Then we will no longer be little children, tossed by the waves and blown around by every wind of teaching, by human cunning with cleverness in the techniques of deceit. But speaking the truth in love, let us grow in every way into him who is the head — Christ. From him the whole body, fitted and knit together by every supporting ligament, promotes the growth of the body for building itself up in love by the proper working of each individual part.
+./1689-26-15-of-the-bride-peace-of-god.md: >Ephesians 4:11-16 And he himself gave some to be apostles, some prophets, some evangelists, some pastors and teachers, to equip the saints for the work of ministry, to build up the body of Christ, until we all reach unity in the faith and in the knowledge of God’s Son, growing into maturity with a stature measured by Christ’s fullness. Then we will no longer be little children, tossed by the waves and blown around by every wind of teaching, by human cunning with cleverness in the techniques of deceit. But speaking the truth in love, let us grow in every way into him who is the head — Christ. From him the whole body, fitted and knit together by every supporting ligament, promotes the growth of the body for building itself up in love by the proper working of each individual part.
 ./1689-10-4-the-calling-of-god-not-by-us.md:## The Text
 ./1689-10-4-the-calling-of-god-not-by-us.md-
-./1689-10-4-the-calling-of-god-not-by-us.md: >1 Corinthians 12:3 (CSB) Therefore I want you to know that no one speaking by the Spirit of God says, “Jesus is cursed,” and no one can say, “Jesus is Lord,” except by the Holy Spirit.
+./1689-10-4-the-calling-of-god-not-by-us.md: >1 Corinthians 12:3 Therefore I want you to know that no one speaking by the Spirit of God says, “Jesus is cursed,” and no one can say, “Jesus is Lord,” except by the Holy Spirit.
 ./1689-16-5-abundance-salvation.md:## The Text
 ./1689-16-5-abundance-salvation.md-
-./1689-16-5-abundance-salvation.md: >Acts 4:12 (CSB) There is salvation in no one else, for there is no other name under heaven given to people by which we must be saved.”
+./1689-16-5-abundance-salvation.md: >Acts 4:12 There is salvation in no one else, for there is no other name under heaven given to people by which we must be saved.”
 ./1689-02-2-the-sufficiency-of-God.md:## The Text
 ./1689-02-2-the-sufficiency-of-God.md-
-./1689-02-2-the-sufficiency-of-God.md: >Romans 11:33–36 (CSB)  
+./1689-02-2-the-sufficiency-of-God.md: >Romans 11:33–36  
 ./1689-08-8-the-work-of-the-lord.md:## The Text
 ./1689-08-8-the-work-of-the-lord.md-
-./1689-08-8-the-work-of-the-lord.md: >Colossians 2:13-15 (CSB) And when you were dead in trespasses and in the uncircumcision of your flesh, he made you alive with him and forgave us all our trespasses. He erased the certificate of debt, with its obligations, that was against us and opposed to us, and has taken it away by nailing it to the cross. He disarmed the rulers and authorities and disgraced them publicly; he triumphed over them in him.
+./1689-08-8-the-work-of-the-lord.md: >Colossians 2:13-15 And when you were dead in trespasses and in the uncircumcision of your flesh, he made you alive with him and forgave us all our trespasses. He erased the certificate of debt, with its obligations, that was against us and opposed to us, and has taken it away by nailing it to the cross. He disarmed the rulers and authorities and disgraced them publicly; he triumphed over them in him.
 ./1689-05-3-the-freedom-of-God.md:## The Text
 ./1689-05-3-the-freedom-of-God.md-
-./1689-05-3-the-freedom-of-God.md: >Ephesians 1:9-10 (CSB) He made known to us the mystery of his will, according to his good pleasure that he purposed in Christ as a plan for the right time — to bring everything together in Christ, both things in heaven and things on earth in him.
+./1689-05-3-the-freedom-of-God.md: >Ephesians 1:9-10 He made known to us the mystery of his will, according to his good pleasure that he purposed in Christ as a plan for the right time — to bring everything together in Christ, both things in heaven and things on earth in him.
 ./1689-TEACH-04-on-the-imago-Dei.md:## The Text
 ./1689-TEACH-04-on-the-imago-Dei.md-
-./1689-TEACH-04-on-the-imago-Dei.md: >Romans 1:20 (CSB) For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse.
+./1689-TEACH-04-on-the-imago-Dei.md: >Romans 1:20 For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse.
 ./1689-19-2-the-testimony-of-the-lord-is-trustworthy.md:## The Text
 ./1689-19-2-the-testimony-of-the-lord-is-trustworthy.md-
-./1689-19-2-the-testimony-of-the-lord-is-trustworthy.md: >Psalm 19:7b (CSB) [...] the testimony of the LORD is trustworthy, making the inexperienced wise.
+./1689-19-2-the-testimony-of-the-lord-is-trustworthy.md: >Psalm 19:7b [...] the testimony of the LORD is trustworthy, making the inexperienced wise.
 ./1689-10-2-the-calling-of-god-outside-of-us.md:## The Text
 ./1689-10-2-the-calling-of-god-outside-of-us.md-
-./1689-10-2-the-calling-of-god-outside-of-us.md: >John 11:11 (CSB) He said this, and then he told them, “Our friend Lazarus has fallen asleep, but I’m on my way to wake him up.”
+./1689-10-2-the-calling-of-god-outside-of-us.md: >John 11:11 He said this, and then he told them, “Our friend Lazarus has fallen asleep, but I’m on my way to wake him up.”
 ./1689-08-10-the-prophet-priest-and-king.md:## The Text
 ./1689-08-10-the-prophet-priest-and-king.md-
-./1689-08-10-the-prophet-priest-and-king.md: >John 19:19-22 (CSB) Pilate also had a sign made and put on the cross. It said: JESUS OF NAZARETH, THE KING OF THE JEWS. Many of the Jews read this sign, because the place where Jesus was crucified was near the city, and it was written in Aramaic, Latin, and Greek. So the chief priests of the Jews said to Pilate, “Don’t write, ‘The king of the Jews,’ but that he said, ‘I am the king of the Jews.’ ”
+./1689-08-10-the-prophet-priest-and-king.md: >John 19:19-22 Pilate also had a sign made and put on the cross. It said: JESUS OF NAZARETH, THE KING OF THE JEWS. Many of the Jews read this sign, because the place where Jesus was crucified was near the city, and it was written in Aramaic, Latin, and Greek. So the chief priests of the Jews said to Pilate, “Don’t write, ‘The king of the Jews,’ but that he said, ‘I am the king of the Jews.’ ”
 ./1689-11-5-justify-eternity.md:## The Text
 ./1689-11-5-justify-eternity.md-
 ./1689-11-5-justify-eternity.md-## The Chapter
@@ -222,235 +222,235 @@
 ./1689-30-4-lord's-supper-for-his-people.md-## The Chapter
 ./1689-14-3-God-gives-God.md:## The Text
 ./1689-14-3-God-gives-God.md-
-./1689-14-3-God-gives-God.md: >Mark 9:24 (CSB) Immediately the father of the boy cried out, “I do believe; help my unbelief!”
+./1689-14-3-God-gives-God.md: >Mark 9:24 Immediately the father of the boy cried out, “I do believe; help my unbelief!”
 ./1689-09-5-the-glorification-of-the-will.md:## The Text
 ./1689-09-5-the-glorification-of-the-will.md-
-./1689-09-5-the-glorification-of-the-will.md: >Psalm 17:15 (CSB) But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
+./1689-09-5-the-glorification-of-the-will.md: >Psalm 17:15 But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
 ./1689-05-5-the-discipline-of-God.md:## The Text
 ./1689-05-5-the-discipline-of-God.md-
-./1689-05-5-the-discipline-of-God.md: >2 Chronicles 7:14 (CSB) and my people, who bear my name, humble themselves, pray and seek my face, and turn from their evil ways, then I will hear from heaven, forgive their sin, and heal their land.
+./1689-05-5-the-discipline-of-God.md: >2 Chronicles 7:14 and my people, who bear my name, humble themselves, pray and seek my face, and turn from their evil ways, then I will hear from heaven, forgive their sin, and heal their land.
 ./1689-16-3-abundance-Spirit.md:## The Text
 ./1689-16-3-abundance-Spirit.md-
-./1689-16-3-abundance-Spirit.md: >John 3:34 (CSB) For the one whom God sent speaks God’s words, since he gives the Spirit without measure.
+./1689-16-3-abundance-Spirit.md: >John 3:34 For the one whom God sent speaks God’s words, since he gives the Spirit without measure.
 ./1689-14-1-God-gives-grace-of-faith.md:## The Text
 ./1689-14-1-God-gives-grace-of-faith.md-
-./1689-14-1-God-gives-grace-of-faith.md: >Genesis 6:7-9 (CSB) Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky — for I regret that I made them.” Noah, however, found favor with the LORD. These are the family records of Noah. Noah was a righteous man, blameless among his contemporaries; Noah walked with God.
+./1689-14-1-God-gives-grace-of-faith.md: >Genesis 6:7-9 Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky — for I regret that I made them.” Noah, however, found favor with the LORD. These are the family records of Noah. Noah was a righteous man, blameless among his contemporaries; Noah walked with God.
 ./1689-08-1-the-pleasure-of-god.md:## The Text
 ./1689-08-1-the-pleasure-of-god.md-
-./1689-08-1-the-pleasure-of-god.md: >Psalm 16 (CSB)  
+./1689-08-1-the-pleasure-of-god.md: >Psalm 16  
 ./1689-22-5-holy-holy-holy.md:## The Text
 ./1689-22-5-holy-holy-holy.md-
-./1689-22-5-holy-holy-holy.md: >Isaiah 6:1–7 (CSB)  
+./1689-22-5-holy-holy-holy.md: >Isaiah 6:1–7  
 ./1689-16-7-abundance-grace.md:## The Text
 ./1689-16-7-abundance-grace.md-
-./1689-16-7-abundance-grace.md: >Isaiah 64:6 (CSB) All of us have become like something unclean, and all our righteous acts are like a polluted garment; all of us wither like a leaf, and our iniquities carry us away like the wind.
+./1689-16-7-abundance-grace.md: >Isaiah 64:6 All of us have become like something unclean, and all our righteous acts are like a polluted garment; all of us wither like a leaf, and our iniquities carry us away like the wind.
 ./1689-26-9-of-the-bride-the-laying-on-of-hands.md:## The Text
 ./1689-26-9-of-the-bride-the-laying-on-of-hands.md-
-./1689-26-9-of-the-bride-the-laying-on-of-hands.md: >1 Peter 5:1-5 (CSB) I exhort the elders among you as a fellow elder and witness to the sufferings of Christ, as well as one who shares in the glory about to be revealed: Shepherd God’s flock among you, not overseeing out of compulsion but willingly, as God would have you; not out of greed for money but eagerly; not lording it over those entrusted to you, but being examples to the flock. And when the chief Shepherd appears, you will receive the unfading crown of glory. In the same way, you who are younger, be subject to the elders. All of you clothe yourselves with humility toward one another, because  
+./1689-26-9-of-the-bride-the-laying-on-of-hands.md: >1 Peter 5:1-5 I exhort the elders among you as a fellow elder and witness to the sufferings of Christ, as well as one who shares in the glory about to be revealed: Shepherd God’s flock among you, not overseeing out of compulsion but willingly, as God would have you; not out of greed for money but eagerly; not lording it over those entrusted to you, but being examples to the flock. And when the chief Shepherd appears, you will receive the unfading crown of glory. In the same way, you who are younger, be subject to the elders. All of you clothe yourselves with humility toward one another, because  
 ./1689-01-3-the-apocrypha-of-holy-scripture.md:## The Text
 ./1689-01-3-the-apocrypha-of-holy-scripture.md-
-./1689-01-3-the-apocrypha-of-holy-scripture.md: >Luke 24:25-27 (CSB) He said to them, “How foolish you are, and how slow to believe all that the prophets have spoken! Wasn’t it necessary for the Messiah to suffer these things and enter into his glory?” Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
+./1689-01-3-the-apocrypha-of-holy-scripture.md: >Luke 24:25-27 He said to them, “How foolish you are, and how slow to believe all that the prophets have spoken! Wasn’t it necessary for the Messiah to suffer these things and enter into his glory?” Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
 ./1689-15-3-God-gives-more-spirit.md:## The Text
 ./1689-15-3-God-gives-more-spirit.md-
-./1689-15-3-God-gives-more-spirit.md: >John 3:14–15 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
+./1689-15-3-God-gives-more-spirit.md: >John 3:14–15 “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
 ./1689-12-0-index.md:## The Text
 ./1689-12-0-index.md-
-./1689-12-0-index.md: >Romans 8:14–17 (CSB) For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
+./1689-12-0-index.md: >Romans 8:14–17 For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father!” The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
 ./1689-19-3-the-precepts-of-the-lord-are-right.md:## The Text
 ./1689-19-3-the-precepts-of-the-lord-are-right.md-
-./1689-19-3-the-precepts-of-the-lord-are-right.md: >Psalm 19:8a (CSB) The precepts of the LORD are right, making the heart glad;
+./1689-19-3-the-precepts-of-the-lord-are-right.md: >Psalm 19:8a The precepts of the LORD are right, making the heart glad;
 ./1689-TEACH-03-decree-of-God.md:## The Text
 ./1689-TEACH-03-decree-of-God.md-
-./1689-TEACH-03-decree-of-God.md: >Isaiah 46:10 (CSB) I declare the end from the beginning, and from long ago what is not yet done, saying: my plan will take place, and I will do all my will.
+./1689-TEACH-03-decree-of-God.md: >Isaiah 46:10 I declare the end from the beginning, and from long ago what is not yet done, saying: my plan will take place, and I will do all my will.
 ./1689-11-4-justify-spirit.md:## The Text
 ./1689-11-4-justify-spirit.md-
-./1689-11-4-justify-spirit.md: >Ephesians 1:4-6 (CSB) For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
+./1689-11-4-justify-spirit.md: >Ephesians 1:4-6 For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
 ./1689-13-2-God-does-lived-and-died.md:## The Text
 ./1689-13-2-God-does-lived-and-died.md-
-./1689-13-2-God-does-lived-and-died.md: >Romans 7:14–21 (CSB)  
+./1689-13-2-God-does-lived-and-died.md: >Romans 7:14–21  
 ./1689-27-1-communion-of-the-saints-co-heirs.md:## The Text
 ./1689-27-1-communion-of-the-saints-co-heirs.md-
 ./1689-27-1-communion-of-the-saints-co-heirs.md-## The Chapter
 ./1689-05-2-the-causes-of-all-things.md:## The Text
 ./1689-05-2-the-causes-of-all-things.md-
-./1689-05-2-the-causes-of-all-things.md: >Romans 11:36 (CSB) For from him and through him  
+./1689-05-2-the-causes-of-all-things.md: >Romans 11:36 For from him and through him  
 ./1689-05-4-the-goodness-of-God.md:## The Text
 ./1689-05-4-the-goodness-of-God.md-
-./1689-05-4-the-goodness-of-God.md: >Ephesians 3:14-21 (CSB) For this reason I kneel before the Father from whom every family in heaven and on earth is named. I pray that he may grant you, according to the riches of his glory, to be strengthened with power in your inner being through his Spirit, and that Christ may dwell in your hearts through faith. I pray that you, being rooted and firmly established in love, may be able to comprehend with all the saints what is the length and width, height and depth of God’s love, and to know Christ’s love that surpasses knowledge, so that you may be filled with all the fullness of God.
+./1689-05-4-the-goodness-of-God.md: >Ephesians 3:14-21 For this reason I kneel before the Father from whom every family in heaven and on earth is named. I pray that he may grant you, according to the riches of his glory, to be strengthened with power in your inner being through his Spirit, and that Christ may dwell in your hearts through faith. I pray that you, being rooted and firmly established in love, may be able to comprehend with all the saints what is the length and width, height and depth of God’s love, and to know Christ’s love that surpasses knowledge, so that you may be filled with all the fullness of God.
 ./1689-01-4-the-authority-of-holy-scripture.md:## The Text
 ./1689-01-4-the-authority-of-holy-scripture.md-
-./1689-01-4-the-authority-of-holy-scripture.md: >Psalm 19 (CSB)  
+./1689-01-4-the-authority-of-holy-scripture.md: >Psalm 19  
 ./1689-09-4-the-rescue-of-the-will.md:## The Text
 ./1689-09-4-the-rescue-of-the-will.md-
-./1689-09-4-the-rescue-of-the-will.md: >Romans 8:20-21 (CSB) For the creation was subjected to futility — not willingly, but because of him who subjected it — in the hope that the creation itself will also be set free from the bondage to decay into the glorious freedom of God’s children.
+./1689-09-4-the-rescue-of-the-will.md: >Romans 8:20-21 For the creation was subjected to futility — not willingly, but because of him who subjected it — in the hope that the creation itself will also be set free from the bondage to decay into the glorious freedom of God’s children.
 ./1689-26-6-of-the-bride-the-good-trees.md:## The Text
 ./1689-26-6-of-the-bride-the-good-trees.md-
-./1689-26-6-of-the-bride-the-good-trees.md: >Luke 6:43-45 (CSB) “A good tree doesn’t produce bad fruit; on the other hand, a bad tree doesn’t produce good fruit. For each tree is known by its own fruit. Figs aren’t gathered from thornbushes, or grapes picked from a bramble bush. A good person produces good out of the good stored up in his heart. An evil person produces evil out of the evil stored up in his heart, for his mouth speaks from the overflow of the heart.
+./1689-26-6-of-the-bride-the-good-trees.md: >Luke 6:43-45 “A good tree doesn’t produce bad fruit; on the other hand, a bad tree doesn’t produce good fruit. For each tree is known by its own fruit. Figs aren’t gathered from thornbushes, or grapes picked from a bramble bush. A good person produces good out of the good stored up in his heart. An evil person produces evil out of the evil stored up in his heart, for his mouth speaks from the overflow of the heart.
 ./1689-08-4-the-cross-of-christ.md:## The Text
 ./1689-08-4-the-cross-of-christ.md-
 ./1689-08-4-the-cross-of-christ.md: >1 John 4:10 (ESV) In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.
 ./1689-01-1-the-holy-scriptures.md:## The Text
 ./1689-01-1-the-holy-scriptures.md-
-./1689-01-1-the-holy-scriptures.md: >1 Corinthians 2:12-16 (CSB) **Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God.** We also speak these things, not in words taught by human wisdom, but in those taught by the Spirit, explaining spiritual things to spiritual people. But the person without the Spirit does not receive what comes from God’s Spirit, because it is foolishness to him; he is not able to understand it since it is evaluated spiritually. The spiritual person, however, can evaluate everything, and yet he himself cannot be evaluated by anyone. For  
+./1689-01-1-the-holy-scriptures.md: >1 Corinthians 2:12-16 **Now we have not received the spirit of the world, but the Spirit who comes from God, so that we may understand what has been freely given to us by God.** We also speak these things, not in words taught by human wisdom, but in those taught by the Spirit, explaining spiritual things to spiritual people. But the person without the Spirit does not receive what comes from God’s Spirit, because it is foolishness to him; he is not able to understand it since it is evaluated spiritually. The spiritual person, however, can evaluate everything, and yet he himself cannot be evaluated by anyone. For  
 ./1689-19-7-the-law-of-god-is-more-desirable-than-gold.md:## The Text
 ./1689-19-7-the-law-of-god-is-more-desirable-than-gold.md-
-./1689-19-7-the-law-of-god-is-more-desirable-than-gold.md: >Psalms 19:10-11 (CSB)  
+./1689-19-7-the-law-of-god-is-more-desirable-than-gold.md: >Psalms 19:10-11  
 ./1689-16-1-abundance-goodness.md:## The Text
 ./1689-16-1-abundance-goodness.md-
-./1689-16-1-abundance-goodness.md: >Psalm 16:2 (CSB) I said to the LORD, “You are my Lord; I have nothing good besides you.”
+./1689-16-1-abundance-goodness.md: >Psalm 16:2 I said to the LORD, “You are my Lord; I have nothing good besides you.”
 ./1689-17-2-will-of-God.md:## The Text
 ./1689-17-2-will-of-God.md-
-./1689-17-2-will-of-God.md: >Revelation 5:11–14 (CSB)  
+./1689-17-2-will-of-God.md: >Revelation 5:11–14  
 ./1689-13-3-God-does-fully-alive.md:## The Text
 ./1689-13-3-God-does-fully-alive.md-
-./1689-13-3-God-does-fully-alive.md: >Romans 7:22–25 (CSB)  
+./1689-13-3-God-does-fully-alive.md: >Romans 7:22–25  
 ./1689-26-3-of-the-bride-the-shepherd-knows-his-sheep.md:## The Text
 ./1689-26-3-of-the-bride-the-shepherd-knows-his-sheep.md-
-./1689-26-3-of-the-bride-the-shepherd-knows-his-sheep.md: >1 John 1:1-4 (CSB) What was from the beginning, what we have heard, what we have seen with our eyes, what we have observed and have touched with our hands, concerning the word of life — that life was revealed, and we have seen it and we testify and declare to you the eternal life that was with the Father and was revealed to us — what we have seen and heard we also declare to you, so that you may also have fellowship with us; and indeed our fellowship is with the Father and with his Son, Jesus Christ. We are writing these things so that our joy may be complete.
+./1689-26-3-of-the-bride-the-shepherd-knows-his-sheep.md: >1 John 1:1-4 What was from the beginning, what we have heard, what we have seen with our eyes, what we have observed and have touched with our hands, concerning the word of life — that life was revealed, and we have seen it and we testify and declare to you the eternal life that was with the Father and was revealed to us — what we have seen and heard we also declare to you, so that you may also have fellowship with us; and indeed our fellowship is with the Father and with his Son, Jesus Christ. We are writing these things so that our joy may be complete.
 ./1689-22-7-jesus-name-above-all-names.md:## The Text
 ./1689-22-7-jesus-name-above-all-names.md-
-./1689-22-7-jesus-name-above-all-names.md: >Revelation 1:1-8 (CSB) The revelation of Jesus Christ that God gave him to show his servants what must soon take place. He made it known by sending his angel to his servant John, who testified to the word of God and to the testimony of Jesus Christ, whatever he saw. Blessed is the one who reads aloud the words of this prophecy, and blessed are those who hear the words of this prophecy and keep what is written in it, because the time is near.  
+./1689-22-7-jesus-name-above-all-names.md: >Revelation 1:1-8 The revelation of Jesus Christ that God gave him to show his servants what must soon take place. He made it known by sending his angel to his servant John, who testified to the word of God and to the testimony of Jesus Christ, whatever he saw. Blessed is the one who reads aloud the words of this prophecy, and blessed are those who hear the words of this prophecy and keep what is written in it, because the time is near.  
 ./1689-05-7-the-goodness-of-God.md:## The Text
 ./1689-05-7-the-goodness-of-God.md-
-./1689-05-7-the-goodness-of-God.md: >Numbers 11:21-23 (CSB) But Moses replied, “I’m in the middle of a people with six hundred thousand foot soldiers, yet you say, ‘I will give them meat, and they will eat for a month.’ If flocks and herds were slaughtered for them, would they have enough? Or if all the fish in the sea were caught for them, would they have enough? ”
+./1689-05-7-the-goodness-of-God.md: >Numbers 11:21-23 But Moses replied, “I’m in the middle of a people with six hundred thousand foot soldiers, yet you say, ‘I will give them meat, and they will eat for a month.’ If flocks and herds were slaughtered for them, would they have enough? Or if all the fish in the sea were caught for them, would they have enough? ”
 ./1689-16-4-abundance-truly.md:## The Text
 ./1689-16-4-abundance-truly.md-
-./1689-16-4-abundance-truly.md: >Romans 3:23 (CSB) For all have sinned and fall short of the glory of God;
+./1689-16-4-abundance-truly.md: >Romans 3:23 For all have sinned and fall short of the glory of God;
 ./1689-30-3-lord's-supper-to-a-holy-use.md:## The Text
 ./1689-30-3-lord's-supper-to-a-holy-use.md-
 ./1689-30-3-lord's-supper-to-a-holy-use.md-## The Chapter
 ./1689-01-7-the-clarity-of-scripture-for-salvation.md:## The Text
 ./1689-01-7-the-clarity-of-scripture-for-salvation.md-
-./1689-01-7-the-clarity-of-scripture-for-salvation.md: >Luke 23:32–43 (CSB)  
+./1689-01-7-the-clarity-of-scripture-for-salvation.md: >Luke 23:32–43  
 ./1689-06-1-the-fall-of-mankind.md:## The Text
 ./1689-06-1-the-fall-of-mankind.md-
-./1689-06-1-the-fall-of-mankind.md: >Matthew 4:8-10 (CSB) Again, the devil took him to a very high mountain and showed him all the kingdoms of the world and their splendor. And he said to him, “I will give you all these things if you will fall down and worship me.” Then Jesus told him, “Go away, Satan! For it is written: Worship the Lord your God, and serve only him.”
+./1689-06-1-the-fall-of-mankind.md: >Matthew 4:8-10 Again, the devil took him to a very high mountain and showed him all the kingdoms of the world and their splendor. And he said to him, “I will give you all these things if you will fall down and worship me.” Then Jesus told him, “Go away, Satan! For it is written: Worship the Lord your God, and serve only him.”
 ./1689-32-1-the-quick-and-the-dead-judgment-day.md:## The Text
 ./1689-32-1-the-quick-and-the-dead-judgment-day.md-
 ./1689-32-1-the-quick-and-the-dead-judgment-day.md-## The Chapter
 ./1689-20-4-of-the-gospel-the-just-shall-live-by-faith.md:## The Text
 ./1689-20-4-of-the-gospel-the-just-shall-live-by-faith.md-
-./1689-20-4-of-the-gospel-the-just-shall-live-by-faith.md: >Romans 1:16–17 (CSB) For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek. For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
+./1689-20-4-of-the-gospel-the-just-shall-live-by-faith.md: >Romans 1:16–17 For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek. For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
 ./1689-15-4-God-gives-more-ongoing.md:## The Text
 ./1689-15-4-God-gives-more-ongoing.md-
-./1689-15-4-God-gives-more-ongoing.md: >1 Timothy 1:13–15 (CSB) even though I was formerly a blasphemer, a persecutor, and an arrogant man. But I received mercy because I acted out of ignorance in unbelief, and the grace of our Lord overflowed, along with the faith and love that are in Christ Jesus. This saying is trustworthy and deserving of full acceptance: “Christ Jesus came into the world to save sinners”—and I am the worst of them.
+./1689-15-4-God-gives-more-ongoing.md: >1 Timothy 1:13–15 even though I was formerly a blasphemer, a persecutor, and an arrogant man. But I received mercy because I acted out of ignorance in unbelief, and the grace of our Lord overflowed, along with the faith and love that are in Christ Jesus. This saying is trustworthy and deserving of full acceptance: “Christ Jesus came into the world to save sinners”—and I am the worst of them.
 ./1689-22-3-give-thanks.md:## The Text
 ./1689-22-3-give-thanks.md-
-./1689-22-3-give-thanks.md: >1 Thessalonians 5:16–28 (CSB)  
+./1689-22-3-give-thanks.md: >1 Thessalonians 5:16–28  
 ./1689-31-3-made-from-dust-glorified-by-god.md:## The Text
 ./1689-31-3-made-from-dust-glorified-by-god.md-
 ./1689-31-3-made-from-dust-glorified-by-god.md-## The Chapter
 ./1689-01-10-the-infallability-of-holy-scripture.md:## The Text
 ./1689-01-10-the-infallability-of-holy-scripture.md-
-./1689-01-10-the-infallability-of-holy-scripture.md: >Galatians 1:6–10 (CSB) I am amazed that you are so quickly turning away from him who called you by the grace of Christ and are turning to a different gospel—not that there is another gospel, but there are some who are troubling you and want to distort the gospel of Christ. But even if we or an angel from heaven should preach to you a gospel contrary to what we have preached to you, a curse be on him! As we have said before, I now say again: If anyone is preaching to you a gospel contrary to what you received, a curse be on him! For am I now trying to persuade people, or God? Or am I striving to please people? If I were still trying to please people, I would not be a servant of Christ.
+./1689-01-10-the-infallability-of-holy-scripture.md: >Galatians 1:6–10 I am amazed that you are so quickly turning away from him who called you by the grace of Christ and are turning to a different gospel—not that there is another gospel, but there are some who are troubling you and want to distort the gospel of Christ. But even if we or an angel from heaven should preach to you a gospel contrary to what we have preached to you, a curse be on him! As we have said before, I now say again: If anyone is preaching to you a gospel contrary to what you received, a curse be on him! For am I now trying to persuade people, or God? Or am I striving to please people? If I were still trying to please people, I would not be a servant of Christ.
 ./1689-06-2-the-death-of-mankind.md:## The Text
 ./1689-06-2-the-death-of-mankind.md-
-./1689-06-2-the-death-of-mankind.md: >Romans 7:24 (CSB) What a wretched man I am! Who will rescue me from this body of death?
+./1689-06-2-the-death-of-mankind.md: >Romans 7:24 What a wretched man I am! Who will rescue me from this body of death?
 ./1689-17-1-power-of-God.md:## The Text
 ./1689-17-1-power-of-God.md-
-./1689-17-1-power-of-God.md: >Romans 1:16–17 (CSB) For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek. For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
+./1689-17-1-power-of-God.md: >Romans 1:16–17 For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek. For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
 ./1689-18-1-here-is-love.md:## The Text
 ./1689-18-1-here-is-love.md-
 ./1689-18-1-here-is-love.md: >1 John 4:10 (ESV) In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.
 ./1689-26-4-of-the-bride-the-head-pastor.md:## The Text
 ./1689-26-4-of-the-bride-the-head-pastor.md-
-./1689-26-4-of-the-bride-the-head-pastor.md: >Acts 4:12 (CSB) There is salvation in no one else, for there is no other name under heaven given to people by which we must be saved.
+./1689-26-4-of-the-bride-the-head-pastor.md: >Acts 4:12 There is salvation in no one else, for there is no other name under heaven given to people by which we must be saved.
 ./1689-08-6-the-eternalness-of-the-messiah.md:## The Text
 ./1689-08-6-the-eternalness-of-the-messiah.md-
-./1689-08-6-the-eternalness-of-the-messiah.md: >Revelation 1:8 (CSB) “I am the Alpha and the Omega,” says the Lord God, “the one who is, who was, and who is to come, the Almighty.”
+./1689-08-6-the-eternalness-of-the-messiah.md: >Revelation 1:8 “I am the Alpha and the Omega,” says the Lord God, “the one who is, who was, and who is to come, the Almighty.”
 ./1689-19-4-the-command-of-the-lord-is-radiant.md:## The Text
 ./1689-19-4-the-command-of-the-lord-is-radiant.md-
-./1689-19-4-the-command-of-the-lord-is-radiant.md: >Psalm 19:8b (CSB) [...] the command of the LORD is radiant, making the eyes light up.
+./1689-19-4-the-command-of-the-lord-is-radiant.md: >Psalm 19:8b [...] the command of the LORD is radiant, making the eyes light up.
 ./1689-03-1-the-sovereignty-of-God.md:## The Text
 ./1689-03-1-the-sovereignty-of-God.md-
-./1689-03-1-the-sovereignty-of-God.md: >Ephesians 1:3–6 (CSB) Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
+./1689-03-1-the-sovereignty-of-God.md: >Ephesians 1:3–6 Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
 ./1689-09-2-the-power-of-the-will.md:## The Text
 ./1689-09-2-the-power-of-the-will.md-
-./1689-09-2-the-power-of-the-will.md: >Joshua 24:15 (CSB) But if it doesn’t please you to worship the LORD, **choose for yourselves today: Which will you worship** — the gods your ancestors worshiped beyond the Euphrates River or the gods of the Amorites in whose land you are living? As for me and my family, we will worship the LORD.
+./1689-09-2-the-power-of-the-will.md: >Joshua 24:15 But if it doesn’t please you to worship the LORD, **choose for yourselves today: Which will you worship** — the gods your ancestors worshiped beyond the Euphrates River or the gods of the Amorites in whose land you are living? As for me and my family, we will worship the LORD.
 ./1689-03-3-the-predestination-of-God.md:## The Text
 ./1689-03-3-the-predestination-of-God.md-
-./1689-03-3-the-predestination-of-God.md: >1 Timothy 1:17 (CSB) Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
+./1689-03-3-the-predestination-of-God.md: >1 Timothy 1:17 Now to the King eternal, immortal, invisible, the only God, be honor and glory forever and ever. Amen.
 ./1689-26-1-of-the-bride-we-are-the-body-of-christ.md:## The Text
 ./1689-26-1-of-the-bride-we-are-the-body-of-christ.md-
-./1689-26-1-of-the-bride-we-are-the-body-of-christ.md: >Ephesians 1:3-14 (CSB) Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
+./1689-26-1-of-the-bride-we-are-the-body-of-christ.md: >Ephesians 1:3-14 Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One.
 ./1689-10-3-the-calling-of-god-independent-of-us.md:## The Text
 ./1689-10-3-the-calling-of-god-independent-of-us.md-
-./1689-10-3-the-calling-of-god-independent-of-us.md: >Romans 1:18-19 (CSB) For God’s wrath is revealed from heaven against all godlessness and unrighteousness of people who by their unrighteousness suppress the truth, since what can be known about God is evident among them, because God has shown it to them.
+./1689-10-3-the-calling-of-god-independent-of-us.md: >Romans 1:18-19 For God’s wrath is revealed from heaven against all godlessness and unrighteousness of people who by their unrighteousness suppress the truth, since what can be known about God is evident among them, because God has shown it to them.
 ./1689-30-5-lord's-supper-outward-elements.md:## The Text
 ./1689-30-5-lord's-supper-outward-elements.md-
 ./1689-30-5-lord's-supper-outward-elements.md-## The Chapter
 ./1689-15-5-God-gives-more-preservation.md:## The Text
 ./1689-15-5-God-gives-more-preservation.md-
-./1689-15-5-God-gives-more-preservation.md: >Romans 6:23 (CSB) For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
+./1689-15-5-God-gives-more-preservation.md: >Romans 6:23 For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
 ./1689-03-6-the-free-purpose-of-the-will-of-God.md:## The Text
 ./1689-03-6-the-free-purpose-of-the-will-of-God.md-
-./1689-03-6-the-free-purpose-of-the-will-of-God.md: >Romans 5:12 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.
+./1689-03-6-the-free-purpose-of-the-will-of-God.md: >Romans 5:12 Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.
 ./1689-03-7-the-mercies-of-God.md:## The Text
 ./1689-03-7-the-mercies-of-God.md-
-./1689-03-7-the-mercies-of-God.md: >John 21:17 (CSB) He asked him the third time, “Simon, son of John, do you love me?” Peter was grieved that he asked him the third time, “Do you love me?” He said, “Lord, you know everything; you know that I love you.” “Feed my sheep,” Jesus said.
+./1689-03-7-the-mercies-of-God.md: >John 21:17 He asked him the third time, “Simon, son of John, do you love me?” Peter was grieved that he asked him the third time, “Do you love me?” He said, “Lord, you know everything; you know that I love you.” “Feed my sheep,” Jesus said.
 ./1689-03-4-the-certainty-of-God.md:## The Text
 ./1689-03-4-the-certainty-of-God.md-
-./1689-03-4-the-certainty-of-God.md: >Luke 12:7 (CSB) Indeed, the hairs of your head are all counted. Don’t be afraid; you are worth more than many sparrows.
+./1689-03-4-the-certainty-of-God.md: >Luke 12:7 Indeed, the hairs of your head are all counted. Don’t be afraid; you are worth more than many sparrows.
 ./1689-11-2-justify-faith.md:## The Text
 ./1689-11-2-justify-faith.md-
-./1689-11-2-justify-faith.md: >James 2:22-24 (CSB) You see that faith was active together with his works, and by works, faith was made complete, and the Scripture was fulfilled that says, Abraham believed God, and it was credited to him as righteousness, and he was called God’s friend. You see that a person is justified by works and not by faith alone.
+./1689-11-2-justify-faith.md: >James 2:22-24 You see that faith was active together with his works, and by works, faith was made complete, and the Scripture was fulfilled that says, Abraham believed God, and it was credited to him as righteousness, and he was called God’s friend. You see that a person is justified by works and not by faith alone.
 ./1689-TEACH-01-revelation-inspiration-of-holy-scriptures.md:## The Text
 ./1689-TEACH-01-revelation-inspiration-of-holy-scriptures.md-
-./1689-TEACH-01-revelation-inspiration-of-holy-scriptures.md: >Matthew 4:1-4 (CSB) Then Jesus was led up by the Spirit into the wilderness to be tempted by the devil. After he had fasted forty days and forty nights, he was hungry. Then the tempter approached him and said, “If you are the Son of God, tell these stones to become bread.” **He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”**
+./1689-TEACH-01-revelation-inspiration-of-holy-scriptures.md: >Matthew 4:1-4 Then Jesus was led up by the Spirit into the wilderness to be tempted by the devil. After he had fasted forty days and forty nights, he was hungry. Then the tempter approached him and said, “If you are the Son of God, tell these stones to become bread.” **He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”**
 ./1689-26-10-of-the-bride-the-work-of-the-minister.md:## The Text
 ./1689-26-10-of-the-bride-the-work-of-the-minister.md-
-./1689-26-10-of-the-bride-the-work-of-the-minister.md: >1 Corinthians 9:7-12 (CSB) Who serves as a soldier at his own expense? Who plants a vineyard and does not eat its fruit? Or who shepherds a flock and does not drink the milk from the flock? Am I saying this from a human perspective? Doesn’t the law also say the same thing? For it is written in the law of Moses, Do not muzzle an ox while it treads out grain. Is God really concerned about oxen? Isn’t he really saying it for our sake? Yes, this is written for our sake, because he who plows ought to plow in hope, and he who threshes should thresh in hope of sharing the crop. If we have sown spiritual things for you, is it too much if we reap material benefits from you? If others have this right to receive benefits from you, don’t we even more? Nevertheless, we have not made use of this right; instead, we endure everything so that we will not hinder the gospel of Christ.
+./1689-26-10-of-the-bride-the-work-of-the-minister.md: >1 Corinthians 9:7-12 Who serves as a soldier at his own expense? Who plants a vineyard and does not eat its fruit? Or who shepherds a flock and does not drink the milk from the flock? Am I saying this from a human perspective? Doesn’t the law also say the same thing? For it is written in the law of Moses, Do not muzzle an ox while it treads out grain. Is God really concerned about oxen? Isn’t he really saying it for our sake? Yes, this is written for our sake, because he who plows ought to plow in hope, and he who threshes should thresh in hope of sharing the crop. If we have sown spiritual things for you, is it too much if we reap material benefits from you? If others have this right to receive benefits from you, don’t we even more? Nevertheless, we have not made use of this right; instead, we endure everything so that we will not hinder the gospel of Christ.
 ./1689-26-11-of-the-bride-the-prophecy-of-the-word.md:## The Text
 ./1689-26-11-of-the-bride-the-prophecy-of-the-word.md-
-./1689-26-11-of-the-bride-the-prophecy-of-the-word.md: >2 Timothy 3:16–4:5 (CSB) All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.  
+./1689-26-11-of-the-bride-the-prophecy-of-the-word.md: >2 Timothy 3:16–4:5 All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.  
 ./1689-09-1-the-freedom-of-the-will.md:## The Text
 ./1689-09-1-the-freedom-of-the-will.md-
-./1689-09-1-the-freedom-of-the-will.md: >Genesis 1:27 (CSB) So God created man in his own image; he created him in the image of God; he created them male and female.
+./1689-09-1-the-freedom-of-the-will.md: >Genesis 1:27 So God created man in his own image; he created him in the image of God; he created them male and female.
 ./1689-08-2-the-son-of-god.md:## The Text
 ./1689-08-2-the-son-of-god.md-
-./1689-08-2-the-son-of-god.md: >Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+./1689-08-2-the-son-of-god.md: >Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 ./1689-20-2-of-the-gospel-revealed-in-the-word-of-God.md:## The Text
 ./1689-20-2-of-the-gospel-revealed-in-the-word-of-God.md-
-./1689-20-2-of-the-gospel-revealed-in-the-word-of-God.md: >Matthew 4:4 (CSB) He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
+./1689-20-2-of-the-gospel-revealed-in-the-word-of-God.md: >Matthew 4:4 He answered, “It is written: Man must not live on bread alone but on every word that comes from the mouth of God.”
 ./1689-30-6-lord's-supper-bread-and-wine.md:## The Text
 ./1689-30-6-lord's-supper-bread-and-wine.md-
 ./1689-30-6-lord's-supper-bread-and-wine.md-## The Chapter
 ./1689-04-2-the-imagebearers-of-God.md:## The Text
 ./1689-04-2-the-imagebearers-of-God.md-
-./1689-04-2-the-imagebearers-of-God.md: >Romans 1:20 (CSB) For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse.
+./1689-04-2-the-imagebearers-of-God.md: >Romans 1:20 For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse.
 ./1689-04-1-creation-the-manifestation-of-the-glory-of-God.md:## The Text
 ./1689-04-1-creation-the-manifestation-of-the-glory-of-God.md-
-./1689-04-1-creation-the-manifestation-of-the-glory-of-God.md: >Genesis 1:1-2 (CSB) In the beginning God created the heavens and the earth. Now the earth was formless and empty, darkness covered the surface of the watery depths, and the Spirit of God was hovering over the surface of the waters.
+./1689-04-1-creation-the-manifestation-of-the-glory-of-God.md: >Genesis 1:1-2 In the beginning God created the heavens and the earth. Now the earth was formless and empty, darkness covered the surface of the watery depths, and the Spirit of God was hovering over the surface of the waters.
 ./1689-20-1-of-the-gospel-from-everlasting-to-everlasting.md:## The Text
 ./1689-20-1-of-the-gospel-from-everlasting-to-everlasting.md-
-./1689-20-1-of-the-gospel-from-everlasting-to-everlasting.md: >Psalm 90:2 (CSB) Before the mountains were born, before you gave birth to the earth and the world, from eternity to eternity, you are God. 
+./1689-20-1-of-the-gospel-from-everlasting-to-everlasting.md: >Psalm 90:2 Before the mountains were born, before you gave birth to the earth and the world, from eternity to eternity, you are God. 
 ./1689-18-3-let-me-all-thy-love-accepting.md:## The Text
 ./1689-18-3-let-me-all-thy-love-accepting.md-
-./1689-18-3-let-me-all-thy-love-accepting.md: >John 3:31-36 (CSB) The one who comes from above is above all. The one who is from the earth is earthly and speaks in earthly terms. The one who comes from heaven is above all. He testifies to what he has seen and heard, and yet no one accepts his testimony. The one who has accepted his testimony has affirmed that God is true. For the one whom God sent speaks God’s words, since he gives the Spirit without measure. The Father loves the Son and has given all things into his hands. The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
+./1689-18-3-let-me-all-thy-love-accepting.md: >John 3:31-36 The one who comes from above is above all. The one who is from the earth is earthly and speaks in earthly terms. The one who comes from heaven is above all. He testifies to what he has seen and heard, and yet no one accepts his testimony. The one who has accepted his testimony has affirmed that God is true. For the one whom God sent speaks God’s words, since he gives the Spirit without measure. The Father loves the Son and has given all things into his hands. The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 ./1689-11-6-justify-saves.md:## The Text
 ./1689-11-6-justify-saves.md-
-./1689-11-6-justify-saves.md: >Romans 3:25–26 (CSB) God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.
+./1689-11-6-justify-saves.md: >Romans 3:25–26 God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.
 ./1689-29-4-baptism-immersion.md:## The Text
 ./1689-29-4-baptism-immersion.md-
 ./1689-29-4-baptism-immersion.md-## The Chapter
 ./1689-18-4-in-thy-truth.md:## The Text
 ./1689-18-4-in-thy-truth.md-
-./1689-18-4-in-thy-truth.md: >Romans 8:38–39 (CSB) For I am persuaded that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
+./1689-18-4-in-thy-truth.md: >Romans 8:38–39 For I am persuaded that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
 ./1689-01-6-the-whole-counsel-of-god.md:## The Text
 ./1689-01-6-the-whole-counsel-of-god.md-
-./1689-01-6-the-whole-counsel-of-god.md: >John 6:30–46 (CSB)  
+./1689-01-6-the-whole-counsel-of-god.md: >John 6:30–46  
 ./1689-01-9-the-interpretation-of-holy-scripture.md:## The Text
 ./1689-01-9-the-interpretation-of-holy-scripture.md-
-./1689-01-9-the-interpretation-of-holy-scripture.md: >1 John 2:2 (CSB) He himself is the atoning sacrifice for our sins, and not only for ours, but also for those of the whole world.
+./1689-01-9-the-interpretation-of-holy-scripture.md: >1 John 2:2 He himself is the atoning sacrifice for our sins, and not only for ours, but also for those of the whole world.
 ./1689-TEACH-02-external-relations-of-God.md:## The Text
 ./1689-TEACH-02-external-relations-of-God.md-
-./1689-TEACH-02-external-relations-of-God.md: >Romans 11:33–36 (CSB)  
+./1689-TEACH-02-external-relations-of-God.md: >Romans 11:33–36  
 ./1689-26-8-of-the-bride-the-members-gathered.md:## The Text
 ./1689-26-8-of-the-bride-the-members-gathered.md-
-./1689-26-8-of-the-bride-the-members-gathered.md: >1 Timothy 3:1–13 (CSB) This saying is trustworthy: “If anyone aspires to be an overseer, he desires a noble work.” An overseer, therefore, must be above reproach, the husband of one wife, self-controlled, sensible, respectable, hospitable, able to teach, not an excessive drinker, not a bully but gentle, not quarrelsome, not greedy. He must manage his own household competently and have his children under control with all dignity. (If anyone does not know how to manage his own household, how will he take care of God’s church?) He must not be a new convert, or he might become conceited and incur the same condemnation as the devil. Furthermore, he must have a good reputation among outsiders, so that he does not fall into disgrace and the devil’s trap. Deacons, likewise, should be worthy of respect, not hypocritical, not drinking a lot of wine, not greedy for money, holding the mystery of the faith with a clear conscience. They must also be tested first; if they prove blameless, then they can serve as deacons. Wives, likewise, should be worthy of respect, not slanderers, self-controlled, faithful in everything. Deacons are to be husbands of one wife, managing their children and their own households competently. For those who have served well as deacons acquire a good standing for themselves and great boldness in the faith that is in Christ Jesus.
+./1689-26-8-of-the-bride-the-members-gathered.md: >1 Timothy 3:1–13 This saying is trustworthy: “If anyone aspires to be an overseer, he desires a noble work.” An overseer, therefore, must be above reproach, the husband of one wife, self-controlled, sensible, respectable, hospitable, able to teach, not an excessive drinker, not a bully but gentle, not quarrelsome, not greedy. He must manage his own household competently and have his children under control with all dignity. (If anyone does not know how to manage his own household, how will he take care of God’s church?) He must not be a new convert, or he might become conceited and incur the same condemnation as the devil. Furthermore, he must have a good reputation among outsiders, so that he does not fall into disgrace and the devil’s trap. Deacons, likewise, should be worthy of respect, not hypocritical, not drinking a lot of wine, not greedy for money, holding the mystery of the faith with a clear conscience. They must also be tested first; if they prove blameless, then they can serve as deacons. Wives, likewise, should be worthy of respect, not slanderers, self-controlled, faithful in everything. Deacons are to be husbands of one wife, managing their children and their own households competently. For those who have served well as deacons acquire a good standing for themselves and great boldness in the faith that is in Christ Jesus.
 ./1689-15-1-God-gives-more-repentance.md:## The Text
 ./1689-15-1-God-gives-more-repentance.md-
-./1689-15-1-God-gives-more-repentance.md: >Job 25:4-6 (CSB) How can a human be justified before God?  
+./1689-15-1-God-gives-more-repentance.md: >Job 25:4-6 How can a human be justified before God?  
 ./1689-22-4-pray.md:## The Text
 ./1689-22-4-pray.md-
-./1689-22-4-pray.md: >1 Chronicles 29:10–18 (CSB)  
+./1689-22-4-pray.md: >1 Chronicles 29:10–18  

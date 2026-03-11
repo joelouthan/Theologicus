@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 56 (CSB)  
+>Psalm 56  
 ><sup></sup> For the choir director: according to “A Silent Dove Far Away.” A Miktam of David. When the Philistines seized him in Gath. 
 >
 ><sup>1</sup> Be gracious to me, God, for a man is trampling me; he fights and oppresses me all day long. 

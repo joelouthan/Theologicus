@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 23:6b (CSB)   faithful love
+>Psalm 23:6b   faithful love
 
 ## The Prayer
 

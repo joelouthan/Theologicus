@@ -4,11 +4,11 @@
 
 ## The Text
 
->Romans 8:37 (CSB) No, in all these things we are more than conquerors through him who loved us.
+>Romans 8:37 No, in all these things we are more than conquerors through him who loved us.
 
 All of the questions, pushbacks, and opposition that Paul was facing with teaching this one particular truth of God as a through but simple exposition of Christ’s own words when He said:
 
->John 10:28–30 (CSB) I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
+>John 10:28–30 I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
 
 Now you would think that people, especially devout Christians, would welcome this bold and declarative statement of our own Lord and Savior Jesus Christ with great affection upon our hearts and great peace for our souls. Sad to say, there are many Christians today who would vehemently contend that, yes, it is certainly possible for one person to lose their salvation.
 
@@ -20,7 +20,7 @@ Christians know this not as a truth that can be selected from a multiple choice 
 
 Now, some of you who know Christian history know for every martyr burned at the stake, many did deny Jesus to save their own lives. What about them? Did you know that one of the discussions in the church were whether or not to allow these people back into the fellowship of believers? Now, what each individual church decided, I do not know. However, just as Christ said:
 
->Luke 12:8–9 (CSB) “And I say to you, anyone who acknowledges me before others, the Son of Man will also acknowledge him before the angels of God, but whoever denies me before others will be denied before the angels of God.
+>Luke 12:8–9 “And I say to you, anyone who acknowledges me before others, the Son of Man will also acknowledge him before the angels of God, but whoever denies me before others will be denied before the angels of God.
 
 and further prophecies that Peter himself would not just deny Christ once but three times[^2], but it was the same Christ in John 21 who called and confirmed Peter not once but three times.
 
@@ -28,11 +28,11 @@ So what about now? We have so many people who grew up in churches who then decid
 
 And we would say, “I have seen them move in the power of the Spirit. How can they be not saved before?” To which I would state that the author of Hebrews already addressed this:
 
->Hebrews 6:4–6 (CSB) For it is impossible to renew to repentance those who were once enlightened, who tasted the heavenly gift, who shared in the Holy Spirit, who tasted God’s good word and the powers of the coming age, and who have fallen away. This is because, to their own harm, they are recrucifying the Son of God and holding him up to contempt.
+>Hebrews 6:4–6 For it is impossible to renew to repentance those who were once enlightened, who tasted the heavenly gift, who shared in the Holy Spirit, who tasted God’s good word and the powers of the coming age, and who have fallen away. This is because, to their own harm, they are recrucifying the Son of God and holding him up to contempt.
 
 to explain what Christ said:
 
->Matthew 7:21–23 (CSB) “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father in heaven. On that day many will say to me, ‘Lord, Lord, didn’t we prophesy in your name, drive out demons in your name, and do many miracles in your name?’ Then I will announce to them, ‘I never knew you. Depart from me, you lawbreakers!’
+>Matthew 7:21–23 “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father in heaven. On that day many will say to me, ‘Lord, Lord, didn’t we prophesy in your name, drive out demons in your name, and do many miracles in your name?’ Then I will announce to them, ‘I never knew you. Depart from me, you lawbreakers!’
 
 I say this never to say “once saved always saved.” I am not even going to try to explain it away by giving the excuse of “perhaps they were not saved, to begin with” as though I had the God-alone power that searches and knows the hearts and minds of every person in the world because I do not.
 

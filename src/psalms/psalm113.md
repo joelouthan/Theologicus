@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 113 (CSB)  
+>Psalm 113  
 ><sup>1</sup> Hallelujah! Give praise, servants of the LORD; praise the name of the LORD. 
 >
 ><sup>2</sup> Let the name of the LORD be blessed both now and forever. 

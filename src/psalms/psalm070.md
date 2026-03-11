@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 70 (CSB)  
+>Psalm 70  
 ><sup></sup> For the choir director. Of David. To bring remembrance. 
 >
 ><sup>1</sup> God, hurry to rescue me. LORD, hurry to help me! 

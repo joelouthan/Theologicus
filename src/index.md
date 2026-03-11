@@ -6,7 +6,7 @@
 
 ## The Text
 
->Psalm 17:15 (CSB) But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
+>Psalm 17:15 But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
 
 Corem Deo. I will live before the face of my God. And I know that one day, I will behold my God.
 ## The Introduction

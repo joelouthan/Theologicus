@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 80 (CSB)    
+>Psalm 80    
 > For the choir director: according to “The Lilies.” A testimony of Asaph. A psalm. 
 >
 ><sup> 1 </sup> Listen, Shepherd of Israel, who leads Joseph like a flock; you who sit enthroned between the cherubim, shine 

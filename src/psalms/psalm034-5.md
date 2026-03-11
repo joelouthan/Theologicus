@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 34 (CSB)  
+>Psalm 34  
 ><sup>5</sup> Those who look to him are radiant with joy; their faces will never be ashamed. 
 
 ## The Prayer

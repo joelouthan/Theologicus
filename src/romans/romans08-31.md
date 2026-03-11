@@ -6,7 +6,7 @@
 
 And here is love:
 
->Romans 8:31 (CSB) What, then, are we to say about these things? If God is for us, who is against us?
+>Romans 8:31 What, then, are we to say about these things? If God is for us, who is against us?
 
 The love of God cannot be simply defined by the merest of affections and words that we might share with one another. Is our relationship to our spouse, children, family, coworkers, or neighbor compare to one’s relationship with God? Although our relationships should be held in the light of God’s relationship with us, it is preposterous to think that anybody we know would compare to God is perfect in all things especially when it comes to love.
 
@@ -84,13 +84,13 @@ If God is for us, who can be against us?
 
 But who can actually go against us? We know for sure that it is not the people on this earth. They are not our real enemies. They are prisoners of war and by only God’s sovereign grace and mercy, they shall be set free! 
 
->Isaiah 61:1–3 (CSB) The Spirit of the Lord GOD is on me, because the LORD has anointed me to bring good news to the poor. He has sent me to heal the brokenhearted, to proclaim liberty to the captives and freedom to the prisoners; to proclaim the year of the LORD’s favor, and the day of our God’s vengeance; to comfort all who mourn, to provide for those who mourn in Zion; to give them a crown of beauty instead of ashes, festive oil instead of mourning, and splendid clothes instead of despair. And they will be called righteous trees, planted by the LORD to glorify him.
+>Isaiah 61:1–3 The Spirit of the Lord GOD is on me, because the LORD has anointed me to bring good news to the poor. He has sent me to heal the brokenhearted, to proclaim liberty to the captives and freedom to the prisoners; to proclaim the year of the LORD’s favor, and the day of our God’s vengeance; to comfort all who mourn, to provide for those who mourn in Zion; to give them a crown of beauty instead of ashes, festive oil instead of mourning, and splendid clothes instead of despair. And they will be called righteous trees, planted by the LORD to glorify him.
 
->Luke 4:16–21 (CSB) He came to Nazareth, where he had been brought up. As usual, he entered the synagogue on the Sabbath day and stood up to read. The scroll of the prophet Isaiah was given to him, and unrolling the scroll, he found the place where it was written: The Spirit of the Lord is on me, because he has anointed me to preach good news to the poor. He has sent me to proclaim release to the captives and recovery of sight to the blind, to set free the oppressed, to proclaim the year of the Lord’s favor. He then rolled up the scroll, gave it back to the attendant, and sat down. And the eyes of everyone in the synagogue were fixed on him. He began by saying to them, “Today as you listen, this Scripture has been fulfilled.”
+>Luke 4:16–21 He came to Nazareth, where he had been brought up. As usual, he entered the synagogue on the Sabbath day and stood up to read. The scroll of the prophet Isaiah was given to him, and unrolling the scroll, he found the place where it was written: The Spirit of the Lord is on me, because he has anointed me to preach good news to the poor. He has sent me to proclaim release to the captives and recovery of sight to the blind, to set free the oppressed, to proclaim the year of the Lord’s favor. He then rolled up the scroll, gave it back to the attendant, and sat down. And the eyes of everyone in the synagogue were fixed on him. He began by saying to them, “Today as you listen, this Scripture has been fulfilled.”
 
 What are our actually enemy? Paul perfectly defines it:
 
->Ephesians 6:10–12 (CSB) Finally, be strengthened by the Lord and by his vast strength. Put on the full armor of God so that you can stand against the schemes of the devil. For our struggle is not against flesh and blood, but against the rulers, against the authorities, against the cosmic powers of this darkness, against evil, spiritual forces in the heavens.
+>Ephesians 6:10–12 Finally, be strengthened by the Lord and by his vast strength. Put on the full armor of God so that you can stand against the schemes of the devil. For our struggle is not against flesh and blood, but against the rulers, against the authorities, against the cosmic powers of this darkness, against evil, spiritual forces in the heavens.
 
 So if the ONLY ones could go against us would be the rulers, authorities, cosmic powers over this present darkness, and the spiritual forces of evil, then let us see what the Bible says about our real enemies.
 
@@ -98,31 +98,31 @@ Who can go against us?
 
 **Definitely not the rulers and authorities of this age, namely, Satan and his demons**: 
 
->Colossians 2:15 (CSB) He disarmed the rulers and authorities and disgraced them publicly; he triumphed over them in him.
+>Colossians 2:15 He disarmed the rulers and authorities and disgraced them publicly; he triumphed over them in him.
 
 And
 
->Romans 16:20 (CSB) The God of peace will soon crush Satan under your feet. The grace of our Lord Jesus be with you.
+>Romans 16:20 The God of peace will soon crush Satan under your feet. The grace of our Lord Jesus be with you.
 
 **What about the gates of hell**: 
 
->Matthew 16:13–20 (CSB) When Jesus came to the region of Caesarea Philippi, he asked his disciples, “Who do people say that the Son of Man is?” They replied, “Some say John the Baptist; others, Elijah; still others, Jeremiah or one of the prophets.” “But you,” he asked them, “who do you say that I am?” Simon Peter answered, “You are the Messiah, the Son of the living God.” Jesus responded, “Blessed are you, Simon son of Jonah, because flesh and blood did not reveal this to you, but my Father in heaven. And I also say to you that you are Peter, and on this rock I will build my church, and the gates of Hades will not overpower it. I will give you the keys of the kingdom of heaven, and whatever you bind on earth will have been bound in heaven, and whatever you loose on earth will have been loosed in heaven.” Then he gave the disciples orders to tell no one that he was the Messiah.
+>Matthew 16:13–20 When Jesus came to the region of Caesarea Philippi, he asked his disciples, “Who do people say that the Son of Man is?” They replied, “Some say John the Baptist; others, Elijah; still others, Jeremiah or one of the prophets.” “But you,” he asked them, “who do you say that I am?” Simon Peter answered, “You are the Messiah, the Son of the living God.” Jesus responded, “Blessed are you, Simon son of Jonah, because flesh and blood did not reveal this to you, but my Father in heaven. And I also say to you that you are Peter, and on this rock I will build my church, and the gates of Hades will not overpower it. I will give you the keys of the kingdom of heaven, and whatever you bind on earth will have been bound in heaven, and whatever you loose on earth will have been loosed in heaven.” Then he gave the disciples orders to tell no one that he was the Messiah.
 
 **Certainly cannot be the sin you have done**:
 
->Colossians 2:13–14 (CSB) And when you were dead in trespasses and in the uncircumcision of your flesh, he made you alive with him and forgave us all our trespasses. He erased the certificate of debt, with its obligations, that was against us and opposed to us, and has taken it away by nailing it to the cross.
+>Colossians 2:13–14 And when you were dead in trespasses and in the uncircumcision of your flesh, he made you alive with him and forgave us all our trespasses. He erased the certificate of debt, with its obligations, that was against us and opposed to us, and has taken it away by nailing it to the cross.
 
 **What about the sin you will commit?**: 
 
->Romans 5:8 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us.
+>Romans 5:8 But God proves his own love for us in that while we were still sinners, Christ died for us.
 
 And
 
->Psalm 103:8–14 (CSB) The LORD is compassionate and gracious, slow to anger and abounding in faithful love. He will not always accuse us or be angry forever. He has not dealt with us as our sins deserve or repaid us according to our iniquities. For as high as the heavens are above the earth, so great is his faithful love toward those who fear him. As far as the east is from the west, so far has he removed our transgressions from us. As a father has compassion on his children, so the LORD has compassion on those who fear him. For he knows what we are made of, remembering that we are dust.
+>Psalm 103:8–14 The LORD is compassionate and gracious, slow to anger and abounding in faithful love. He will not always accuse us or be angry forever. He has not dealt with us as our sins deserve or repaid us according to our iniquities. For as high as the heavens are above the earth, so great is his faithful love toward those who fear him. As far as the east is from the west, so far has he removed our transgressions from us. As a father has compassion on his children, so the LORD has compassion on those who fear him. For he knows what we are made of, remembering that we are dust.
 
 **Not even Hell itself nor Death itself**:
 
->Revelation 20:13–14 (CSB) Then the sea gave up the dead that were in it, and death and Hades gave up the dead that were in them; each one was judged according to their works. Death and Hades were thrown into the lake of fire. This is the second death, the lake of fire.
+>Revelation 20:13–14 Then the sea gave up the dead that were in it, and death and Hades gave up the dead that were in them; each one was judged according to their works. Death and Hades were thrown into the lake of fire. This is the second death, the lake of fire.
 
 ## Our Response
 
@@ -140,17 +140,17 @@ Who is left standing against the children of God?
 
 **God has perfectly and completely conquered the wicked foe!** Christ is the dead bronze serpent mounted on a pole so that everyone who looked upon him will live!
 
->John 3:14–15 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
+>John 3:14–15 “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
 
 **God has perfectly and completely conquered the wicked foe!** 
 
 Christ is the worthy lamb that was slained! Christ is crucified for us!
 
-> John 19:28-30 (CSB) After this, when Jesus knew that everything was now finished that the Scripture might be fulfilled, he said, “I’m thirsty.” A jar full of sour wine was sitting there; so they fixed a sponge full of sour wine on a hyssop branch and held it up to his mouth. When Jesus had received the sour wine, he said, “It is finished.” Then bowing his head, he gave up his spirit.
+> John 19:28-30 After this, when Jesus knew that everything was now finished that the Scripture might be fulfilled, he said, “I’m thirsty.” A jar full of sour wine was sitting there; so they fixed a sponge full of sour wine on a hyssop branch and held it up to his mouth. When Jesus had received the sour wine, he said, “It is finished.” Then bowing his head, he gave up his spirit.
 
 **God has perfectly and completely conquered the wicked foe!** Because Christ was crucified and has conquered, we are saved to Him forever.
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 So, again, I ask you:
 

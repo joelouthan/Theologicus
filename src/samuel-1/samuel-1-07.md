@@ -4,7 +4,7 @@
 
 ## The Word
 
->Jonah 2:8-9 (CSB) Those who cherish worthless idols  
+>Jonah 2:8-9 Those who cherish worthless idols  
 >abandon their faithful love,  
 >but as for me, I will sacrifice to you  
 >with a voice of thanksgiving.  
@@ -13,7 +13,7 @@
 
 ## The Passage
 
->1 Samuel 7 (CSB)  
+>1 Samuel 7  
 ><sup>1</sup> So the people of Kiriath-jearim came for the ark of the LORD and took it to Abinadab’s house on the hill. They consecrated his son Eleazar to take care of it. 
 >
 ><sup>2</sup> Time went by until twenty years had passed since the ark had been taken to Kiriath-jearim. Then the whole house of Israel longed for the LORD. 
@@ -59,7 +59,7 @@
 
 ## The Psalm
 
->Psalm 3 (CSB)  
+>Psalm 3  
 ><sup></sup> A psalm of David when he fled from his son Absalom. 
 >
 ><sup>1</sup> LORD, how my foes increase! There are many who attack me. 

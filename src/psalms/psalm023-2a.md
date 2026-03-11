@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 23:2a (CSB)   He lets me lie down in green pastures
+>Psalm 23:2a   He lets me lie down in green pastures
 
 ## The Prayer
 

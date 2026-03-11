@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 127 (CSB)  
+>Psalm 127  
 ><sup></sup> A song of ascents. Of Solomon. 
 >
 ><sup>1</sup> Unless the LORD builds a house, its builders labor over it in vain; unless the LORD watches over a city, the watchman stays alert in vain. 

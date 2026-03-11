@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 119:1 (CSB) How happy are those whose way is blameless, who walk according to the LORD’s instruction!
+>Psalm 119:1 How happy are those whose way is blameless, who walk according to the LORD’s instruction!
 
 ## The Prayer
 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 133 (CSB)  
+>Psalm 133  
 ><sup></sup> A song of ascents. Of David. 
 >
 ><sup>1</sup> How delightfully good when brothers live together in harmony! 

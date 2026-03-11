@@ -6,7 +6,7 @@
 
 ## The Text
 
->Matthew 1:1–6 (CSB)  
+>Matthew 1:1–6  
 ><sup> 1 </sup> An account of the genealogy of Jesus Christ, the Son of David, the Son of Abraham:
 >
 ><sup> 2 </sup> Abraham fathered Isaac, Isaac fathered Jacob, Jacob fathered Judah and his brothers,
@@ -21,7 +21,7 @@
 
 ## The Word
 
->Ephesians 1:4-8 (CSB) For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One. In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace that he richly poured out on us with all wisdom and understanding.
+>Ephesians 1:4-8 For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will, to the praise of his glorious grace that he lavished on us in the Beloved One. In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace that he richly poured out on us with all wisdom and understanding.
 
 ## The Devotion
 
@@ -32,7 +32,7 @@ But he would not do it out of thin air or out of the clouds, although he is God 
 He was going to send his Son to be "with us" and in a way, through us. This was from the very beginning:
 
 <div class="psalm">
-Genesis 3:15 (CSB) I will put hostility between you and the woman,
+Genesis 3:15 I will put hostility between you and the woman,
 and between your offspring and her offspring.
 He will strike your head,
 and you will strike his heel.
@@ -61,11 +61,11 @@ But this elaborate plan by the Father and the Son--why would they include such v
 
 But whom did Christ come for? The righteous? The wealthy? The healthy? The perfect ones?
 
->Mark 2:16-17 (CSB) When the scribes who were Pharisees saw that he was eating with sinners and tax collectors, they asked his disciples, “Why does he eat with tax collectors and sinners? ” When Jesus heard this, he told them, “It is not those who are well who need a doctor, but those who are sick. I didn’t come to call the righteous, but sinners.”
+>Mark 2:16-17 When the scribes who were Pharisees saw that he was eating with sinners and tax collectors, they asked his disciples, “Why does he eat with tax collectors and sinners? ” When Jesus heard this, he told them, “It is not those who are well who need a doctor, but those who are sick. I didn’t come to call the righteous, but sinners.”
 
 No. He came for the sinners, The deplorable. The depraved. The wicked.
 
->Romans 5:8-9 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us. How much more then, since we have now been justified by his blood, will we be saved through him from wrath.
+>Romans 5:8-9 But God proves his own love for us in that while we were still sinners, Christ died for us. How much more then, since we have now been justified by his blood, will we be saved through him from wrath.
 
 We are no longer under the weight of being perfect because we are not and we would be crushed by those expectations. We must obey the law but we have always fallen way way short. Christ came as our Perfection so that, in fulfilling the obedience of the law, we are then saved by God and we *get* to obey God because why? We have been made perfectly righteous by the Perfect Law Keeper.
 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 143 (CSB)  
+>Psalm 143  
 ><sup></sup> A psalm of David. 
 >
 ><sup>1</sup> LORD, hear my prayer. In your faithfulness listen to my plea, and in your righteousness answer me. 

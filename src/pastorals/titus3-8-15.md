@@ -4,7 +4,7 @@
 
 ## The Text
 
->Titus 3:8–15 (CSB)  
+>Titus 3:8–15  
 ><sup> 8  </sup>This saying is trustworthy. I want you to insist on these things, so that those who have believed God might be careful to devote themselves to good works. These are good and profitable for everyone. 
 >
 ><sup> 9  </sup>But avoid foolish debates, genealogies, quarrels, and disputes about the law, because they are unprofitable and worthless. 
@@ -31,7 +31,7 @@ What is Paul is wanting pastors and congregation to insist on?
 
 Go back to the passage right above:
 
->Titus 3:3–7 (CSB)  
+>Titus 3:3–7  
 ><sup> 3  </sup>For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. 
 >
 ><sup> 4  </sup>But when the kindness of God our Savior and his love for mankind appeared, 
@@ -54,7 +54,7 @@ The Bible is never: do good works so you believe. But yet, believe/trust/obey/re
 
 Remember the gospel passage in Ezekiel?
 
->Ezekiel 36:25–27 (CSB)  I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. 26 I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. 27 I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
+>Ezekiel 36:25–27  I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. 26 I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. 27 I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
 
 Look at what God does:
 
@@ -98,7 +98,7 @@ Listen, this is a sticky verse. Because, doesn't God give grace upon grace. Shou
 
 Look at Matthew 18.
 
->Matthew 18:15-20 (CSB) “If your brother sins against you, go tell him his fault, between you and him alone. If he listens to you, you have won your brother. 16 But if he won’t listen, take one or two others with you, so that by the testimony of two or three witnesses every fact may be established. 17 If he doesn’t pay attention to them, tell the church. If he doesn’t pay attention even to the church, let him be like a Gentile and a tax collector to you. 18 Truly I tell you, whatever you bind on earth will have been bound in heaven, and whatever you loose on earth will have been loosed in heaven. 19 Again, truly I tell you, if two of you on earth agree about any matter that you pray for, it will be done for you by my Father in heaven. 20 For where two or three are gathered together in my name, I am there among them.”
+>Matthew 18:15-20 “If your brother sins against you, go tell him his fault, between you and him alone. If he listens to you, you have won your brother. 16 But if he won’t listen, take one or two others with you, so that by the testimony of two or three witnesses every fact may be established. 17 If he doesn’t pay attention to them, tell the church. If he doesn’t pay attention even to the church, let him be like a Gentile and a tax collector to you. 18 Truly I tell you, whatever you bind on earth will have been bound in heaven, and whatever you loose on earth will have been loosed in heaven. 19 Again, truly I tell you, if two of you on earth agree about any matter that you pray for, it will be done for you by my Father in heaven. 20 For where two or three are gathered together in my name, I am there among them.”
 
 (Let me address something. Does this mean we should pray together because Christ is with us? Yes. Does it mean this is how we do church discipline because Christ is within us? Also, yes.)
 
@@ -112,7 +112,7 @@ You don't have to go. We rather you stay. We rather you hear of Christ and what 
 
 But division cannot be entertained, for:
 
->Ephesians 4:11-13 (CSB) And he himself gave some to be apostles, some prophets, some evangelists, some pastors and teachers, 12 to equip the saints for the work of ministry, to build up the body of Christ, 13 until we all reach unity in the faith and in the knowledge of God’s Son, growing into maturity with a stature measured by Christ’s fullness.
+>Ephesians 4:11-13 And he himself gave some to be apostles, some prophets, some evangelists, some pastors and teachers, 12 to equip the saints for the work of ministry, to build up the body of Christ, 13 until we all reach unity in the faith and in the knowledge of God’s Son, growing into maturity with a stature measured by Christ’s fullness.
 
 We will reach unity in faith. We won't get there with divisive people.
 
@@ -120,15 +120,15 @@ We will reach unity in faith. We won't get there with divisive people.
 
 ### Rest in Christ: Saved by God by the gospel
 
->Romans 6:23 (CSB)  For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
+>Romans 6:23  For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord.
 
 You don't have to keep going down that road. You don't have to run into death.
 
->Romans 8:1 (CSB)  Therefore, there is now no condemnation for those in Christ Jesus,
+>Romans 8:1  Therefore, there is now no condemnation for those in Christ Jesus,
 
 You might say, "I want to stop sinning because I find myself keep turning back to sin." 
 
->Proverbs 24:16 (CSB)  Though a righteous person falls seven times, he will get up, but the wicked will stumble into ruin.
+>Proverbs 24:16  Though a righteous person falls seven times, he will get up, but the wicked will stumble into ruin.
 
 What did I say early? What the does God preach? Try harder? Do better? Be perfect? No! Repent of your sins and believe in Christ.
 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 23:3b (CSB)   he leads me along the right paths for his name’s sake.
+>Psalm 23:3b   he leads me along the right paths for his name’s sake.
 
 ## The Prayer
 

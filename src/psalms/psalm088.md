@@ -10,7 +10,7 @@
 # Praying Through: Psalm 88 Salvation
 
 ## The Psalm
->Psalm 88 (CSB)    
+>Psalm 88    
 > A song. A psalm of the sons of Korah. For the choir director: according to Mahalath Leannoth. A Maskil of Heman the Ezrahite. 
 >
 ><sup> 1 </sup> LORD, God of my salvation, I cry out before you day and night. 

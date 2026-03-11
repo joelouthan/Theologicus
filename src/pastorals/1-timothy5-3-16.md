@@ -4,7 +4,7 @@
 
 ## The Text
 
->1 Timothy 5:3–16 (CSB)  
+>1 Timothy 5:3–16  
 ><sup>3</sup> Support widows who are genuinely in need. 
 >
 ><sup>4</sup> But if any widow has children or grandchildren, let them learn to practice godliness toward their own family first and to repay their parents, for this pleases God. 
@@ -43,13 +43,13 @@ Read these instructions with the heart of God--let us see the tenderness, closen
 
 >1 Timothy 5:3 Support widows who are genuinely in need. 4 But if any widow has children or grandchildren, let them learn to practice godliness toward their own family first and to repay their parents, for this pleases God. 5 The widow who is truly in need and left all alone has put her hope in God and continues night and day in her petitions and prayers; 6 however, she who is self-indulgent is dead even while she lives. 7 Command this also, so that they will be above reproach. 8 But if anyone does not provide for his own family, especially for his own household, he has denied the faith and is worse than an unbeliever.
 
->Luke 21:1-4 (CSB) He looked up and saw the rich dropping their offerings into the temple treasury. 2 He also saw a poor widow dropping in two tiny coins. 3 “Truly I tell you,” he said, “this poor widow has put in more than all of them. 4 For all these people have put in gifts out of their surplus, but she out of her poverty has put in all she had to live on.”
+>Luke 21:1-4 He looked up and saw the rich dropping their offerings into the temple treasury. 2 He also saw a poor widow dropping in two tiny coins. 3 “Truly I tell you,” he said, “this poor widow has put in more than all of them. 4 For all these people have put in gifts out of their surplus, but she out of her poverty has put in all she had to live on.”
 
 ### Christ's heart: He calls us to commune with the Father
 
 >1 Timothy 5:9 No widow is to be enrolled on the list for support unless she is at least sixty years old, has been the wife of one husband, 10 and is well known for good works—that is, if she has brought up children, shown hospitality, washed the saints’ feet, helped the afflicted, and devoted herself to every good work.
 
->Luke 2:36-38 (CSB) There was also a prophetess, Anna, a daughter of Phanuel, of the tribe of Asher. She was well along in years, having lived with her husband seven years after her marriage, 37 and was a widow for eighty-four years. She did not leave the temple, serving God night and day with fasting and prayers. 38 At that very moment, she came up and began to thank God and to speak about him to all who were looking forward to the redemption of Jerusalem.
+>Luke 2:36-38 There was also a prophetess, Anna, a daughter of Phanuel, of the tribe of Asher. She was well along in years, having lived with her husband seven years after her marriage, 37 and was a widow for eighty-four years. She did not leave the temple, serving God night and day with fasting and prayers. 38 At that very moment, she came up and began to thank God and to speak about him to all who were looking forward to the redemption of Jerusalem.
 
 ### Christ's heart: He calls us to good works
 
@@ -59,7 +59,7 @@ There is something that I always that tends to be confusing unless you have hear
 
 Yet in this case, we know in this particular passage, we know that to be true. And I can through a bunch of verses at you about don't let your hands go idle or stop believing in silly myths. But let me sum up verses 11 through 13 in this way:
 
->Ephesians 2:8-10 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast. 10 For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
+>Ephesians 2:8-10 For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast. 10 For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do.
 
 ### Christ's heart: He calls us to himself
 
@@ -69,12 +69,12 @@ Yet in this case, we know in this particular passage, we know that to be true. A
 
 >1 Timothy 5:16 If any believing woman has widows in her family, let her help them. Let the church not be burdened, so that it can help widows in genuine need.
 
->Mark 3:33-35 (CSB) He replied to them, “Who are my mother and my brothers?” 34 Looking at those sitting in a circle around him, he said, “Here are my mother and my brothers! 35 Whoever does the will of God is my brother and sister and mother.”
+>Mark 3:33-35 He replied to them, “Who are my mother and my brothers?” 34 Looking at those sitting in a circle around him, he said, “Here are my mother and my brothers! 35 Whoever does the will of God is my brother and sister and mother.”
 
 We are to love each other. And within the body of believers, we are saved to one another as family because we are the fathers and mothers and brothers and sisters to one another. Crazy? Yes. Still being sanctified? Yes. Not perfect? Yes. Hard sometimes? Yes.
 Setup hard boundaries and sometimes love them from a far. But when ministry opportunities arises, pray to God and ask what is yours to do and then go and do if confirmed by the word of God.
 
->Deuteronomy 10:17-21 (CSB) For the LORD your God is the God of gods and Lord of lords, the great, mighty, and awe-inspiring God, showing no partiality and taking no bribe. 18 He executes justice for the fatherless and the widow, and loves the resident alien, giving him food and clothing. 19 You are also to love the resident alien, since you were resident aliens in the land of Egypt. 20 You are to fear the LORD your God and worship him. Remain faithful to him and take oaths in his name. 21 He is your praise and he is your God, who has done for you these great and awe-inspiring works your eyes have seen.
+>Deuteronomy 10:17-21 For the LORD your God is the God of gods and Lord of lords, the great, mighty, and awe-inspiring God, showing no partiality and taking no bribe. 18 He executes justice for the fatherless and the widow, and loves the resident alien, giving him food and clothing. 19 You are also to love the resident alien, since you were resident aliens in the land of Egypt. 20 You are to fear the LORD your God and worship him. Remain faithful to him and take oaths in his name. 21 He is your praise and he is your God, who has done for you these great and awe-inspiring works your eyes have seen.
 
 
 And if you are curious what is the judgement and the response of God when you oppose his tender heart for those most vulnerable: not only the widow but orphan and the immigrant, go and read Psalm 94.
@@ -103,7 +103,7 @@ The first Adam, that is, the first husband, fell and sinned against God. Through
 
 Yet, Christ, the Second Adam and the Perfect Husband, is the only one who succeeded when all others have failed. God sent his Son so that He could call to his Bride, to woo her, to wash her in the water of the word, baptize her with His Spirit and fire, and then glorify her in righteousness.
 
->Revelation 19:7-8 (CSB) Let us be glad, rejoice, and give him glory,  
+>Revelation 19:7-8 Let us be glad, rejoice, and give him glory,  
 >because the marriage of the Lamb has come,  
 >and his bride has prepared herself.  
 >8 She was given fine linen to wear, bright and pure.  

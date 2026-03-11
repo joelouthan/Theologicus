@@ -4,7 +4,7 @@
 
 ## The Text
 
->2 Timothy 3:13–17 (CSB)  
+>2 Timothy 3:13–17  
 ><sup> 13 </sup> Evil people and impostors will become worse, deceiving and being deceived. 
 >
 ><sup> 14 </sup> But as for you, continue in what you have learned and firmly believed. You know those who taught you, 
@@ -21,30 +21,30 @@ If you know me or if you been on this channel for a while, you know I grew up Ch
 
 Within that, as a Charismatic, I know that God speaks to his people even today. And you might ask, "Joseph, we don't hear the voice of God anymore. How can that be?" My wife made an astute observation upon this subject: "When God communicates, is it always through some sort of voice? No. Majority of the time, it is through the Scriptures, through others, through the turning of the heart, the redirection of affections and desires, or then changing of the mind." I know I hear from God. It is a clear as a bell. But the vast of majority of time, it is through the word, my heart being redirected, my mind changed, my soul's desire--these are all effects of the Spirit's power within us.
 
->Romans 8:16 (CSB) The Spirit himself testifies together with our spirit that we are God’s children...
+>Romans 8:16 The Spirit himself testifies together with our spirit that we are God’s children...
 
 I say all of that to say this:
 
->John 10:27 (CSB) My sheep hear my voice, I know them, and they follow me.
+>John 10:27 My sheep hear my voice, I know them, and they follow me.
 
 I have never used this passage to proof that God speaks to his people. Because you know why? That ain't what the verse is about.
 
->John 10:25-30 (CSB) “I did tell you and you don’t believe,” Jesus answered them. “The works that I do in my Father’s name testify about me. But you don’t believe because you are not of my sheep. My sheep hear my voice, I know them, and they follow me. I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
+>John 10:25-30 “I did tell you and you don’t believe,” Jesus answered them. “The works that I do in my Father’s name testify about me. But you don’t believe because you are not of my sheep. My sheep hear my voice, I know them, and they follow me. I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
 
 I always called this the "double snatch grip of salvation" by the Father and the Christ, sealed by the Holy Spirit. We are in the Almighty Triune hands of God.  And to get that to that, like Noah, Abraham, Paul, and Peter, we are all called by God to himself. All of us were born on a wide path to destruction and unto to death. God, in his amazing great and perfect strength, will need to call us away from our foolishness and sin in order to save us to himself forevermore.
 
 Believe that there are two paths in this life: your own way unto death or the gospel calling by Christ unto life. There ain't no third way--I don't care what the Catholics or Mormons say.
 
->2 Timothy 3:13–17 (CSB)  
+>2 Timothy 3:13–17  
 ><sup> 13 </sup> Evil people and impostors will become worse, deceiving and being deceived. 
 
 Several times in my life, I have had brothers and sisters in Christ, try to give great grace to false teachers, "imposters" as Paul puts it, that they are sincerely doing what they think is right and good and teaching and preaching the word of God. But that is not what the word says. Imposters and evil people might think they can fool others and Christians some of the time but they cannot fool God. As Christ said:
 
->Luke 6:45 (CSB) A good person produces good out of the good stored up in his heart. An evil person produces evil out of the evil stored up in his heart, for his mouth speaks from the overflow of the heart.
+>Luke 6:45 A good person produces good out of the good stored up in his heart. An evil person produces evil out of the evil stored up in his heart, for his mouth speaks from the overflow of the heart.
 
 And as Paul quotes David:
 
->Romans 3:13-14 (CSB) Their throat is an open grave;
+>Romans 3:13-14 Their throat is an open grave;
 they deceive with their tongues.
 Vipers’ venom is under their lips.
 Their mouth is full of cursing and bitterness.
@@ -77,7 +77,7 @@ Yet, always despite our circumstances and our environment growing up, it is the 
 
 Because some of us, by God's grace, were born into a believing family, knowing the sacred Scriptures, we know the salvation through faith in Jesus Christ.
 
->Ephesians 2:8-9 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift— not from works, so that no one can boast.
+>Ephesians 2:8-9 For you are saved by grace through faith, and this is not from yourselves; it is God’s gift— not from works, so that no one can boast.
 
 Let me tell you something, whether we were born in a family of believers or heathens, every single one of us have to be born again. Maybe you didn't know Christ since your physical infancy but you've know him since your spiritual infancy. Praise be to God!
 

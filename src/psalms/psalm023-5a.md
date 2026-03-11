@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 23:5a (CSB)   You prepare a table before me in the presence of my enemies
+>Psalm 23:5a   You prepare a table before me in the presence of my enemies
 
 ## The Prayer
 

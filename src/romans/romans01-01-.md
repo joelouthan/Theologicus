@@ -4,13 +4,13 @@
 
 ## The Text
 
->Romans 1:1 (CSB) Paul, a servant of Christ Jesus, called as an apostle and set apart for the gospel of God
+>Romans 1:1 Paul, a servant of Christ Jesus, called as an apostle and set apart for the gospel of God
 
 ## The Support
 
 ### The Damascus Road
 
->Acts 9:1-25 (CSB) Now Saul was still breathing threats and murder against the disciples of the Lord. He went to the high priest and requested letters from him to the synagogues in Damascus, so that if he found any men or women who belonged to the Way, he might bring them as prisoners to Jerusalem. As he traveled and was nearing Damascus, a light from heaven suddenly flashed around him. Falling to the ground, he heard a voice saying to him, “Saul, Saul, why are you persecuting me?”
+>Acts 9:1-25 Now Saul was still breathing threats and murder against the disciples of the Lord. He went to the high priest and requested letters from him to the synagogues in Damascus, so that if he found any men or women who belonged to the Way, he might bring them as prisoners to Jerusalem. As he traveled and was nearing Damascus, a light from heaven suddenly flashed around him. Falling to the ground, he heard a voice saying to him, “Saul, Saul, why are you persecuting me?”
 >
 >“Who are you, Lord?” Saul said.
 >“I am Jesus, the one you are persecuting,” he replied. “But get up and go into the city, and you will be told what you must do.”
@@ -51,11 +51,11 @@ Just from the life of Saul, who then became Paul, what do we know about God?
 
 God will save whom he will save.
 
->Romans 9:15–16 (CSB) For he tells Moses, I will show mercy to whom I will show mercy, and I will have compassion on whom I will have compassion.  So then, it does not depend on human will or effort but on God who shows mercy.
+>Romans 9:15–16 For he tells Moses, I will show mercy to whom I will show mercy, and I will have compassion on whom I will have compassion.  So then, it does not depend on human will or effort but on God who shows mercy.
 
->John 1:12–13 (CSB) But to all who did receive him, he gave them the right to be children of God, to those who believe in his name,  who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
+>John 1:12–13 But to all who did receive him, he gave them the right to be children of God, to those who believe in his name,  who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
 
->Ephesians 1:5 (CSB) He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will,
+>Ephesians 1:5 He predestined us to be adopted as sons through Jesus Christ for himself, according to the good pleasure of his will,
 
 ## The Gospel
 
@@ -63,7 +63,7 @@ The good news is this: that there is nothing that you could have ever done or wi
 
 Make no mistake: without a faith in Christ Jesus as your Lord and Savior, you will not be saved. At the exact same time, salvation is not dependent on you but Him. This is grace.
 
->Ephesians 2:8–9 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift— not from works, so that no one can boast.
+>Ephesians 2:8–9 For you are saved by grace through faith, and this is not from yourselves; it is God’s gift— not from works, so that no one can boast.
 
 ## Our Response
 
@@ -75,7 +75,7 @@ Don't wait another second.
 
 "But, can't I just wait until I am on my deathbed to believe in God?" Simply stating a fact and living that fact out are two different things. For God numbers our days:
 
->Psalm 139:16 (CSB) Your eyes saw me when I was formless; all my days were written in your book and planned before a single one of them began.
+>Psalm 139:16 Your eyes saw me when I was formless; all my days were written in your book and planned before a single one of them began.
 
 And we do not know how are lives will be and even less on how we will die.
 

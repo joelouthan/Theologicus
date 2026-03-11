@@ -8,7 +8,7 @@
 
 ## The Text
 
->Isaiah 6:1–7 (CSB)  
+>Isaiah 6:1–7  
 ><sup>1</sup> In the year that King Uzziah died, I saw the Lord seated on a high and lofty throne, and the hem of his robe filled the temple. 
 >
 ><sup>2</sup> Seraphim were standing above him; they each had six wings: with two they covered their faces, with two they covered their feet, and with two they flew. 
@@ -33,7 +33,7 @@ How do we gather, as a people, to worship our sweet God? What can and should we 
 
 ### The reading of the Scriptures
 
->1 Timothy 4:13 (CSB) Until I come, give your attention to public reading, exhortation, and teaching.
+>1 Timothy 4:13 Until I come, give your attention to public reading, exhortation, and teaching.
 
 We turn to the Scriptures, the "mouth of God" (Matthew 4:4) and hear from God on how we should praise his holy name.
 
@@ -41,9 +41,9 @@ But notice the confession and the Scriptures say. Nowhere in Scripture is the pr
 
 ### preaching, and hearing the Word of God
 
->2 Timothy 4:2 (CSB) Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching.
+>2 Timothy 4:2 Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching.
 
->Luke 8:18 (CSB) Therefore take care how you listen. For whoever has, more will be given to him; and whoever does not have, even what he thinks he has will be taken away from him.”
+>Luke 8:18 Therefore take care how you listen. For whoever has, more will be given to him; and whoever does not have, even what he thinks he has will be taken away from him.”
 
 But we don't have the Scriptures read but it is to preached--exhorted, proclaimed, and heralded! We all know the difference between preached and taught. Just like in private reading of the Scriptures, there is a time and place for the teaching of the word. But the preaching of the word is paramount, crucial, and foremost--because it is a clear command of God.
 
@@ -51,9 +51,9 @@ And to that end, as the saints of God, we are sit and listen and ponder and dwel
 
 ### teaching and admonishing one another in psalms, hymns, and spiritual songs, singing with grace in our hearts to the Lord
 
->Colossians 3:16 (CSB) Let the word of Christ dwell richly among you, in all wisdom teaching and admonishing one another through psalms, hymns, and spiritual songs, singing to God with gratitude in your hearts.
+>Colossians 3:16 Let the word of Christ dwell richly among you, in all wisdom teaching and admonishing one another through psalms, hymns, and spiritual songs, singing to God with gratitude in your hearts.
 
->Ephesians 5:19 (CSB) speaking to one another in psalms, hymns, and spiritual songs, singing and making music with your heart to the Lord,
+>Ephesians 5:19 speaking to one another in psalms, hymns, and spiritual songs, singing and making music with your heart to the Lord,
 
 and with corporate worship, together, in real life--something you cannot do no matter how much YouTube you watch--sing unto God.
 
@@ -61,21 +61,21 @@ We don't sing to God because God needs our songs--he is not served by human hand
 
 ### as also the administration of baptism
 
->Matthew 28:19–20 (CSB) Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”
+>Matthew 28:19–20 Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”
 
 To the ordained who are charge to shepherd the flock of God, we are commissioned by the Christ to be baptized in the name of the Triune God--the proclaim what has happened to wicked sinners saved by grace. Namely, our sins have been buried with the sinless Christ. And though, Christ was raised from the grave, our wickedness stayed buried because they are the opposite of the righteousness of Christ.
 
 ### and the Lord's supper
 
->1 Corinthians 11:26 (CSB) For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes.
+>1 Corinthians 11:26 For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes.
 
 The bread and the wine--the body and the blood of Christ--is to be administered "as often we do" until the Christ comes back.
 
 ### are all parts of religious worship of God, to be performed in obedience to him, with understanding, faith, reverence, and godly fear; moreover, solemn humiliation, with fastings
 
->Esther 4:16 (CSB) “Go and assemble all the Jews who can be found in Susa and fast for me. Don’t eat or drink for three days, night or day. I and my female servants will also fast in the same way. After that, I will go to the king even if it is against the law. If I perish, I perish.”
+>Esther 4:16 “Go and assemble all the Jews who can be found in Susa and fast for me. Don’t eat or drink for three days, night or day. I and my female servants will also fast in the same way. After that, I will go to the king even if it is against the law. If I perish, I perish.”
 
->Joel 2:12 (CSB) Even now— this is the LORD’s declaration— turn to me with all your heart, with fasting, weeping, and mourning.
+>Joel 2:12 Even now— this is the LORD’s declaration— turn to me with all your heart, with fasting, weeping, and mourning.
 
 In these corporate worship, we are to never make much of us. For, who are we--not men but worms. And God be so kind to transformed us from children of Satan to his adopted children forever.
 
@@ -87,9 +87,9 @@ Many will get tired of this. But worship unto God is not to entertain but to fix
 
 We worship the Lamb of Glory in this right way because he was the Worthy Lamb Who Was Slain for us.
 
->Exodus 15:1–19 (CSB) Then Moses and the Israelites sang this song to the LORD. They said: I will sing to the LORD, for he is highly exalted; he has thrown the horse and its rider into the sea. The LORD is my strength and my song; he has become my salvation. This is my God, and I will praise him, my father’s God, and I will exalt him. The LORD is a warrior; the LORD is his name. He threw Pharaoh’s chariots and his army into the sea; the elite of his officers were drowned in the Red Sea. The floods covered them; they sank to the depths like a stone. LORD, your right hand is glorious in power. LORD, your right hand shattered the enemy. You overthrew your adversaries by your great majesty. You unleashed your burning wrath; it consumed them like stubble. The water heaped up at the blast from your nostrils; the currents stood firm like a dam. The watery depths congealed in the heart of the sea. The enemy said: “I will pursue, I will overtake, I will divide the spoil. My desire will be gratified at their expense. I will draw my sword; my hand will destroy them.” But you blew with your breath, and the sea covered them. They sank like lead in the mighty waters. LORD, who is like you among the gods? Who is like you, glorious in holiness, revered with praises, performing wonders? You stretched out your right hand, and the earth swallowed them. With your faithful love, you will lead the people you have redeemed; you will guide them to your holy dwelling with your strength. When the peoples hear, they will shudder; anguish will seize the inhabitants of Philistia. Then the chiefs of Edom will be terrified; trembling will seize the leaders of Moab; all the inhabitants of Canaan will panic; terror and dread will fall on them. They will be as still as a stone because of your powerful arm until your people pass by, LORD, until the people whom you purchased pass by. You will bring them in and plant them on the mountain of your possession; LORD, you have prepared the place for your dwelling; Lord, your hands have established the sanctuary. The LORD will reign forever and ever! When Pharaoh’s horses with his chariots and horsemen went into the sea, the LORD brought the water of the sea back over them. But the Israelites walked through the sea on dry ground.
+>Exodus 15:1–19 Then Moses and the Israelites sang this song to the LORD. They said: I will sing to the LORD, for he is highly exalted; he has thrown the horse and its rider into the sea. The LORD is my strength and my song; he has become my salvation. This is my God, and I will praise him, my father’s God, and I will exalt him. The LORD is a warrior; the LORD is his name. He threw Pharaoh’s chariots and his army into the sea; the elite of his officers were drowned in the Red Sea. The floods covered them; they sank to the depths like a stone. LORD, your right hand is glorious in power. LORD, your right hand shattered the enemy. You overthrew your adversaries by your great majesty. You unleashed your burning wrath; it consumed them like stubble. The water heaped up at the blast from your nostrils; the currents stood firm like a dam. The watery depths congealed in the heart of the sea. The enemy said: “I will pursue, I will overtake, I will divide the spoil. My desire will be gratified at their expense. I will draw my sword; my hand will destroy them.” But you blew with your breath, and the sea covered them. They sank like lead in the mighty waters. LORD, who is like you among the gods? Who is like you, glorious in holiness, revered with praises, performing wonders? You stretched out your right hand, and the earth swallowed them. With your faithful love, you will lead the people you have redeemed; you will guide them to your holy dwelling with your strength. When the peoples hear, they will shudder; anguish will seize the inhabitants of Philistia. Then the chiefs of Edom will be terrified; trembling will seize the leaders of Moab; all the inhabitants of Canaan will panic; terror and dread will fall on them. They will be as still as a stone because of your powerful arm until your people pass by, LORD, until the people whom you purchased pass by. You will bring them in and plant them on the mountain of your possession; LORD, you have prepared the place for your dwelling; Lord, your hands have established the sanctuary. The LORD will reign forever and ever! When Pharaoh’s horses with his chariots and horsemen went into the sea, the LORD brought the water of the sea back over them. But the Israelites walked through the sea on dry ground.
 
->Psalm 107 (CSB)  
+>Psalm 107  
 ><sup>1</sup> Give thanks to the LORD, for he is good; his faithful love endures forever. 
 >
 ><sup>2</sup> Let the redeemed of the LORD proclaim that he has redeemed them from the power of the foe 

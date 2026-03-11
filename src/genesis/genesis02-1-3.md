@@ -4,11 +4,11 @@
 
 ## The Word
 
->Exodus 20:8-11 (CSB) Remember the Sabbath day, to keep it holy: You are to labor six days and do all your work, but the seventh day is a Sabbath to the LORD your God. You must not do any work—you, your son or daughter, your male or female servant, your livestock, or the resident alien who is within your city gates. For the LORD made the heavens and the earth, the sea, and everything in them in six days; then he rested on the seventh day. Therefore the LORD blessed the Sabbath day and declared it holy.
+>Exodus 20:8-11 Remember the Sabbath day, to keep it holy: You are to labor six days and do all your work, but the seventh day is a Sabbath to the LORD your God. You must not do any work—you, your son or daughter, your male or female servant, your livestock, or the resident alien who is within your city gates. For the LORD made the heavens and the earth, the sea, and everything in them in six days; then he rested on the seventh day. Therefore the LORD blessed the Sabbath day and declared it holy.
 
 ## The Text
 
->Genesis 2:1-3 (CSB) So the heavens and the earth and everything in them were completed. On the seventh day God had completed his work that he had done, and he rested on the seventh day from all his work that he had done. God blessed the seventh day and declared it holy, for on it he rested from all his work of creation.
+>Genesis 2:1-3 So the heavens and the earth and everything in them were completed. On the seventh day God had completed his work that he had done, and he rested on the seventh day from all his work that he had done. God blessed the seventh day and declared it holy, for on it he rested from all his work of creation.
 
 ## The Support
 
@@ -28,13 +28,13 @@ Look at God's heart towards us and some of the ways He is to His creation:
 
 ### God loves us and has set apart his children from looking like the rest of the world
 
->Deuteronomy 7:7-11 (CSB) The LORD had his heart set on you and chose you, not because you were more numerous than all peoples, for you were the fewest of all peoples. But because the LORD loved you and kept the oath he swore to your ancestors, he brought you out with a strong hand and redeemed you from the place of slavery, from the power of Pharaoh king of Egypt. Know that the LORD your God is God, the faithful God who keeps his gracious covenant loyalty for a thousand generations with those who love him and keep his commands. But he directly pays back and destroys those who hate him. He will not hesitate to pay back directly the one who hates him. So keep the command—the statutes and ordinances—that I am giving you to follow today.
+>Deuteronomy 7:7-11 The LORD had his heart set on you and chose you, not because you were more numerous than all peoples, for you were the fewest of all peoples. But because the LORD loved you and kept the oath he swore to your ancestors, he brought you out with a strong hand and redeemed you from the place of slavery, from the power of Pharaoh king of Egypt. Know that the LORD your God is God, the faithful God who keeps his gracious covenant loyalty for a thousand generations with those who love him and keep his commands. But he directly pays back and destroys those who hate him. He will not hesitate to pay back directly the one who hates him. So keep the command—the statutes and ordinances—that I am giving you to follow today.
 
->Leviticus 20:26 (CSB) You are to be holy to me because I, the LORD, am holy, and I have set you apart from the nations to be mine.
+>Leviticus 20:26 You are to be holy to me because I, the LORD, am holy, and I have set you apart from the nations to be mine.
 
 ### God loves us and is always our protection and refuge from sin and evil
 
->Psalm 61:1-3 (CSB) God, hear my cry;  
+>Psalm 61:1-3 God, hear my cry;  
 >pay attention to my prayer.  
 >I call to you from the ends of the earth  
 >when my heart is without strength.  
@@ -42,14 +42,14 @@ Look at God's heart towards us and some of the ways He is to His creation:
 >for you have been a refuge for me,  
 >a strong tower in the face of the enemy.
 
->Psalm 18:1-2 (CSB) I love you, LORD, my strength.  
+>Psalm 18:1-2 I love you, LORD, my strength.  
 >The LORD is my rock,  
 >my fortress, and my deliverer,  
 >my God, my rock where I seek refuge,  
 >my shield and the horn of my salvation,  
 >my stronghold.
 
->Psalm 18:30-31 (CSB) God—his way is perfect;  
+>Psalm 18:30-31 God—his way is perfect;  
 >the word of the LORD is pure.  
 >He is a shield to all who take refuge in him.  
 >For who is God besides the LORD?  
@@ -57,26 +57,26 @@ Look at God's heart towards us and some of the ways He is to His creation:
 
 ### God loves us and has always been our home
 
->John 14:1-5 (CSB) “Don’t let your heart be troubled. Believe in God; believe also in me. In my Father’s house are many rooms. If it were not so, would I have told you that I am going to prepare a place for you? If I go away and prepare a place for you, I will come again and take you to myself, so that where I am you may be also. You know the way to where I am going.”
+>John 14:1-5 “Don’t let your heart be troubled. Believe in God; believe also in me. In my Father’s house are many rooms. If it were not so, would I have told you that I am going to prepare a place for you? If I go away and prepare a place for you, I will come again and take you to myself, so that where I am you may be also. You know the way to where I am going.”
 >
 >“Lord,” Thomas said, “we don’t know where you’re going. How can we know the way?”
 
-## The Gospel
+## His Gospel
 
 Here's the good news: the good news of Christ brings us all the way home to the Father.
 
 Within the gospel, we must understand the truth that Jesus is the only way to fullness of life and eternal life.
 ### God loves us and in Christ alone, he is the only way to God
 
->John 14:6-7 (CSB) Jesus told him, “I am the way, the truth, and the life. No one comes to the Father except through me. If you know me, you will also know my Father. From now on you do know him and have seen him.”
+>John 14:6-7 Jesus told him, “I am the way, the truth, and the life. No one comes to the Father except through me. If you know me, you will also know my Father. From now on you do know him and have seen him.”
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
 ### God loves us and in Christ alone, he is the only one who will satisfy the eternal hole within our hearts
 
 And the Triune God does so by dwelling in our hearts.
 
->Psalm 17:15 (CSB) But I will see your face in righteousness;  
+>Psalm 17:15 But I will see your face in righteousness;  
 >when I awake, I will be satisfied with your presence.
 
 >Psalm 16:11 (ESV) You make known to me the path of life;  
@@ -97,13 +97,13 @@ In Christ alone, we finally get to rest.
 
 What does Christ say?
 
->Matthew 11:29-30 (CSB) “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
+>Matthew 11:29-30 “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
 
 ## Our Response
 
 ### God loves us and one day, in him alone, we will have our rest forever
 
->Revelation 21:1-8 (CSB) Then I saw a new heaven and a new earth; for the first heaven and the first earth had passed away, and the sea was no more. I also saw the holy city, the new Jerusalem, coming down out of heaven from God, prepared like a bride adorned for her husband.
+>Revelation 21:1-8 Then I saw a new heaven and a new earth; for the first heaven and the first earth had passed away, and the sea was no more. I also saw the holy city, the new Jerusalem, coming down out of heaven from God, prepared like a bride adorned for her husband.
 >
 >Then I heard a loud voice from the throne: Look, God’s dwelling is with humanity, and he will live with them. They will be his peoples, and God himself will be with them and will be their God. He will wipe away every tear from their eyes. Death will be no more; grief, crying, and pain will be no more, because the previous things have passed away.
 >

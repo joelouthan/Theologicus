@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 140 (CSB)  
+>Psalm 140  
 ><sup></sup> For the choir director. A psalm of David. 
 >
 ><sup>1</sup> Rescue me, LORD, from evil men. Keep me safe from violent men 

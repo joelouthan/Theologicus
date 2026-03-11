@@ -4,7 +4,7 @@
 
 ## The Text
 
->Titus 2:6–8 (CSB)  
+>Titus 2:6–8  
 ><sup> 6 </sup> In the same way, encourage the young men to be self-controlled 
 >
 ><sup> 7 </sup> in everything. Make yourself an example of good works with integrity and dignity in your teaching. 
@@ -17,17 +17,17 @@
 
 ### The Spirit of Christ: self-control
 
->Galatians 5:22-23 (CSB) But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control.
+>Galatians 5:22-23 But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control.
 
->2 Timothy 1:6-7 (CSB) Therefore, I remind you to rekindle the gift of God that is in you through the laying on of my hands. For God has not given us a spirit of fear, but one of power, love, and sound judgment.
+>2 Timothy 1:6-7 Therefore, I remind you to rekindle the gift of God that is in you through the laying on of my hands. For God has not given us a spirit of fear, but one of power, love, and sound judgment.
 
->1 Corinthians 9:24-25 (CSB) on’t you know that the runners in a stadium all race, but only one receives the prize? Run in such a way to win the prize. Now everyone who competes exercises self-control in everything. They do it to receive a perishable crown, but we an imperishable crown.
+>1 Corinthians 9:24-25 on’t you know that the runners in a stadium all race, but only one receives the prize? Run in such a way to win the prize. Now everyone who competes exercises self-control in everything. They do it to receive a perishable crown, but we an imperishable crown.
 
 The incredible lie of the world and especially our hearts and souls will tell us that we can control other people. The sin of legalism boils down to this: the sins that I do not struggle with, I will turn around make it a back-breaking yoke for others that cannot possible bear. Nevermind the fact that the sins that have consumed my soul is killing me slowly and surely.
 
 What did Christ say about this?
 
->Matthew 23:3-4 (CSB) Therefore do whatever they tell you, and observe it. But don’t do what they do, because they don’t practice what they teach. They tie up heavy loads that are hard to carry and put them on people’s shoulders, but they themselves aren’t willing to lift a finger to move them.
+>Matthew 23:3-4 Therefore do whatever they tell you, and observe it. But don’t do what they do, because they don’t practice what they teach. They tie up heavy loads that are hard to carry and put them on people’s shoulders, but they themselves aren’t willing to lift a finger to move them.
 
 What would it look like if we control the one thing in this world that we can actually control?
 
@@ -45,7 +45,7 @@ This is a case of a people's group with their own worldly culture that was inher
 
 But see what happens: it is the Spirit that bring conviction.
 
->John 16:7-11 (CSB) Nevertheless, I am telling you the truth. It is for your benefit that I go away, because if I don’t go away the Counselor will not come to you. If I go, I will send him to you. When he comes, he will convict the world about sin, righteousness, and judgment: About sin, because they do not believe in me; about righteousness, because I am going to the Father and you will no longer see me; and about judgment, because the ruler of this world has been judged.
+>John 16:7-11 Nevertheless, I am telling you the truth. It is for your benefit that I go away, because if I don’t go away the Counselor will not come to you. If I go, I will send him to you. When he comes, he will convict the world about sin, righteousness, and judgment: About sin, because they do not believe in me; about righteousness, because I am going to the Father and you will no longer see me; and about judgment, because the ruler of this world has been judged.
 
 If you do have a relationship and can walk side-by-side with one another in love, it might be that they just don't know. That is why we have the word of God.
 
@@ -57,7 +57,7 @@ Control thy self. Worry about you. Study the Scriptures. Petition for others.
 
 ### The Spirit of Christ: be above reproach
 
->Mark 1:22 (CSB) They were astonished at his teaching because he was teaching them as one who had authority, and not like the scribes.
+>Mark 1:22 They were astonished at his teaching because he was teaching them as one who had authority, and not like the scribes.
 
 Christ taught with authority because He was fully God and fully man who obeyed the law of God perfectly. In other words, he was above reproach.
 
@@ -69,11 +69,11 @@ Christ taught with authority because He was fully God and fully man who obeyed t
 
 ### The Spirit of Christ: we stand justified before Christ
 
->Romans 8:31-34 (CSB) What, then, are we to say about these things? If God is for us, who is against us? He did not even spare his own Son but gave him up for us all. How will he not also with him grant us everything? Who can bring an accusation against God’s elect? God is the one who justifies. Who is the one who condemns? Christ Jesus is the one who died, but even more, has been raised; he also is at the right hand of God and intercedes for us.
+>Romans 8:31-34 What, then, are we to say about these things? If God is for us, who is against us? He did not even spare his own Son but gave him up for us all. How will he not also with him grant us everything? Who can bring an accusation against God’s elect? God is the one who justifies. Who is the one who condemns? Christ Jesus is the one who died, but even more, has been raised; he also is at the right hand of God and intercedes for us.
 
 And
 
->Romans 8:14-16 (CSB) For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father! ” The Spirit himself testifies together with our spirit that we are God’s children...
+>Romans 8:14-16 For all those led by God’s Spirit are God’s sons. For you did not receive a spirit of slavery to fall back into fear. Instead, you received the Spirit of adoption, by whom we cry out, “Abba, Father! ” The Spirit himself testifies together with our spirit that we are God’s children...
 
 We are justified before Christ not because we do good works but because Christ did the good works that we should have done. In God's great grace and mercy, we now get to do the good works that God has prepared ahead of time for us to do. (Ephesians 2:8-10)
 

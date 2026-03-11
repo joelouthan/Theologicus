@@ -8,7 +8,7 @@
 
 ## The Text
 
->John 6:30–46 (CSB)  
+>John 6:30–46  
 ><sup> 30 </sup> “What sign, then, are you going to do so that we may see and believe you?” they asked. “What are you going to perform? 
 >
 ><sup> 31 </sup> Our ancestors ate the manna in the wilderness, just as it is written: He gave them bread from heaven to eat.” 
@@ -53,15 +53,15 @@
 
 There is, in fact, some mysteries and some hard to understand things in the Bible. For:
 
->Proverbs 25:2 (CSB) It is the glory of God to conceal a matter and the glory of kings to investigate a matter.
+>Proverbs 25:2 It is the glory of God to conceal a matter and the glory of kings to investigate a matter.
 
 And
 
->2 Peter 3:15-16 (CSB) Also, regard the patience of our Lord as salvation, just as our dear brother Paul has written to you according to the wisdom given to him. He speaks about these things in all his letters. There are some things hard to understand in them. The untaught and unstable will twist them to their own destruction, as they also do with the rest of the Scriptures.
+>2 Peter 3:15-16 Also, regard the patience of our Lord as salvation, just as our dear brother Paul has written to you according to the wisdom given to him. He speaks about these things in all his letters. There are some things hard to understand in them. The untaught and unstable will twist them to their own destruction, as they also do with the rest of the Scriptures.
 
 But when it comes to the matters of **His own glory, man’s salvation, faith, and life**, it is **expressly set down in Scripture** according to the **whole counsel of God**.
 
->John 6:44–46 (CSB)  No one can come to me unless the Father who sent me draws him, and I will raise him up on the last day. It is written in the Prophets: And they will all be taught by God. Everyone who has listened to and learned from the Father comes to me—46 not that anyone has seen the Father except the one who is from God. He has seen the Father.
+>John 6:44–46  No one can come to me unless the Father who sent me draws him, and I will raise him up on the last day. It is written in the Prophets: And they will all be taught by God. Everyone who has listened to and learned from the Father comes to me—46 not that anyone has seen the Father except the one who is from God. He has seen the Father.
 
 Debates on how God saves us is as old as Genesis itself and we can argue until Christ returns. But where Christ is clear on who and how he saves, we should take that as the gospel. Because He is clear and and what He says is the good news.
 
@@ -81,7 +81,7 @@ That said, we don't have flush reason and logic down the toilet when approaching
 
 I have even a better example that I heard from Sproul many years ago and involves the most famous verse in all of Scripture:
 
->John 3:16 (CSB)  For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16  For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
 Read that once more.
 
@@ -91,19 +91,19 @@ Apply reason and logic to it. We can deduct that the John 3:16 certainly does no
 
 You might think, "That is so silly--we know it doesn't say that." But then, if it is so silly and obvious, why do we say that Christ died for the whole world to be saved? Because of 1 John 2:2?
 
->1 John 2:2 (CSB)  He himself is the atoning sacrifice for our sins, and not only for ours, but also for those of the whole world.
+>1 John 2:2  He himself is the atoning sacrifice for our sins, and not only for ours, but also for those of the whole world.
 
 But 1 John 2:2 does not stand alone. Continue on to verse 3:
 
->1 John 2:3 (CSB)  This is how we know that we know him: if we keep his commands.
+>1 John 2:3  This is how we know that we know him: if we keep his commands.
 
->John 3:36 (CSB)  The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
+>John 3:36  The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 
 God did not save the whole world. That might be a harsh truth. The good news is that the invitation to come be in Christ is open to all. And as we read in John 6, those whom the Father brings to the Christ is saved.
 
 And if God saves you, it is a done deal forever:
 
->John 10:28–29 (CSB)  I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand.
+>John 10:28–29  I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand.
 
 The whole counsel of God, expressed plainly in Scriptures or by good and necessary consequence may be deduced from Scripture is sufficient and basic and complete for our salvation, faith, and life.
 
@@ -113,11 +113,11 @@ I wanted to add some clarification to Sproul's example of using Charismatics. *S
 
 Yet, we are called by God not to despise prophecies but to test them against Scripture. For:
 
->1 Thessalonians 5:19-21 (CSB) Don’t stifle the Spirit. Don’t despise prophecies, but test all things. Hold on to what is good.
+>1 Thessalonians 5:19-21 Don’t stifle the Spirit. Don’t despise prophecies, but test all things. Hold on to what is good.
 
 And
 
->Acts 17:10-11 (CSB) As soon as it was night, the brothers and sisters sent Paul and Silas away to Berea. Upon arrival, they went into the synagogue of the Jews. The people here were of more noble character than those in Thessalonica, since they received the word with eagerness and examined the Scriptures daily to see if these things were so.
+>Acts 17:10-11 As soon as it was night, the brothers and sisters sent Paul and Silas away to Berea. Upon arrival, they went into the synagogue of the Jews. The people here were of more noble character than those in Thessalonica, since they received the word with eagerness and examined the Scriptures daily to see if these things were so.
 
 Now, herein lies the rub: we know we are to test everything that we hear from ministers against the word of God. But, and I say this as a Charismatic, we just don't want to. Mainly because that type of work is hard--and I am not just talking mentally but emotionally. What if you received good preaching that lit your heart and soul and you felt good but then the Holy Spirit led you into the reading of the word and it says the complete opposite. What do you do? Feel happy and go against Scripture? Or feel disappointed and abide in the word of God?
 
@@ -127,7 +127,7 @@ Don't despise preaching but test all things with other Christians and rejoice th
 
 ### Nevertheless we acknowledge the inward illumination of the Spirit of God to be necessary for the saving understanding of such things as are revealed in the Word
 
->1 Corinthians 2:9–12 (CSB)  
+>1 Corinthians 2:9–12  
 ><sup> 9 </sup> But as it is written, What no eye has seen, no ear has heard, and no human heart has conceived— God has prepared these things for those who love him. 
 >
 ><sup> 10 </sup> Now God has revealed these things to us by the Spirit, since the Spirit searches everything, even the depths of God. 
@@ -140,13 +140,13 @@ I am going to post 1 Corinthians 2 as much as I need to so that we are thoroughl
 
 For:
 
->John 1:1–5 (CSB)  In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created. In him was life, and that life was the light of men. That light shines in the darkness, and yet the darkness did not overcome it.
+>John 1:1–5  In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created. In him was life, and that life was the light of men. That light shines in the darkness, and yet the darkness did not overcome it.
 
 Christ came into the world to save sinners. He is the light that illuminates his gospel and his word and his life and his death and his resurrection. All of it.
 
 Consider this:
 
->Luke 11:5–13 (CSB)  He also said to them, “Suppose one of you has a friend and goes to him at midnight and says to him, ‘Friend, lend me three loaves of bread,because a friend of mine on a journey has come to me, and I don’t have anything to offer him.’Then he will answer from inside and say, ‘Don’t bother me! The door is already locked, and my children and I have gone to bed. I can’t get up to give you anything.’I tell you, even though he won’t get up and give him anything because he is his friend, yet because of his friend’s shameless boldness, he will get up and give him as much as he needs.“So I say to you, ask, and it will be given to you. Seek, and you will find. Knock, and the door will be opened to you. For everyone who asks receives, and the one who seeks finds, and to the one who knocks, the door will be opened. What father among you, if his son asks for a fish, will give him a snake instead of a fish?Or if he asks for an egg, will give him a scorpion?If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him?”
+>Luke 11:5–13  He also said to them, “Suppose one of you has a friend and goes to him at midnight and says to him, ‘Friend, lend me three loaves of bread,because a friend of mine on a journey has come to me, and I don’t have anything to offer him.’Then he will answer from inside and say, ‘Don’t bother me! The door is already locked, and my children and I have gone to bed. I can’t get up to give you anything.’I tell you, even though he won’t get up and give him anything because he is his friend, yet because of his friend’s shameless boldness, he will get up and give him as much as he needs.“So I say to you, ask, and it will be given to you. Seek, and you will find. Knock, and the door will be opened to you. For everyone who asks receives, and the one who seeks finds, and to the one who knocks, the door will be opened. What father among you, if his son asks for a fish, will give him a snake instead of a fish?Or if he asks for an egg, will give him a scorpion?If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him?”
 
 Does this passage says that God is our magical genie in heaven? No. That is so little and small. Why think so small?
 
@@ -174,7 +174,7 @@ Oh, when I see the face of my Savior, I will kiss his face with a million kisses
 
 From the Scriptures, we know how to worship of God--not just in church but with all of our lives. For:
 
->1 Corinthians 10:31 (CSB)  So, whether you eat or drink, or whatever you do, do everything for the glory of God.
+>1 Corinthians 10:31  So, whether you eat or drink, or whatever you do, do everything for the glory of God.
 
 And even overseeing the church. How do we even start there?
 

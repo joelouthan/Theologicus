@@ -4,17 +4,17 @@
 
 ## The Text
 
->Romans 8:29 (CSB) For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
+>Romans 8:29 For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
 
 ## The Support
 
 There are many verses that can be used to aptly say what verse twenty-nine so succinctly and definitely says here. I can think of two passages:
 
->1 Peter 1:20-21 (CSB) He was foreknown before the foundation of the world but was revealed in these last times for you. Through him you believe in God, who raised him from the dead and gave him glory, so that your faith and hope are in God.
+>1 Peter 1:20-21 He was foreknown before the foundation of the world but was revealed in these last times for you. Through him you believe in God, who raised him from the dead and gave him glory, so that your faith and hope are in God.
 
 And.
 
->Ephesians 1:3–14 (CSB)  
+>Ephesians 1:3–14  
 ><sup> 3 </sup> Blessed is the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavens in Christ. 
 >
 ><sup> 4 </sup> For he chose us in him, before the foundation of the world, to be holy and blameless in love before him. 
@@ -47,7 +47,7 @@ In order to understand God and his love for his people, we can take this little 
 
 We teach our kids the story on how God saved Noah:
 
->Genesis 6:5-9 (CSB) When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, the LORD regretted that he had made man on the earth, and he was deeply grieved. Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky—for I regret that I made them.” Noah, however, found favor with the LORD. These are the family records of Noah. Noah was a righteous man, blameless among his contemporaries; Noah walked with God.
+>Genesis 6:5-9 When the LORD saw that human wickedness was widespread on the earth and that every inclination of the human mind was nothing but evil all the time, the LORD regretted that he had made man on the earth, and he was deeply grieved. Then the LORD said, “I will wipe mankind, whom I created, off the face of the earth, together with the animals, creatures that crawl, and birds of the sky—for I regret that I made them.” Noah, however, found favor with the LORD. These are the family records of Noah. Noah was a righteous man, blameless among his contemporaries; Noah walked with God.
 
 And because of our philosophies born out of the world in which we live today, we surmised that it was Noah, first, that lived a righteous life and it was only then God saved Noah.
 
@@ -55,7 +55,7 @@ But does that line up with any story of salvation that you ever heard in the Bib
 
 ## The Gospel
 
->Romans 5:6-9 (CSB) For while we were still helpless, at the right time, Christ died for the ungodly. For rarely will someone die for a just person—though for a good person perhaps someone might even dare to die. But God proves his own love for us in that while we were still sinners, Christ died for us. How much more then, since we have now been justified by his blood, will we be saved through him from wrath.
+>Romans 5:6-9 For while we were still helpless, at the right time, Christ died for the ungodly. For rarely will someone die for a just person—though for a good person perhaps someone might even dare to die. But God proves his own love for us in that while we were still sinners, Christ died for us. How much more then, since we have now been justified by his blood, will we be saved through him from wrath.
 
 Notice it doesn't say,"while we were really good" or "doing our very best, that Christ died for us."
 

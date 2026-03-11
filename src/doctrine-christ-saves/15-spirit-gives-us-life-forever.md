@@ -6,7 +6,7 @@
 
 ## The Text
 
->Psalm 97:9 (CSB) For you, LORD, are the Most High over the whole earth; you are exalted above all the gods.
+>Psalm 97:9 For you, LORD, are the Most High over the whole earth; you are exalted above all the gods.
 
 ## The Devotion
 
@@ -18,17 +18,17 @@ And that is exactly what God wants! He wants to be with him forever and ever. Wi
 
 But understand what Christ has done in us for us:
 
->Hebrews 9:25-28 (CSB) He did not do this to offer himself many times, as the high priest enters the sanctuary yearly with the blood of another. Otherwise, he would have had to suffer many times since the foundation of the world. But now he has appeared one time, at the end of the ages, for the removal of sin by the sacrifice of himself. And just as it is appointed for people to die once—and after this, judgment— so also Christ, having been offered once to bear the sins of many, will appear a second time, not to bear sin, but to bring salvation to those who are waiting for him.
+>Hebrews 9:25-28 He did not do this to offer himself many times, as the high priest enters the sanctuary yearly with the blood of another. Otherwise, he would have had to suffer many times since the foundation of the world. But now he has appeared one time, at the end of the ages, for the removal of sin by the sacrifice of himself. And just as it is appointed for people to die once—and after this, judgment— so also Christ, having been offered once to bear the sins of many, will appear a second time, not to bear sin, but to bring salvation to those who are waiting for him.
 
 He takes away sin. All sin. For the whole world. For all of his people. And when we are with him, finally with him, we will be with him in a place where "nothing unclean will ever enter it, nor anyone who does what is detestable or false, but only those who are written in the Lamb’s book of life” and "no longer will there be anything accursed.”
 
->Revelation 21:4 (CSB) He will wipe away every tear from their eyes. Death will be no more; grief, crying, and pain will be no more, because the previous things have passed away.
+>Revelation 21:4 He will wipe away every tear from their eyes. Death will be no more; grief, crying, and pain will be no more, because the previous things have passed away.
 
 But then, it is more than removing sin, evil, Satan, demons and death.
 
 He puts in the fullness of holiness, righteousness, love, joy, peace, grace, mercy, and justice. Namely, He puts himself in with us.
 
->Revelation 22:5 (CSB) Night will be no more; people will not need the light of a lamp or the light of the sun, because the Lord God will give them light, and they will reign forever and ever.
+>Revelation 22:5 Night will be no more; people will not need the light of a lamp or the light of the sun, because the Lord God will give them light, and they will reign forever and ever.
 
 Can we truly comprehend worshipping our sweet king forever? No! Can we ponder what it is like to worship with the God who saved us? Brother and sister, there have been plenty of times I could not manage my own debt or waistline. So you know, I am not even thinking about reigning with him.
 
@@ -42,7 +42,7 @@ It is only there that we will finally "behold your face in righteousness; when I
 
 The God who is glorious is the same one who glorifies his children.
 
->Romans 8:16-18 (CSB) The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him. For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us.
+>Romans 8:16-18 The Spirit himself testifies together with our spirit that we are God’s children, and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him. For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us.
 
 I am not even doing a great job of extrapolating the glory of God. If I had the fullness of the Spirit and the highest IQ and all the gifts of writing and communication and had infinite time and resources, perhaps I could tell you a tiny sliver of his glory.
 
@@ -458,7 +458,7 @@ Show me your glory!
 
 >Revelation 15:7–8 One of the four living creatures gave the seven angels seven golden bowls filled with the wrath of God who lives forever and ever. Then the temple was filled with smoke from the glory of God and from his power, and no one could enter the temple until the seven plagues of the seven angels were completed.
 
->Revelation 19–22 (CSB)  
+>Revelation 19–22  
 ><sup>1</sup> After this I heard something like the loud voice of a vast multitude in heaven, saying, Hallelujah! Salvation, glory, and power belong to our God, 
 >
 ><sup>2</sup> because his judgments are true and righteous, because he has judged the notorious prostitute who corrupted the earth with her sexual immorality; and he has avenged the blood of his servants that was on her hands. 
@@ -627,7 +627,7 @@ Show me your glory!
 >
 ><sup>21</sup> The grace of the Lord Jesus be with everyone. Amen.
 
->Romans 8 (CSB)  
+>Romans 8  
 ><sup>1</sup> Therefore, there is now no condemnation for those in Christ Jesus, 
 >
 ><sup>2</sup> because the law of the Spirit of life in Christ Jesus has set you free from the law of sin and death. 

@@ -4,7 +4,7 @@
 
 ## The Introduction
 
->Romans 8:32 (CSB) He did not even spare his own Son but gave him up for us all. How will he not also with him grant us everything?
+>Romans 8:32 He did not even spare his own Son but gave him up for us all. How will he not also with him grant us everything?
 
 I could sit here and blast you with God’s holy words about God alone provides for us, and we need nothing.
 

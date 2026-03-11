@@ -14,7 +14,7 @@ Is there a lot of God in you preaching?
 
 </bgy>Exercise</bgy>: Examine Peter's sermon on the day of Pentecost in Acts 2:14-41 and highlight every time Peter mentions God.
 
->Acts 2:14–41 (CSB)  
+>Acts 2:14–41  
 ><sup>14</sup> Peter stood up with the Eleven, raised his voice, and proclaimed to them, “Fellow Jews and all you residents of Jerusalem, let this be known to you, and pay attention to my words. 
 
 ><sup>15</sup> For these people are not drunk, as you suppose, since it’s only nine in the morning. 
@@ -102,7 +102,7 @@ Serious. Reverence. Awe. Comes from a man who fears God. Growing in the fear of 
 
 Never outgrow but grow in the fear of God. NASB: *Solemnly testifying*
 
->2 Corinthians 6:2–10 (CSB)  
+>2 Corinthians 6:2–10  
 ><sup>2</sup> For he says: At an acceptable time I listened to you, and in the day of salvation I helped you. See, now is the acceptable time; now is the day of salvation! 
 >
 ><sup>3</sup> We are not giving anyone an occasion for offense, so that the ministry will not be blamed. 

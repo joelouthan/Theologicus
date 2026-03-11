@@ -8,7 +8,7 @@ Through judgment and wrath and righteousness and the holiness of God and his rig
 
 ## The Word
 
->Lamentations 3:19–26 (CSB)  
+>Lamentations 3:19–26  
 ><sup> 19 </sup> Remember my affliction and my homelessness, the wormwood and the poison. 
 >
 ><sup> 20 </sup> I continually remember them and have become depressed. 
@@ -27,7 +27,7 @@ Through judgment and wrath and righteousness and the holiness of God and his rig
 
 ## The Text
 
->Genesis 8:15–22 (CSB)  
+>Genesis 8:15–22  
 ><sup> 15 </sup> Then God spoke to Noah, 
 >
 ><sup> 16 </sup> “Come out of the ark, you, your wife, your sons, and your sons’ wives with you. 
@@ -46,7 +46,7 @@ Through judgment and wrath and righteousness and the holiness of God and his rig
 
 ## The Support
 
->2 Corinthians 1:20 (CSB) For every one of God’s promises is “Yes” in him. Therefore, through him we also say “Amen” to the glory of God.
+>2 Corinthians 1:20 For every one of God’s promises is “Yes” in him. Therefore, through him we also say “Amen” to the glory of God.
 
 ## God
 
@@ -58,7 +58,7 @@ Through judgment and wrath and righteousness and the holiness of God and his rig
 
 ### Promise of God: God will deliver you through the world
 
->James 4:13-17 (CSB) Come now, you who say, “Today or tomorrow we will travel to such and such a city and spend a year there and do business and make a profit.”Yet you do not know what tomorrow will bring—what your life will be! For you are like vapor that appears for a little while, then vanishes. Instead, you should say, “If the Lord wills, we will live and do this or that.”But as it is, you boast in your arrogance. All such boasting is evil. So it is sin to know the good and yet not do it.
+>James 4:13-17 Come now, you who say, “Today or tomorrow we will travel to such and such a city and spend a year there and do business and make a profit.”Yet you do not know what tomorrow will bring—what your life will be! For you are like vapor that appears for a little while, then vanishes. Instead, you should say, “If the Lord wills, we will live and do this or that.”But as it is, you boast in your arrogance. All such boasting is evil. So it is sin to know the good and yet not do it.
 
 I am not trying to preach your best life now. Because you if you think you believe there is a God and don't obey him, this is the best that life gets. Because your way is straight to a place where there is weeping and gnashing of teeth.
 
@@ -76,7 +76,7 @@ Actual life. Fullness of joy. Pleasures evermore. Complete satisfaction?
 
 Those are not nice things to have if you get them. I have experienced everything this world has to offer. I have chased the end of the my sin in lust, perversion, pornography. I got to the end and it was death. World has nothing. God has everything. I need all of those things that God is promising so I can truly live.
 
-## The Gospel
+## His Gospel
 
 ><sup> 18 </sup> So Noah, along with his sons, his wife, and his sons’ wives, came out. 
 >
@@ -86,13 +86,13 @@ Those are not nice things to have if you get them. I have experienced everything
 
 Tell me when you get bored of the good news.
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
->Ephesians 2:8-9 (CSB) For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast.
+>Ephesians 2:8-9 For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast.
 
->Romans 5:8-9 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us. How much more then, since we have now been justified by his blood, will we be saved through him from wrath.
+>Romans 5:8-9 But God proves his own love for us in that while we were still sinners, Christ died for us. How much more then, since we have now been justified by his blood, will we be saved through him from wrath.
 
->Acts 2:21 (CSB) Then everyone who calls on the name of the Lord will be saved.
+>Acts 2:21 Then everyone who calls on the name of the Lord will be saved.
 
 If you don't get this: the ark of Noah is Christ our Lord. Christ is the one who judged mankind, released the floodwaters of his righteous wrath but the protector of the his people and his world.
 
@@ -104,7 +104,7 @@ Who alone is righteous? Who alone calls for repentance of sin? Who is the only o
 
 Jesus Christ is his name!
 
->Matthew 23:37-39 (CSB) Jerusalem, Jerusalem, who kills the prophets and stones those who are sent to her. How often I wanted to gather your children together, as a hen gathers her chicks under her wings, but you were not willing!See, your house is left to you desolate. For I tell you, you will not see me again until you say, ‘Blessed is he who comes in the name of the Lord’!”
+>Matthew 23:37-39 Jerusalem, Jerusalem, who kills the prophets and stones those who are sent to her. How often I wanted to gather your children together, as a hen gathers her chicks under her wings, but you were not willing!See, your house is left to you desolate. For I tell you, you will not see me again until you say, ‘Blessed is he who comes in the name of the Lord’!”
 
 ## Our Response
 

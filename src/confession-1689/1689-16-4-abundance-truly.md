@@ -8,7 +8,7 @@
 
 ## The Text
 
->Romans 3:23 (CSB) For all have sinned and fall short of the glory of God;
+>Romans 3:23 For all have sinned and fall short of the glory of God;
 
 ## The Chapter
 
@@ -16,29 +16,29 @@
 
 ## The Confession
 
->Job 9:2–3 (CSB) Yes, I know what you’ve said is true, but how can a person be justified before God? If one wanted to take him to court, he could not answer God once in a thousand times.
+>Job 9:2–3 Yes, I know what you’ve said is true, but how can a person be justified before God? If one wanted to take him to court, he could not answer God once in a thousand times.
 
->Galatians 5:17 (CSB) For the flesh desires what is against the Spirit, and the Spirit desires what is against the flesh; these are opposed to each other, so that you don’t do what you want.
+>Galatians 5:17 For the flesh desires what is against the Spirit, and the Spirit desires what is against the flesh; these are opposed to each other, so that you don’t do what you want.
 
->Luke 17:10 (CSB) In the same way, when you have done all that you were commanded, you should say, ‘We are unworthy servants; we’ve only done our duty.’ ”
+>Luke 17:10 In the same way, when you have done all that you were commanded, you should say, ‘We are unworthy servants; we’ve only done our duty.’ ”
 
 Let me sum this up: without God, whatever good you have done and will ever do will fall short of what God requires.
 
 Without God, you cannot earn your way into the kingdom of God. You will not stand faultless before his throne. You will not get to peer into the loving face of your Savior who saved your from your sins and his glory.
 
->Isaiah 64:6 (CSB) All of us have become like something unclean, and all our righteous acts are like a polluted garment; all of us wither like a leaf, and our iniquities carry us away like the wind.
+>Isaiah 64:6 All of us have become like something unclean, and all our righteous acts are like a polluted garment; all of us wither like a leaf, and our iniquities carry us away like the wind.
 
 Even unto salvation, you still cannot earn your way more into the kingdom of God. That is why there are no degrees of salvation. No varsity nor junior varsity. No degrees like in black belt. No levels like in video games. No ranks in Christianity. I don't care if you are filled with Spirit and you can speak in tongues. I don't care. You are not ranked any higher than the thief on the cross next to Christ--whom could do nothing but believe upon the Lord Jesus, hang there and die. Ranking within Christianity is foolishness and the Paul's letter to the Galatians deals with that full stop.
 
->Galatians 3:1–3 (CSB) You foolish Galatians! Who has cast a spell on you, before whose eyes Jesus Christ was publicly portrayed as crucified? I only want to learn this from you: Did you receive the Spirit by the works of the law or by believing what you heard? Are you so foolish? After beginning by the Spirit, are you now finishing by the flesh?
+>Galatians 3:1–3 You foolish Galatians! Who has cast a spell on you, before whose eyes Jesus Christ was publicly portrayed as crucified? I only want to learn this from you: Did you receive the Spirit by the works of the law or by believing what you heard? Are you so foolish? After beginning by the Spirit, are you now finishing by the flesh?
 
 What must you do?
 
->John 3:3 (CSB) Jesus replied, “Truly I tell you, unless someone is born again, he cannot see the kingdom of God.”
+>John 3:3 Jesus replied, “Truly I tell you, unless someone is born again, he cannot see the kingdom of God.”
 
 You must do nothing but be more again. How do you know if you are born again?
 
->John 6:28–29 (CSB) “What can we do to perform the works of God?” they asked. Jesus replied, “This is the work of God—that you believe in the one he has sent.”
+>John 6:28–29 “What can we do to perform the works of God?” they asked. Jesus replied, “This is the work of God—that you believe in the one he has sent.”
 
 You must believe and trust in the Jesus Christ!
 

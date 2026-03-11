@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->>Psalm 125 (CSB)  
+>>Psalm 125  
 ><sup></sup> A song of ascents. 
 >
 ><sup>1</sup> Those who trust in the LORD are like Mount Zion. It cannot be shaken; it remains forever. 

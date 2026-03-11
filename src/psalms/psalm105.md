@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 105 (CSB)  
+>Psalm 105  
 ><sup>1</sup> Give thanks to the LORD, call on his name; proclaim his deeds among the peoples. 
 >
 ><sup>2</sup> Sing to him, sing praise to him; tell about all his wondrous works! 

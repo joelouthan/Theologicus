@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 120 (CSB)  
+>Psalm 120  
 ><sup></sup> A song of ascents. 
 >
 ><sup>1</sup> In my distress I called to the LORD, and he answered me. 

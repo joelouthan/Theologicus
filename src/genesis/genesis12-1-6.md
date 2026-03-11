@@ -8,7 +8,7 @@ How did we get here? What I mean by that is how is setting the stage to do his w
 
 Well, logic dictates, he must start with a person. Now, because we have seen a couple of genealogies (Genesis 5) and we have heard the proclamation of the gospel (Genesis 3:15) and for most of us, this is not the first time hearing this story, we know that through one bloodline starting with Adam through Noah through a man name Terah.
 
->Genesis 11:24–32 (CSB)  
+>Genesis 11:24–32  
 ><sup>24</sup> Nahor lived 29 years and fathered Terah. 
 >
 ><sup>25</sup> After he fathered Terah, Nahor lived 119 years and fathered other sons and daughters. 
@@ -35,7 +35,7 @@ I want you to keep in mind when we read and study Genesis 12, God is putting tog
 
 ## The Text
 
->Genesis 12:1-6 (CSB)  
+>Genesis 12:1-6  
 ><sup> 1 </sup> The LORD said to Abram: Go from your land, your relatives, and your father’s house to the land that I will show you. 
 >
 ><sup> 2 </sup> I will make you into a great nation, I will bless you, I will make your name great, and you will be a blessing. 
@@ -70,7 +70,7 @@ God came in the midst of his ordinary every day life and gives the covenant call
 
 ### Predestined by God: Abraham was called out by God
 
->Romans 8:30a (CSB)  And those he predestined, he also called
+>Romans 8:30a  And those he predestined, he also called
 
 What is being called by God really about?
 
@@ -84,7 +84,7 @@ Don't look at it like God is giving you a multiple choice like Morpheus in The M
 
 The choice to be with God is the dead coming alive. Don't look at it like a mere choice, "Should I get a green or a red truck?" Look at this choice in the right manner:
 
->John 11:41–43 (CSB)  So they removed the stone. Then Jesus raised his eyes and said, “Father, I thank you that you heard me. I know that you always hear me, but because of the crowd standing here I said this, so that they may believe you sent me.”After he said this, he shouted with a loud voice, “Lazarus, come out!”
+>John 11:41–43  So they removed the stone. Then Jesus raised his eyes and said, “Father, I thank you that you heard me. I know that you always hear me, but because of the crowd standing here I said this, so that they may believe you sent me.”After he said this, he shouted with a loud voice, “Lazarus, come out!”
 
 Dead people do not choose. They are dead. They just lay be dead. Lazarus was 4 days dead. Super dead. Likewise, in our sins, we are super dead in our sins and trespasses. But what happens? But God, in his great love our us, calls out to our dead souls and cold hearts, pulls our expired hearts out, gives us his own heart and his own spirit. And now, we get to live. Now we are alive. Now we choose to live. There is only one way to live--live to God. To not live to God, to sin and trespass against God is death.
 
@@ -92,7 +92,7 @@ Since you and me are alive to Christ, you and I get to minister and love and ser
 
 ><sup> 5 </sup> He took his wife, Sarai, his nephew Lot, all the possessions they had accumulated, and the people they had acquired in Haran, and they set out for the land of Canaan. When they came to the land of Canaan, 
 
-## The Gospel
+## His Gospel
 
 ### Predestined by God: Abraham was made righteous by God
 
@@ -100,25 +100,25 @@ Remember when I asked you to look in the gap between chapters 11 and 12. What is
 
 We could read verses 1-4 where God speaks to Abram and then read the rest of the chapter as Abram merely responding to that calling. But you and I know that when God speaks, it is not mere data being exchanged between two beings but rather, something supernatural is going on, for:
 
->Isaiah 55:11 (CSB)  so my word that comes from my mouth will not return to me empty, but it will accomplish what I please and will prosper in what I send it to do.”
+>Isaiah 55:11  so my word that comes from my mouth will not return to me empty, but it will accomplish what I please and will prosper in what I send it to do.”
 
 When the children of God are called by God to live to God, the moment we believe and trust in him (because our dead hearts could not live and trust in him because we are dead).
 
 Now we are truly alive. Now we live to God. 
 
->1 John 5:1 (CSB)  Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father also loves the one born of him.
+>1 John 5:1  Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father also loves the one born of him.
 
->John 3:3 (CSB)  Jesus replied, “Truly I tell you, unless someone is born again, he cannot see the kingdom of God.”
+>John 3:3  Jesus replied, “Truly I tell you, unless someone is born again, he cannot see the kingdom of God.”
 
 Abram was elected, chosen, thought of, loved by God before the "foundations of the world" (Ephesians 1), that is, before "in the beginning, God created the heavens and the earth" (Genesis 1:1). Because of that great love and affection by God, Abram was born again and born of God.
 
 But before Abram lifted a finger, he believe God and took God at his word and trusted him. Before he took one little step:
 
->Romans 4:1–5 (CSB)  What then will we say that Abraham, our forefather according to the flesh, has found?If Abraham was justified by works, he has something to boast about—but not before God. For what does the Scripture say? **Abraham believed God, and it was credited to him for righteousness.**Now to the one who works, pay is not credited as a gift, but as something owed. But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness.
+>Romans 4:1–5  What then will we say that Abraham, our forefather according to the flesh, has found?If Abraham was justified by works, he has something to boast about—but not before God. For what does the Scripture say? **Abraham believed God, and it was credited to him for righteousness.**Now to the one who works, pay is not credited as a gift, but as something owed. But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness.
 
 Now, you might keep reading the Bible, past Genesis, past Romans and come up on a little passage statement from the half-brother and younger Brother of Jesus:
 
->James 2:22–26 (CSB)  You see that faith was active together with his works, and by works, faith was made complete,and the Scripture was fulfilled that says, Abraham believed God, and it was credited to him as righteousness, and he was called God’s friend. You see that a person is justified by works and not by faith alone. In the same way, wasn’t Rahab the prostitute also justified by works in receiving the messengers and sending them out by a different route?For just as the body without the spirit is dead, so also faith without works is dead.
+>James 2:22–26  You see that faith was active together with his works, and by works, faith was made complete,and the Scripture was fulfilled that says, Abraham believed God, and it was credited to him as righteousness, and he was called God’s friend. You see that a person is justified by works and not by faith alone. In the same way, wasn’t Rahab the prostitute also justified by works in receiving the messengers and sending them out by a different route?For just as the body without the spirit is dead, so also faith without works is dead.
 
 Is James contradicting Paul in Romans and being divisive and argumentative and contradictory and putting the Scriptures at odds with one another? Absolutely not! In fact, if the epistles of Paul and James were conversations of the two apostles in the same room, you might go like this:
 
@@ -142,13 +142,13 @@ Because we are born in the iniquity of Adam, and death and sin passed from gener
 
 There is one man, who walked this earth, prophesied by certain preachers of old, that would be the Messiah that humanity longed for:
 
->Isaiah 9:6–7 (CSB)  For a child will be born for us, a son will be given to us, and the government will be on his shoulders. He will be named Wonderful Counselor, Mighty God, Eternal Father, Prince of Peace. The dominion will be vast, and its prosperity will never end. He will reign on the throne of David and over his kingdom, to establish and sustain it with justice and righteousness from now on and forever. The zeal of the LORD of Armies will accomplish this.
+>Isaiah 9:6–7  For a child will be born for us, a son will be given to us, and the government will be on his shoulders. He will be named Wonderful Counselor, Mighty God, Eternal Father, Prince of Peace. The dominion will be vast, and its prosperity will never end. He will reign on the throne of David and over his kingdom, to establish and sustain it with justice and righteousness from now on and forever. The zeal of the LORD of Armies will accomplish this.
 
 And since Jesus was not born of Adam, he did not come to add to our sin which filled all of mankind, but he come to save us from it.
 
 Within the history of mankind, in the middle of chaos, death, and confusion, God elects. God predestined. God foreknew each one of us. Again, let me repeat what the Bible makes abundantly clear. That God did not look down the corridors of time, saw that those who were doing good or picked God as their Savior and picked those people to be saved. No! But that God saw all of humanity, foreknew our hearts were cold and and dead, and saw in our weakness, faithless, worthless, sinful selves--he took pity, he gave us grace, mercy, and love--and he did so by sending his precious only begotten Son, Jesus Christ, to die for us:
 
->Romans 5:8 (CSB)  But God proves his own love for us in that while we were still sinners, Christ died for us.
+>Romans 5:8  But God proves his own love for us in that while we were still sinners, Christ died for us.
 
 Abram was effectually, effectively, called-to-the-living, heart-exchanged, spirit-indwelt, righteousness-deposited by God through the simple words:
 
@@ -160,7 +160,7 @@ Abram was effectually, effectively, called-to-the-living, heart-exchanged, spiri
 
 Jesus, on this earth, had more than a few words to say about Abraham, whom Galatians and Hebrews calls, "the father of our faith". He says:
 
->John 8:56 (CSB) Your father Abraham rejoiced to see my day; he saw it and was glad.”
+>John 8:56 Your father Abraham rejoiced to see my day; he saw it and was glad.”
 
 Abraham was born again. And now he saw the kingdom of God.
 

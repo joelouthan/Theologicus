@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 138 (CSB)  
+>Psalm 138  
 ><sup></sup> Of David. 
 >
 ><sup>1</sup> I will give you thanks with all my heart; I will sing your praise before the heavenly beings. 

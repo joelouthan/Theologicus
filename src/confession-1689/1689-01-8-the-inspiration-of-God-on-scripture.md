@@ -8,7 +8,7 @@
 
 ## The Text
 
->Psalm 119:72 (CSB) Instruction from your lips is better for me than thousands of gold and silver pieces.
+>Psalm 119:72 Instruction from your lips is better for me than thousands of gold and silver pieces.
 
 ## The Chapter
 
@@ -30,7 +30,7 @@ You and I don't have to worry that we have missed something. We have God and his
 
 Or you can be like every single human in history who overthought this point went searching the Scriptures for some other kind of life when the Scriptures testify about Jesus Christ:
 
->John 5:39 (CSB) You pore over the Scriptures because you think you have eternal life in them, and yet they testify about me.
+>John 5:39 You pore over the Scriptures because you think you have eternal life in them, and yet they testify about me.
 
 ### so as in all controversies of religion, the church is finally to appeal to them
 
@@ -38,7 +38,7 @@ Or you can be like every single human in history who overthought this point went
 
 vs.
 
->John 1:1 (CSB) In the beginning was the Word, and the Word was with God, and **the Word was God**.
+>John 1:1 In the beginning was the Word, and the Word was with God, and **the Word was God**.
 
 This is a quote from the Bible translation used from cult known as Jehovah's Witnesses. The Jehovah's Witnesses uses all the same terminology that Christians do: Jesus, God, Spirit. But their version means something completely different. The prime example is that, to them, Jesus is not god.
 
@@ -46,7 +46,7 @@ This is a quote from the Bible translation used from cult known as Jehovah's Wit
 
 vs.
 
->John 8:58 (CSB) Jesus said to them, “Truly I tell you, before Abraham was, **I am.**”
+>John 8:58 Jesus said to them, “Truly I tell you, before Abraham was, **I am.**”
 
 Through scholastic dishonesty, they have twisted the translation to make their Bible deny that Jesus is God. No reputable Greek scholar will support that claim.
 

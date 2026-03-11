@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 110 (CSB)  
+>Psalm 110  
 ><sup></sup> A psalm of David. 
 >
 ><sup>1</sup> This is the declaration of the LORD to my Lord: “Sit at my right hand until I make your enemies your footstool.” 

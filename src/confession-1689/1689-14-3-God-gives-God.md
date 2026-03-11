@@ -8,7 +8,7 @@
 
 ## The Text
 
->Mark 9:24 (CSB) Immediately the father of the boy cried out, “I do believe; help my unbelief!”
+>Mark 9:24 Immediately the father of the boy cried out, “I do believe; help my unbelief!”
 
 ## The Chapter
 
@@ -18,11 +18,11 @@
 
 ### This faith, although it be in different stages, and may be weak or strong
 
->Hebrews 5:13–14 (CSB) For everyone who lives on milk is inexperienced with the message about righteousness, because he is an infant. But solid food is for the mature—for those whose senses have been trained to distinguish between good and evil.
+>Hebrews 5:13–14 For everyone who lives on milk is inexperienced with the message about righteousness, because he is an infant. But solid food is for the mature—for those whose senses have been trained to distinguish between good and evil.
 
->Matthew 6:30 (CSB) If that’s how God clothes the grass of the field, which is here today and thrown into the furnace tomorrow, won’t he do much more for you—you of little faith?
+>Matthew 6:30 If that’s how God clothes the grass of the field, which is here today and thrown into the furnace tomorrow, won’t he do much more for you—you of little faith?
 
->Romans 4:19–20 (CSB) He did not weaken in faith when he considered his own body to be already dead (since he was about a hundred years old) and also the deadness of Sarah’s womb. He did not waver in unbelief at God’s promise but was strengthened in his faith and gave glory to God,
+>Romans 4:19–20 He did not weaken in faith when he considered his own body to be already dead (since he was about a hundred years old) and also the deadness of Sarah’s womb. He did not waver in unbelief at God’s promise but was strengthened in his faith and gave glory to God,
 
 Too many churches teach and too many Christians falsely believe that faith comes within themselves and generated from within themselves and it is all based on what they can do to strengthen their faith.
 
@@ -32,11 +32,11 @@ And yes, he hears our prayers. Why? Even with your tiniest faith, you are in com
 
 ### yet it is in the least degree of it different in the kind or nature of it, as is all other saving grace, from the faith and common grace of temporary believers
 
->2 Peter 1:1 (CSB) Simeon Peter, a servant and an apostle of Jesus Christ: To those who have received a faith equal to ours through the righteousness of our God and Savior Jesus Christ.
+>2 Peter 1:1 Simeon Peter, a servant and an apostle of Jesus Christ: To those who have received a faith equal to ours through the righteousness of our God and Savior Jesus Christ.
 
 Go back and carefully read Christ analogy of faith to a mustard seed:
 
->Matthew 17:17–20 (CSB)  
+>Matthew 17:17–20  
 ><sup>17</sup> Jesus replied, “You unbelieving and perverse generation, how long will I be with you? How long must I put up with you? Bring him here to me.” 
 >
 ><sup>18</sup> Then Jesus rebuked the demon, and it came out of him, and from that moment the boy was healed. 
@@ -51,17 +51,17 @@ But think harder. Christ said himself, "If you had the faith the size of a musta
 
 God came to us when we first sinned:
 
->Genesis 3:7-8 (CSB) Then the eyes of both of them were opened, and they knew they were naked; so they sewed fig leaves together and made coverings for themselves. Then the man and his wife heard the sound of the LORD God walking in the garden at the time of the evening breeze, and they hid from the LORD God among the trees of the garden.
+>Genesis 3:7-8 Then the eyes of both of them were opened, and they knew they were naked; so they sewed fig leaves together and made coverings for themselves. Then the man and his wife heard the sound of the LORD God walking in the garden at the time of the evening breeze, and they hid from the LORD God among the trees of the garden.
 
 God came to us to save us from our sins:
 
->John 1:14 (CSB) The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth.
+>John 1:14 The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth.
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 Notice at the end of Luke's account of the Lord's prayer:
 
->Luke 11:9-13 (CSB) “So I say to you, ask, and it will be given to you. Seek, and you will find. Knock, and the door will be opened to you. For everyone who asks receives, and the one who seeks finds, and to the one who knocks, the door will be opened. What father among you, if his son asks for a fish, will give him a snake instead of a fish? Or if he asks for an egg, will give him a scorpion? If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him? ”
+>Luke 11:9-13 “So I say to you, ask, and it will be given to you. Seek, and you will find. Knock, and the door will be opened to you. For everyone who asks receives, and the one who seeks finds, and to the one who knocks, the door will be opened. What father among you, if his son asks for a fish, will give him a snake instead of a fish? Or if he asks for an egg, will give him a scorpion? If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him? ”
 
 My friend, I have zero guarantees in life but just this one: if you turn to God, ask for God, you will get God.
 
@@ -71,11 +71,11 @@ You will get the Triune God who will dwell in you and with you for all the days 
 
 ### and therefore, though it may be many times assailed and weakened, yet it gets the victory
 
->Ephesians 6:16 (CSB) In every situation take up the shield of faith with which you can extinguish all the flaming arrows of the evil one.
+>Ephesians 6:16 In every situation take up the shield of faith with which you can extinguish all the flaming arrows of the evil one.
 
->1 John 5:4–5 (CSB) because everyone who has been born of God conquers the world. This is the victory that has conquered the world: our faith. And who is the one who conquers the world but the one who believes that Jesus is the Son of God?
+>1 John 5:4–5 because everyone who has been born of God conquers the world. This is the victory that has conquered the world: our faith. And who is the one who conquers the world but the one who believes that Jesus is the Son of God?
 
->Romans 8:31–37 (CSB) What, then, are we to say about these things? If God is for us, who is against us? He did not even spare his own Son but gave him up for us all. How will he not also with him grant us everything? Who can bring an accusation against God’s elect? God is the one who justifies. Who is the one who condemns? Christ Jesus is the one who died, but even more, has been raised; he also is at the right hand of God and intercedes for us. Who can separate us from the love of Christ? Can affliction or distress or persecution or famine or nakedness or danger or sword? As it is written: Because of you we are being put to death all day long; we are counted as sheep to be slaughtered. **No, in all these things we are more than conquerors through him who loved us.**
+>Romans 8:31–37 What, then, are we to say about these things? If God is for us, who is against us? He did not even spare his own Son but gave him up for us all. How will he not also with him grant us everything? Who can bring an accusation against God’s elect? God is the one who justifies. Who is the one who condemns? Christ Jesus is the one who died, but even more, has been raised; he also is at the right hand of God and intercedes for us. Who can separate us from the love of Christ? Can affliction or distress or persecution or famine or nakedness or danger or sword? As it is written: Because of you we are being put to death all day long; we are counted as sheep to be slaughtered. **No, in all these things we are more than conquerors through him who loved us.**
 
 Who can be against you? What need is greater than our desperate need for a merciful Savior who looks upon our wickedness with compassion because he knows we are dumb and feeble and made from dust! 
 
@@ -93,7 +93,7 @@ That faith--that small small faith that you have that was given to you by God ge
 
 Why would God command you to grow the faith that he gave you? You might be thinking, "Surely, he told us to strengthen our own faith?" The same Christ who told us to come to him all who are weary and burden and he alone will give us rest?
 
->1 Thessalonians 3:2-3 (CSB) And we sent Timothy, our brother and God’s coworker in the gospel of Christ, to strengthen and encourage you concerning your faith, so that no one will be shaken by these afflictions. For you yourselves know that we are appointed to this.
+>1 Thessalonians 3:2-3 And we sent Timothy, our brother and God’s coworker in the gospel of Christ, to strengthen and encourage you concerning your faith, so that no one will be shaken by these afflictions. For you yourselves know that we are appointed to this.
 
 It should come to no surprise that we are to indeed strengthen our faith **in communion with other saints.** In other words, how can you strengthen your own faith by yourself? More quiet time? More prayer? More Bible reading? More fasting? More doing? 
 
@@ -101,13 +101,13 @@ Or how about gathering with the saints on the Lord's Day, giving thanks and sitt
 
 ### who is both the author and finisher of our faith
 
->Hebrews 12:2 (CSB) keeping our eyes on Jesus, the source and perfecter of our faith. For the joy that lay before him, he endured the cross, despising the shame, and sat down at the right hand of the throne of God.
+>Hebrews 12:2 keeping our eyes on Jesus, the source and perfecter of our faith. For the joy that lay before him, he endured the cross, despising the shame, and sat down at the right hand of the throne of God.
 
->Galatians 6:14 (CSB) But as for me, I will never boast about anything except the cross of our Lord Jesus Christ. The world has been crucified to me through the cross, and I to the world.
+>Galatians 6:14 But as for me, I will never boast about anything except the cross of our Lord Jesus Christ. The world has been crucified to me through the cross, and I to the world.
 
 Our self-reliance, self-sufficiency should come to no surprise. It is the American way. That is the culture around us. And it is not unlike Peter's response when Christ told him that he would deny him three times:
 
->Luke 22:31-34 (CSB) “Simon, Simon, look out. Satan has asked to sift you like wheat. But I have prayed for you that your faith may not fail. And you, when you have turned back, strengthen your brothers.”
+>Luke 22:31-34 “Simon, Simon, look out. Satan has asked to sift you like wheat. But I have prayed for you that your faith may not fail. And you, when you have turned back, strengthen your brothers.”
 
 Look at the arrogant and self-assured response of Peter:
 
@@ -125,7 +125,7 @@ Christ came to him, supped with him, and drew near to him. And because God alone
 
 Think about that. Our modern day sensibilies would have disqualified Peter for publicly deny his knowledge of Christ. Surely, you want to quote Christ:
 
->Matthew 10:33 (CSB) But whoever denies me before others, I will also deny him before my Father in heaven.
+>Matthew 10:33 But whoever denies me before others, I will also deny him before my Father in heaven.
 
 Oh, just like God spoke to Adam and told him, "if you eat of the tree, you will sure die?"
 
@@ -135,7 +135,7 @@ How did God respond to Adam and Eve? Instant mercies.
 
 How did Christ respond to Peter? Instant mercies.
 
->1 John 1:9 (CSB) If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
+>1 John 1:9 If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
 
 Turn to the Christ. Infinitely faster than you can snap your fingers, the Lord God Almighty will forgive you and make you righteous.
 

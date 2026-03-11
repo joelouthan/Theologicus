@@ -45,11 +45,11 @@ I know this to be true because he sent his only begotten Son, Jesus Christ, who 
 
 My Beloved, if you are his adoptive, precious child then do not fear that God knows you inside and out as he is only here to remind you of your fears and weaknesses. That is the Devil’s job. But Rejoice! For God sees you, knows you, loves you and wrote your name in His Son’s book of life. Run to him! Flee to him! Let him comfort you in the only way a perfect Father could ever do.
 
->Hosea 2:14 (CSB) Therefore, I am going to persuade her,
+>Hosea 2:14 Therefore, I am going to persuade her,
 lead her to the wilderness,
 and speak tenderly to her.
 
->Zephaniah 3:17 (CSB) The LORD your God is among you,
+>Zephaniah 3:17 The LORD your God is among you,
 a warrior who saves.
 He will rejoice over you with gladness.
 He will be quiet in his love.

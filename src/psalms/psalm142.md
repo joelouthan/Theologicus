@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 142 (CSB)  
+>Psalm 142  
 ><sup></sup> A Maskil of David. When he was in the cave. A prayer. 
 >
 ><sup>1</sup> I cry aloud to the LORD; I plead aloud to the LORD for mercy. 

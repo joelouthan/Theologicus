@@ -8,7 +8,7 @@
 
 ## The Text
 
->Galatians 3:27 (CSB) For those of you who were baptized into Christ have been clothed with Christ.
+>Galatians 3:27 For those of you who were baptized into Christ have been clothed with Christ.
 
 ## The Chapter
 
@@ -32,27 +32,27 @@ But that is not the case.
 
 And in every single case the paedobaptist makes for infant baptism, such as the aforementioned Matthew 28 or Colossians 2:11-13, for example:
 
->Colossians 2:12–14 (CSB) when you were buried with him in baptism, in which you were also raised with him through faith in the working of God, who raised him from the dead. And when you were dead in trespasses and in the uncircumcision of your flesh, he made you alive with him and forgave us all our trespasses. He erased the certificate of debt, with its obligations, that was against us and opposed to us, and has taken it away by nailing it to the cross.
+>Colossians 2:12–14 when you were buried with him in baptism, in which you were also raised with him through faith in the working of God, who raised him from the dead. And when you were dead in trespasses and in the uncircumcision of your flesh, he made you alive with him and forgave us all our trespasses. He erased the certificate of debt, with its obligations, that was against us and opposed to us, and has taken it away by nailing it to the cross.
 
 The doctrine for infant baptism still needs a lot of connecting points and as the point of the Baptist, still not explicitly given by God.[^2]
 
 Not only is a command of the Christ, it is to signify and put on display our unbreakable union with the Christ.
 
->Romans 6:3–5 (CSB) Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life. For if we have been united with him in the likeness of his death, we will certainly also be in the likeness of his resurrection.
+>Romans 6:3–5 Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life. For if we have been united with him in the likeness of his death, we will certainly also be in the likeness of his resurrection.
 
 ### of remission of sins
 
->Mark 1:4 (CSB) John came baptizing in the wilderness and proclaiming a baptism of repentance for the forgiveness of sins.
+>Mark 1:4 John came baptizing in the wilderness and proclaiming a baptism of repentance for the forgiveness of sins.
 
->Acts 22:16 (CSB) And now, why are you delaying? Get up and be baptized, and wash away your sins, calling on his name.’
+>Acts 22:16 And now, why are you delaying? Get up and be baptized, and wash away your sins, calling on his name.’
 
 When Christ saved you, in that instance, where the Father gave you his heart and his Spirit, you were washed clean of your sins.
 
->Ezekiel 36:25 (CSB) I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols.
+>Ezekiel 36:25 I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols.
 
 How does he do that? We see this in Romans 6. When Christ died, he took your sins, your guilt and shame, nailed it to the cross (Colossians 2:14) and buried it with him. Here's the kicker: between your sins and the Lord Jesus Christ, only one of those things are righteous. The righteous one gets back out of the grave because no grave can hold him--he is the Holy One of God. Your sins?
 
->Psalm 103:11-13 (CSB)  
+>Psalm 103:11-13  
 >For as high as the heavens are above the earth,  
 >so great is his faithful love  
 >toward those who fear him.  
@@ -66,7 +66,7 @@ How does he do that? We see this in Romans 6. When Christ died, he took your sin
 
 ### and of giving up into God, through Jesus Christ, to live and walk in newness of life
 
->Romans 6:4 (CSB) Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life.
+>Romans 6:4 Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life.
 
 So now, we live and move and have our being in Christ. We celebrate his goodness upon our lives. In deepest despair, sorrow over our sins, God forbid, we backslide and keep running into our sin, God knows. God knows. God knows you and I are made from dust.
 

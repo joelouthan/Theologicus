@@ -25,13 +25,13 @@
 
 ## The Word
 
->1 Corinthians 15:1-8 (CSB) Now I want to make clear for you, brothers and sisters, the gospel I preached to you, which you received, on which you have taken your stand and by which you are being saved, if you hold to the message I preached to you — unless you believed in vain. For I passed on to you as most important what I also received: that Christ died for our sins according to the Scriptures, that he was buried, that he was raised on the third day according to the Scriptures, and that he appeared to Cephas, then to the Twelve. Then he appeared to over five hundred brothers and sisters at one time; most of them are still alive, but some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one born at the wrong time, he also appeared to me.
+>1 Corinthians 15:1-8 Now I want to make clear for you, brothers and sisters, the gospel I preached to you, which you received, on which you have taken your stand and by which you are being saved, if you hold to the message I preached to you — unless you believed in vain. For I passed on to you as most important what I also received: that Christ died for our sins according to the Scriptures, that he was buried, that he was raised on the third day according to the Scriptures, and that he appeared to Cephas, then to the Twelve. Then he appeared to over five hundred brothers and sisters at one time; most of them are still alive, but some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one born at the wrong time, he also appeared to me.
 
 ## The Belief
 
 ### The third day He arose again from the dead
 
->John 20:1–18 (CSB)  
+>John 20:1–18  
 ><sup>1</sup> On the first day of the week Mary Magdalene came to the tomb early, while it was still dark. She saw that the stone had been removed from the tomb. 
 >
 ><sup>2</sup> So she went running to Simon Peter and to the other disciple, the one Jesus loved, and said to them, “They’ve taken the Lord out of the tomb, and we don’t know where they’ve put him!” 
@@ -70,7 +70,7 @@
 
 ### He ascended into heaven and sits at the right hand of God the Father Almighty
 
->Acts 2:29-39 (CSB) “Brothers and sisters, I can confidently speak to you about the patriarch David: He is both dead and buried, and his tomb is with us to this day. Since he was a prophet, he knew that God had sworn an oath to him to seat one of his descendants on his throne. Seeing what was to come, he spoke concerning the resurrection of the Messiah: He was not abandoned in Hades, and his flesh did not experience decay.  
+>Acts 2:29-39 “Brothers and sisters, I can confidently speak to you about the patriarch David: He is both dead and buried, and his tomb is with us to this day. Since he was a prophet, he knew that God had sworn an oath to him to seat one of his descendants on his throne. Seeing what was to come, he spoke concerning the resurrection of the Messiah: He was not abandoned in Hades, and his flesh did not experience decay.  
 >
 >“God has raised this Jesus; we are all witnesses of this. Therefore, since he has been exalted to the right hand of God and has received from the Father the promised Holy Spirit, he has poured out what you both see and hear. For it was not David who ascended into the heavens, but he himself says:  
 >The Lord declared to my Lord,  
@@ -84,11 +84,11 @@
 
 And:
 
->Hebrews 10:11-14 (CSB) Every priest stands day after day ministering and offering the same sacrifices time after time, which can never take away sins. But this man, after offering one sacrifice for sins forever, sat down at the right hand of God. He is now waiting until his enemies are made his footstool. For by one offering he has perfected forever those who are sanctified.
+>Hebrews 10:11-14 Every priest stands day after day ministering and offering the same sacrifices time after time, which can never take away sins. But this man, after offering one sacrifice for sins forever, sat down at the right hand of God. He is now waiting until his enemies are made his footstool. For by one offering he has perfected forever those who are sanctified.
 
 ### whence He shall come to judge the living and the dead
 
->Revelation 20:11 - 21:8 (CSB) Then I saw a great white throne and one seated on it. Earth and heaven fled from his presence, and no place was found for them. I also saw the dead, the great and the small, standing before the throne, and books were opened. Another book was opened, which is the book of life, and the dead were judged according to their works by what was written in the books. Then the sea gave up the dead that were in it, and death and Hades gave up the dead that were in them; each one was judged according to their works. Death and Hades were thrown into the lake of fire. This is the second death, the lake of fire. And anyone whose name was not found written in the book of life was thrown into the lake of fire.
+>Revelation 20:11 - 21:8 Then I saw a great white throne and one seated on it. Earth and heaven fled from his presence, and no place was found for them. I also saw the dead, the great and the small, standing before the throne, and books were opened. Another book was opened, which is the book of life, and the dead were judged according to their works by what was written in the books. Then the sea gave up the dead that were in it, and death and Hades gave up the dead that were in them; each one was judged according to their works. Death and Hades were thrown into the lake of fire. This is the second death, the lake of fire. And anyone whose name was not found written in the book of life was thrown into the lake of fire.
 >
 >Then I saw a new heaven and a new earth; for the first heaven and the first earth had passed away, and the sea was no more. I also saw the holy city, the new Jerusalem, coming down out of heaven from God, prepared like a bride adorned for her husband.
 >
@@ -100,4 +100,4 @@ And:
 
 What has Christ commissioned us to do?
 
->2 Timothy 4:1-5 (CSB) I solemnly charge you before God and Christ Jesus, who is going to judge the living and the dead, and because of his appearing and his kingdom: **Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching**. For the time will come when people will not tolerate sound doctrine, but according to their own desires, will multiply teachers for themselves because they have an itch to hear what they want to hear. They will turn away from hearing the truth and will turn aside to myths. But as for you, exercise self-control in everything, endure hardship, do the work of an evangelist, fulfill your ministry.
+>2 Timothy 4:1-5 I solemnly charge you before God and Christ Jesus, who is going to judge the living and the dead, and because of his appearing and his kingdom: **Preach the word; be ready in season and out of season; correct, rebuke, and encourage with great patience and teaching**. For the time will come when people will not tolerate sound doctrine, but according to their own desires, will multiply teachers for themselves because they have an itch to hear what they want to hear. They will turn away from hearing the truth and will turn aside to myths. But as for you, exercise self-control in everything, endure hardship, do the work of an evangelist, fulfill your ministry.

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 149 (CSB)  
+>Psalm 149  
 ><sup>1</sup> Hallelujah! Sing to the LORD a new song, his praise in the assembly of the faithful. 
 >
 ><sup>2</sup> Let Israel celebrate its Maker; let the children of Zion rejoice in their King. 

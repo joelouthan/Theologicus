@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 38 (CSB)  
+>Psalm 38  
 ><sup></sup> A psalm of David to bring remembrance. 
 >
 ><sup>1</sup> LORD, do not punish me in your anger or discipline me in your wrath. 

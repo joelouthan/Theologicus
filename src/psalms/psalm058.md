@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 58 (CSB)  
+>Psalm 58  
 ><sup></sup> For the choir director: “Do Not Destroy.” A Miktam of David. 
 >
 ><sup>1</sup> Do you really speak righteously, you mighty ones? Do you judge people fairly? 

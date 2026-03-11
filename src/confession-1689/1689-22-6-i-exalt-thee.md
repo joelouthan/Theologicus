@@ -8,7 +8,7 @@
 
 ## The Text
 
->John 4:21-26 (CSB) Jesus told her, “Believe me, woman, an hour is coming when you will worship the Father neither on this mountain nor in Jerusalem. You Samaritans worship what you do not know. We worship what we do know, because salvation is from the Jews. But an hour is coming, and is now here, when the true worshipers will worship the Father in Spirit and in truth. Yes, the Father wants such people to worship him. God is spirit, and those who worship him must worship in Spirit and in truth.”
+>John 4:21-26 Jesus told her, “Believe me, woman, an hour is coming when you will worship the Father neither on this mountain nor in Jerusalem. You Samaritans worship what you do not know. We worship what we do know, because salvation is from the Jews. But an hour is coming, and is now here, when the true worshipers will worship the Father in Spirit and in truth. Yes, the Father wants such people to worship him. God is spirit, and those who worship him must worship in Spirit and in truth.”
 >
 >The woman said to him, “I know that the Messiah is coming” (who is called Christ). “When he comes, he will explain everything to us.”
 >
@@ -24,17 +24,17 @@ By no means are we trying to make man-made rules out of Scriptures and then supe
 
 ### Neither prayer nor any other part of religious worship, is now under the gospel, tied unto, or made more acceptable by any place in which it is performed, or towards which it is directed; but God is to be worshipped everywhere in spirit and in truth
 
->John 4:21 (CSB) Jesus told her, “Believe me, woman, an hour is coming when you will worship the Father neither on this mountain nor in Jerusalem.
+>John 4:21 Jesus told her, “Believe me, woman, an hour is coming when you will worship the Father neither on this mountain nor in Jerusalem.
 
->Malachi 1:11 (CSB) “My name will be great among the nations, from the rising of the sun to its setting. Incense and pure offerings will be presented in my name in every place because my name will be great among the nations,” says the LORD of Armies.
+>Malachi 1:11 “My name will be great among the nations, from the rising of the sun to its setting. Incense and pure offerings will be presented in my name in every place because my name will be great among the nations,” says the LORD of Armies.
 
->1 Timothy 2:8 (CSB) Therefore, I want the men in every place to pray, lifting up holy hands without anger or argument.
+>1 Timothy 2:8 Therefore, I want the men in every place to pray, lifting up holy hands without anger or argument.
 
 First and foremost, it is not the building that gives God worship rather, his glory fills the whole earth (Psalm 72:19). There is not a place on earth, in heavens or under the earth where he is not. His presence is always with us. Therefore, being that is true, we are called to worship in spirit and in truth.
 
 ### as in private families
 
->Acts 10:2 (CSB) He was a devout man and feared God along with his whole household. He did many charitable deeds for the Jewish people and always prayed to God.
+>Acts 10:2 He was a devout man and feared God along with his whole household. He did many charitable deeds for the Jewish people and always prayed to God.
 
 Christian, this is the call to lead worship in your homes.
 
@@ -67,9 +67,9 @@ However you do it, and whatever you do it, just do it. Don't be afraid to fail. 
 
 ### daily
 
->Matthew 6:11 (CSB) Give us today our daily bread.
+>Matthew 6:11 Give us today our daily bread.
 
->Psalm 55:17 (CSB) I complain and groan morning, noon, and night, and he hears my voice.
+>Psalm 55:17 I complain and groan morning, noon, and night, and he hears my voice.
 
 To that end, pray prayers. Sing. Read aloud. Do something every day with your family that points and worships God directly.
 
@@ -79,7 +79,7 @@ If we worshipped God perfectly, we would not need the Christ.
 
 ### and in secret each one by himself
 
->Matthew 6:6 (CSB) But when you pray, go into your private room, shut your door, and pray to your Father who is in secret. And your Father who sees in secret will reward you.
+>Matthew 6:6 But when you pray, go into your private room, shut your door, and pray to your Father who is in secret. And your Father who sees in secret will reward you.
 
 Personal time. Quiet time. Devotional time. Whatever you want to call it, you life will be better off in the word, praying, and studying.
 
@@ -87,9 +87,9 @@ Don't be dogmatic. You are going to not be consistent. Again, if we consistently
 
 ### so more solemnly in the public assemblies, which are not carelessly nor wilfully to be neglected or forsaken, when God by his word or providence calls thereunto
 
->Hebrews 10:25 (CSB) not neglecting to gather together, as some are in the habit of doing, but encouraging each other, and all the more as you see the day approaching.
+>Hebrews 10:25 not neglecting to gather together, as some are in the habit of doing, but encouraging each other, and all the more as you see the day approaching.
 
->Acts 2:42 (CSB) They devoted themselves to the apostles’ teaching, to the fellowship, to the breaking of bread, and to prayer.
+>Acts 2:42 They devoted themselves to the apostles’ teaching, to the fellowship, to the breaking of bread, and to prayer.
 
 Ah saints. Gather together to hear all of what God has done for us. Come hear the good news! I know you and I have forgotten it because have sinned since the last time we have heard it. We have sin and we need a Savior. We have the Savior! His name is Jesus Christ.
 

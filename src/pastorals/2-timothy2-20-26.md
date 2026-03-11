@@ -4,7 +4,7 @@
 
 ## The Text
 
->2 Timothy 2:20–26 (CSB)  
+>2 Timothy 2:20–26  
 ><sup> 20 </sup> Now in a large house there are not only gold and silver vessels, but also those of wood and clay; some for honorable use and some for dishonorable. 
 >
 ><sup> 21 </sup> So if anyone purifies himself from anything dishonorable, he will be a special instrument, set apart, useful to the Master, prepared for every good work. 
@@ -23,15 +23,15 @@
 
 Here are big facts: we did not choose God but rather God chose us:
 
->1 John 4:10 (CSB) Love consists in this: not that we loved God, but that he loved us and sent his Son to be the atoning sacrifice for our sins.
+>1 John 4:10 Love consists in this: not that we loved God, but that he loved us and sent his Son to be the atoning sacrifice for our sins.
 
->John 15:12-17 (CSB) “This is my command: Love one another as I have loved you. 13 No one has greater love than this: to lay down his life for his friends. 14 You are my friends if you do what I command you. 15 I do not call you servants anymore, because a servant doesn’t know what his master is doing. I have called you friends, because I have made known to you everything I have heard from my Father. 16 You did not choose me, but I chose you. I appointed you to go and produce fruit and that your fruit should remain, so that whatever you ask the Father in my name, he will give you. 17 “This is what I command you: Love one another.
+>John 15:12-17 “This is my command: Love one another as I have loved you. 13 No one has greater love than this: to lay down his life for his friends. 14 You are my friends if you do what I command you. 15 I do not call you servants anymore, because a servant doesn’t know what his master is doing. I have called you friends, because I have made known to you everything I have heard from my Father. 16 You did not choose me, but I chose you. I appointed you to go and produce fruit and that your fruit should remain, so that whatever you ask the Father in my name, he will give you. 17 “This is what I command you: Love one another.
 
 Just as you did not choose God initially, so also you don't get to go your own way. Think about that. If it was left up to us, we wouldn't choose God on our own power. But if we did, then we would be fooled into thinking that I can have God and something not-God. Jesus said you cannot do that.
 
->Matthew 6:24 (CSB) No one can serve two masters, since either he will hate one and love the other, or he will be devoted to one and despise the other. You cannot serve both God and money.
+>Matthew 6:24 No one can serve two masters, since either he will hate one and love the other, or he will be devoted to one and despise the other. You cannot serve both God and money.
 
->Exodus 20:1-6 (CSB) Then God spoke all these words:
+>Exodus 20:1-6 Then God spoke all these words:
 2 I am the LORD your God, who brought you out of the land of Egypt, out of the place of slavery.
 3 Do not have other gods besides me.
 4 Do not make an idol for yourself, whether in the shape of anything in the heavens above or on the earth below or in the waters under the earth. 5 Do not bow in worship to them, and do not serve them; for I, the LORD your God, am a jealous God, bringing the consequences of the fathers’ iniquity on the children to the third and fourth generations of those who hate me, 6 but showing faithful love to a thousand generations of those who love me and keep my commands.
@@ -48,15 +48,15 @@ If that is the case, what does that mean for our lives.
 
 ### Chosen by God: while you were still a sinner
 
->Ephesians 2:1-5 (CSB) And you were dead in your trespasses and sins 2 in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. 3 We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. 4 But God, who is rich in mercy, because of his great love that he had for us, 5 made us alive with Christ even though we were dead in trespasses. You are saved by grace!
+>Ephesians 2:1-5 And you were dead in your trespasses and sins 2 in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. 3 We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also. 4 But God, who is rich in mercy, because of his great love that he had for us, 5 made us alive with Christ even though we were dead in trespasses. You are saved by grace!
 
->Titus 3:3-7 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. 4 But when the kindness of God our Savior and his love for mankind appeared, 5 he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. 6 He poured out his Spirit on us abundantly through Jesus Christ our Savior 7 so that, having been justified by his grace, we may become heirs with the hope of eternal life.
+>Titus 3:3-7 For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another. 4 But when the kindness of God our Savior and his love for mankind appeared, 5 he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. 6 He poured out his Spirit on us abundantly through Jesus Christ our Savior 7 so that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
->Romans 5:8-9 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us. 9 How much more then, since we have now been justified by his blood, will we be saved through him from wrath.
+>Romans 5:8-9 But God proves his own love for us in that while we were still sinners, Christ died for us. 9 How much more then, since we have now been justified by his blood, will we be saved through him from wrath.
 
 Let's stick this all the way home. And not that Paul is acting alone here. The Holy Spirit inspires Paul to quote both Moses and Jeremiah in Romans 9:
 
->Romans 9:18-24 (CSB) So then, he has mercy on whom he wants to have mercy and he hardens whom he wants to harden. 19 You will say to me, therefore, “Why then does he still find fault? For who resists his will?” 20 On the contrary, who are you, a human being, to talk back to God? Will what is formed say to the one who formed it, “Why did you make me like this?” 21 Or has the potter no right over the clay, to make from the same lump one piece of pottery for honor and another for dishonor? 22 And what if God, wanting to display his wrath and to make his power known, endured with much patience objects of wrath prepared for destruction? 23 And what if he did this to make known the riches of his glory on objects of mercy that he prepared beforehand for glory—24 on us, the ones he also called, not only from the Jews but also from the Gentiles?
+>Romans 9:18-24 So then, he has mercy on whom he wants to have mercy and he hardens whom he wants to harden. 19 You will say to me, therefore, “Why then does he still find fault? For who resists his will?” 20 On the contrary, who are you, a human being, to talk back to God? Will what is formed say to the one who formed it, “Why did you make me like this?” 21 Or has the potter no right over the clay, to make from the same lump one piece of pottery for honor and another for dishonor? 22 And what if God, wanting to display his wrath and to make his power known, endured with much patience objects of wrath prepared for destruction? 23 And what if he did this to make known the riches of his glory on objects of mercy that he prepared beforehand for glory—24 on us, the ones he also called, not only from the Jews but also from the Gentiles?
 
 You might not be ready for that.
 
@@ -66,7 +66,7 @@ Or you can hear this and think this is the fragrance of life! If I finally obey 
 
 And then Paul responds to you by quote the prophet Hosea and Isaiah as he goes on in Romans 9:
 
->Romans 9:25-29 (CSB) As it also says in Hosea,
+>Romans 9:25-29 As it also says in Hosea,
 I will call Not My People, My People,
 and she who is Unloved, Beloved.
 26 And it will be in the place where they were told,
@@ -87,7 +87,7 @@ and we would have been made like Gomorrah.
 
 And if you are having problems with what Paul is saying, then you are definitely having issues with Jesus Christ:
 
->Matthew 13:24-30 (CSB) He presented another parable to them: “The kingdom of heaven may be compared to a man who sowed good seed in his field. 25 But while people were sleeping, his enemy came, sowed weeds among the wheat, and left. 26 When the plants sprouted and produced grain, then the weeds also appeared. 27 The landowner’s servants came to him and said, ‘Master, didn’t you sow good seed in your field? Then where did the weeds come from?
+>Matthew 13:24-30 He presented another parable to them: “The kingdom of heaven may be compared to a man who sowed good seed in his field. 25 But while people were sleeping, his enemy came, sowed weeds among the wheat, and left. 26 When the plants sprouted and produced grain, then the weeds also appeared. 27 The landowner’s servants came to him and said, ‘Master, didn’t you sow good seed in your field? Then where did the weeds come from?
 28 “‘An enemy did this,’ he told them.
 “‘So, do you want us to go and pull them up?’ the servants asked him.
 29 “‘No,’ he said. ‘When you pull up the weeds, you might also uproot the wheat with them. 30 Let both grow together until the harvest. At harvest time I’ll tell the reapers: Gather the weeds first and tie them in bundles to burn them, but collect the wheat in my barn.’”
@@ -126,7 +126,7 @@ You know what you should be doing?
 
 This is just not for pastors. This is for all ministers. This is for all the saints--you and me:
 
->Ephesians 4:11-13 (CSB) And he himself gave some to be apostles, some prophets, some evangelists, some pastors and teachers, 12 to equip the saints for the work of ministry, to build up the body of Christ, 13 until we all reach unity in the faith and in the knowledge of God’s Son, growing into maturity with a stature measured by Christ’s fullness.
+>Ephesians 4:11-13 And he himself gave some to be apostles, some prophets, some evangelists, some pastors and teachers, 12 to equip the saints for the work of ministry, to build up the body of Christ, 13 until we all reach unity in the faith and in the knowledge of God’s Son, growing into maturity with a stature measured by Christ’s fullness.
 
 Who does the work of the ministry? You and me.
 

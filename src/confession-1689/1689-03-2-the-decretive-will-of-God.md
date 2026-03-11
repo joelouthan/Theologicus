@@ -8,7 +8,7 @@
 
 ## The Text
 
->Isaiah 55:9-11 (CSB) “For as heaven is higher than earth,
+>Isaiah 55:9-11 “For as heaven is higher than earth,
 >so my ways are higher than your ways,
 >and my thoughts than your thoughts.
 >For just as rain and snow fall from heaven
@@ -30,15 +30,15 @@
 
 ### Although God knows whatsoever may or can come to pass, upon all supposed conditions
 
->Acts 15:15–18 (CSB) And the words of the prophets agree with this, as it is written: After these things I will return and rebuild David’s fallen tent. I will rebuild its ruins and set it up again, so that the rest of humanity may seek the Lord— even all the Gentiles who are called by my name— declares the Lord who makes these things known from long ago.
+>Acts 15:15–18 And the words of the prophets agree with this, as it is written: After these things I will return and rebuild David’s fallen tent. I will rebuild its ruins and set it up again, so that the rest of humanity may seek the Lord— even all the Gentiles who are called by my name— declares the Lord who makes these things known from long ago.
 
 God knows the end from the beginning because the Lord is in the end, the present as well as the beginning:
 
->Ezekiel 48:35 (CSB) The perimeter of the city will be six miles, and the name of the city from that day on will be The LORD Is There.”
+>Ezekiel 48:35 The perimeter of the city will be six miles, and the name of the city from that day on will be The LORD Is There.”
 
 And:
 
->Hebrews 1:1–2 (CSB) Long ago God spoke to our ancestors by the prophets at different times and in different ways. In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
+>Hebrews 1:1–2 Long ago God spoke to our ancestors by the prophets at different times and in different ways. In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
 
 Consider this.
 
@@ -52,17 +52,17 @@ Ephesians 2:1 says, "We are dead in our trespasses." Dead men do not make choice
 
 This is true for us and true for the Old Testament saints who were in the grave when Christ died. Did Christ make it possible for the dead saints of old to believe and trust in him?
 
->Romans 3:25–26 (CSB) God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.
+>Romans 3:25–26 God presented him as the mercy seat by his blood, through faith, to demonstrate his righteousness, because in his restraint God passed over the sins previously committed. God presented him to demonstrate his righteousness at the present time, so that he would be just and justify the one who has faith in Jesus.
 
 What looks like God passing over former sins was in fact God giving over his only begotten Son to live and die for his people. 
 
 ### yet had he not decreed anything, because he foresaw it as future, or as that which would come to pass upon such conditions.
 
->Romans 9:11–18 (CSB) For though her sons had not been born yet or done anything good or bad, so that God’s purpose according to election might stand—not from works but from the one who calls—she was told, The older will serve the younger. As it is written: I have loved Jacob, but I have hated Esau. What should we say then? Is there injustice with God? Absolutely not! For he tells Moses, I will show mercy to whom I will show mercy, and I will have compassion on whom I will have compassion. So then, it does not depend on human will or effort but on God who shows mercy. For the Scripture tells Pharaoh, I raised you up for this reason so that I may display my power in you and that my name may be proclaimed in the whole earth. So then, he has mercy on whom he wants to have mercy and he hardens whom he wants to harden.
+>Romans 9:11–18 For though her sons had not been born yet or done anything good or bad, so that God’s purpose according to election might stand—not from works but from the one who calls—she was told, The older will serve the younger. As it is written: I have loved Jacob, but I have hated Esau. What should we say then? Is there injustice with God? Absolutely not! For he tells Moses, I will show mercy to whom I will show mercy, and I will have compassion on whom I will have compassion. So then, it does not depend on human will or effort but on God who shows mercy. For the Scripture tells Pharaoh, I raised you up for this reason so that I may display my power in you and that my name may be proclaimed in the whole earth. So then, he has mercy on whom he wants to have mercy and he hardens whom he wants to harden.
 
 Before you could have sinned and before you could have done any good work, God had determine that he would save you through his Son by the power of the Holy Spirit.
 
->Romans 5:12 (CSB) Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.
+>Romans 5:12 Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned.
 
 All of our works, good or not, were infected by sin. They were not good because we had no good in us. 
 

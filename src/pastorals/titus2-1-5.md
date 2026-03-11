@@ -4,7 +4,7 @@
 
 ## The Text
 
->Titus 2:1–5 (CSB)  
+>Titus 2:1–5  
 ><sup> 1 </sup> But you are to proclaim things consistent with sound teaching. 
 >
 ><sup> 2 </sup> Older men are to be self-controlled, worthy of respect, sensible, and sound in faith, love, and endurance. 
@@ -19,7 +19,7 @@
 
 When I dwell on this passage in Titus, I wonder of the parallel to the first epistle by John:
 
->1 John 2:12–14 (CSB)  
+>1 John 2:12–14  
 ><sup> 12 </sup> I am writing to you, little children, since your sins have been forgiven on account of his name. 
 >
 ><sup> 13 </sup> I am writing to you, fathers, because you have come to know the one who is from the beginning. I am writing to you, young men, because you have conquered the evil one. 
@@ -36,13 +36,13 @@ This does not give young believers (age of faith) a free pass to continue on sin
 
 **Self-control** is an important but oft glossed over fruit and characterization of the Spirit:
 
->Galatians 5:22-23 (CSB) But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control. The law is not against such things.
+>Galatians 5:22-23 But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control. The law is not against such things.
 
->2 Timothy 1:7 (CSB) For God has not given us a spirit of fear, but one of power, love, and sound judgment.
+>2 Timothy 1:7 For God has not given us a spirit of fear, but one of power, love, and sound judgment.
 
 Again, can we be perfect? Absolutely not. (I do not care what those in Holiness movements claim.) But do we have self-control? Absolutely. And as time and grace goes by, you will grow because the promise of God that his children--the brothers and sisters of Christ--are going to be conformed to the image of Christ:
 
->Romans 8:29 (CSB) For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
+>Romans 8:29 For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
 
 And we know that all the promises of God are yes and amen.
 
@@ -52,7 +52,7 @@ And we know that all the promises of God are yes and amen.
 
 **sound in faith, love, and endurance** - That is it. That is the endgame. Paul echoes this at the end of 1 Corinthians 13:
 
->1 Corinthians 13:13 (CSB) Now these three remain: faith, hope, and love — but the greatest of these is love.
+>1 Corinthians 13:13 Now these three remain: faith, hope, and love — but the greatest of these is love.
 
 Let me put it this way: *coram Deo*.  In other words, we are to live as though we are living before the face of God because in fact, we do. But then we will stand before the King of kings to be judged by God in the face of God for the glory of God. For those who disbelieve and never repentant, they subject themselves to the wrath of the King forever. To those who believe and trust, they stand in the face of the God who love them and gave Himself up for them forever.
 
@@ -66,7 +66,7 @@ But the call to Christians--espcially to women--is to teach what is good. What i
 
 Like men, Christian women are marked by **self-controlled** -- which I will say is an oft forgotten fruit of the Spirit for some inane reason. As God called us holy because he is holy (1 Peter 1:15-16), we are to be **pure** in the sight of God. That purity is not what we do but what Christ did for us:
 
->2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+>2 Corinthians 5:21 He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
 But now that we are righteous before God, we get to be pure and holy.
 
@@ -74,33 +74,33 @@ But now that we are righteous before God, we get to be pure and holy.
 
 **kind** - Just like self-control has been mentioned so many times, how many times do you think we are called to be kind?
 
->1 Corinthians 13:4 (CSB)  
+>1 Corinthians 13:4  
 ><sup> 4 </sup> Love is patient, love is kind. Love does not envy, is not boastful, is not arrogant,
 >
->Ephesians 4:32 (CSB)  
+>Ephesians 4:32  
 ><sup> 32 </sup> And be kind and compassionate to one another, forgiving one another, just as God also forgave you in Christ.
 >
->Luke 6:35 (CSB)  
+>Luke 6:35  
 ><sup> 35 </sup> But love your enemies, do what is good, and lend, expecting nothing in return. Then your reward will be great, and you will be children of the Most High. For he is gracious to the ungrateful and evil.
 >
->Colossians 3:12–13 (CSB)  
+>Colossians 3:12–13  
 ><sup> 12 </sup> Therefore, as God’s chosen ones, holy and dearly loved, put on compassion, kindness, humility, gentleness, and patience, 
 >
 ><sup> 13 </sup> bearing with one another and forgiving one another if anyone has a grievance against another. Just as the Lord has forgiven you, so you are also to forgive.
 
->Proverbs 31:26 (CSB)  
+>Proverbs 31:26  
 ><sup> 26 </sup> Her mouth speaks wisdom, and loving instruction is on her tongue.
 
->Proverbs 19:17 (CSB)  
+>Proverbs 19:17  
 ><sup> 17 </sup> Kindness to the poor is a loan to the LORD, and he will give a reward to the lender.
 
->Galatians 6:10 (CSB)  
+>Galatians 6:10  
 ><sup> 10 </sup> Therefore, as we have opportunity, let us work for the good of all, especially for those who belong to the household of faith.
 
->1 John 3:18 (CSB)  
+>1 John 3:18  
 ><sup> 18 </sup> Little children, let us not love in word or speech, but in action and in truth.
 
->1 Peter 3:8–9 (CSB)  Finally, all of you be like-minded and sympathetic, love one another, and be compassionate and humble, not paying back evil for evil or insult for insult but, on the contrary, giving a blessing, since you were called for this, so that you may inherit a blessing.
+>1 Peter 3:8–9  Finally, all of you be like-minded and sympathetic, love one another, and be compassionate and humble, not paying back evil for evil or insult for insult but, on the contrary, giving a blessing, since you were called for this, so that you may inherit a blessing.
 
 Being kind is its own reward. If that is not enough, it is a clear command from God.
 
@@ -120,17 +120,17 @@ The hard complementarian argument wears me down because every time I am engaged 
 
 John expounds on this:
 
->John 15:12-17 (CSB) This is my command: Love one another as I have loved you. No one has greater love than this: to lay down his life for his friends. You are my friends if you do what I command you. I do not call you servants anymore, because a servant doesn’t know what his master is doing. I have called you friends, because I have made known to you everything I have heard from my Father. You did not choose me, but I chose you. I appointed you to go and produce fruit and that your fruit should remain, so that whatever you ask the Father in my name, he will give you.
+>John 15:12-17 This is my command: Love one another as I have loved you. No one has greater love than this: to lay down his life for his friends. You are my friends if you do what I command you. I do not call you servants anymore, because a servant doesn’t know what his master is doing. I have called you friends, because I have made known to you everything I have heard from my Father. You did not choose me, but I chose you. I appointed you to go and produce fruit and that your fruit should remain, so that whatever you ask the Father in my name, he will give you.
 >
 >“This is what I command you: Love one another.
 
 More so:
 
->1 John 4:7-8 (CSB) Dear friends, let us love one another, because love is from God, and everyone who loves has been born of God and knows God. The one who does not love does not know God, because God is love.
+>1 John 4:7-8 Dear friends, let us love one another, because love is from God, and everyone who loves has been born of God and knows God. The one who does not love does not know God, because God is love.
 
 And if the Parable of the Samaritan is any indication, that means we don't get to pick and choose who we show love to. We are love all for John goes on to say:
 
->1 John 4:9-11 (CSB) God’s love was revealed among us in this way: God sent his one and only Son into the world so that we might live through him. Love consists in this: not that we loved God, but that he loved us and sent his Son to be the atoning sacrifice for our sins. Dear friends, if God loved us in this way, we also must love one another.
+>1 John 4:9-11 God’s love was revealed among us in this way: God sent his one and only Son into the world so that we might live through him. Love consists in this: not that we loved God, but that he loved us and sent his Son to be the atoning sacrifice for our sins. Dear friends, if God loved us in this way, we also must love one another.
 
 The ESV rightly calls this atoning sacrifice, "the propitiation for our sins." If Christ died on the cross to save His people from their sins--if Christ loved us while we were yet sinners--then we must love one another.
 

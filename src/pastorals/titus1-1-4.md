@@ -4,7 +4,7 @@
 
 ## The Text
 
->Titus 1:1–4 (CSB)  
+>Titus 1:1–4  
 ><sup> 1  </sup>Paul, a servant of God and an apostle of Jesus Christ, for the faith of God’s elect and their knowledge of the truth that leads to godliness, 
 >
 ><sup> 2  </sup>in the hope of eternal life that God, who cannot lie, promised before time began. 
@@ -29,7 +29,7 @@ Too many people claim to know God because they were brought up in church as a ki
 
 Where have you heard that before? In the New Testament, you have heard it quoted twice by Paul and once by the author to the Hebrews--and the footnote would point you to Habakkuk 2:4.  
 
->Romans 1:17 (CSB) For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
+>Romans 1:17 For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
 
 It is in the gospel of God that the righteousness of God is revealed from faith given to us by God. We are the righteousness of God. Only in that precise fraction of a second do we live to God and for God and obey God and not a moment before.
 
@@ -61,7 +61,7 @@ And that comes from the preaching and proclaiming of His gospel
 
 ### Minister Like This: Know God Is Calling You
 
->Romans 10:9-17 (CSB) If you confess with your mouth, “Jesus is Lord,” and believe in your heart that God raised him from the dead, you will be saved. One believes with the heart, resulting in righteousness, and one confesses with the mouth, resulting in salvation. For the Scripture says, Everyone who believes on him will not be put to shame, since there is no distinction between Jew and Greek, because the same Lord of all richly blesses all who call on him. For everyone who calls on the name of the Lord will be saved.
+>Romans 10:9-17 If you confess with your mouth, “Jesus is Lord,” and believe in your heart that God raised him from the dead, you will be saved. One believes with the heart, resulting in righteousness, and one confesses with the mouth, resulting in salvation. For the Scripture says, Everyone who believes on him will not be put to shame, since there is no distinction between Jew and Greek, because the same Lord of all richly blesses all who call on him. For everyone who calls on the name of the Lord will be saved.
 > 
 >How, then, can they call on him they have not believed in? And how can they believe without hearing about him? And how can they hear without a preacher? And how can they preach unless they are sent? As it is written: How beautiful are the feet of those who bring good news. But not all obeyed the gospel. For Isaiah says, Lord, who has believed our message? So faith comes from what is heard, and what is heard comes through the message about Christ. 
 
@@ -73,7 +73,7 @@ Some of you know this good news and you believe God and you rejoice because he i
 
 Some of you hear this and respond like so many people who care more for the things on this earth rather than the absolute, just like the people who heard Paul preach at Areopagus:
 
->Acts 17:32 (CSB) When they heard about the resurrection of the dead, some began to ridicule him...
+>Acts 17:32 When they heard about the resurrection of the dead, some began to ridicule him...
 
 Or going on the off-chance you think I am of some entertainment to you like other people at Areopagus:
 
@@ -97,7 +97,7 @@ But you will get your way, and you will still not be happy, and the path behind 
 
 Don't wait for the end. Trust in God right now. Trust in Him. Look to His Son, Jesus Christ. All of us who are holding on to sin and things not God, Christ command us to do:
 
->Matthew 11:28-30 (CSB) “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
+>Matthew 11:28-30 “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
 
 Christ says, "Come, give me your soul crushing sin, your back-breaking self-righteousness, your demonic idols--and I will give you rest. I will give you peace. I will give you the faith you need to be saved. I will give you grace. I will give you peace."
 

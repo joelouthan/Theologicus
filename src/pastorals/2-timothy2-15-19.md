@@ -4,7 +4,7 @@
 
 ## The Text
 
->2 Timothy 2:15–19 (CSB)  
+>2 Timothy 2:15–19  
 ><sup>15</sup>Be diligent to present yourself to God as one approved, a worker who doesn’t need to be ashamed, correctly teaching the word of truth. 
 >
 ><sup>16</sup>Avoid irreverent and empty speech, since those who engage in it will produce even more godlessness, 
@@ -29,7 +29,7 @@ Not just for the pastors. The pushback, "Not everyone is a pastor or teacher." Y
 
 If you are raising up disciples, you must proclaim the good news. If you are constantly proclaiming the good news, you will find yourself raising up disciples. And if God be so good and gracious, you might see some of them be baptized because they will tell you:
 
->John 4"42 (CSB) “We no longer believe because of what you said, since we have heard for ourselves and know that this really is the Savior of the world.”
+>John 4"42 “We no longer believe because of what you said, since we have heard for ourselves and know that this really is the Savior of the world.”
 
 ><sup> 16 </sup> Avoid irreverent and empty speech, since those who engage in it will produce even more godlessness, <sup> 17 </sup> and their teaching will spread like gangrene. Hymenaeus and Philetus are among them. 
 
@@ -75,7 +75,7 @@ Listen to me, whatever the future may hold, believe and trust that God has you i
 
 You are facing tribulations. You are being weakening. It is not the people of the world--they are prisoners of war. It is not your political opponents. It is not woke people. It is not racists. It is not facists. It is not the insurrectionist. None of those people are your enemy. They cannot destroy you.
 
->Matthew 10:26-28 (CSB) “Therefore, don’t be afraid of them, since there is nothing covered that won’t be uncovered and nothing hidden that won’t be made known. 27 What I tell you in the dark, speak in the light. What you hear in a whisper, proclaim on the housetops. 28 Don’t fear those who kill the body but are not able to kill the soul; rather, fear him who is able to destroy both soul and body in hell.
+>Matthew 10:26-28 “Therefore, don’t be afraid of them, since there is nothing covered that won’t be uncovered and nothing hidden that won’t be made known. 27 What I tell you in the dark, speak in the light. What you hear in a whisper, proclaim on the housetops. 28 Don’t fear those who kill the body but are not able to kill the soul; rather, fear him who is able to destroy both soul and body in hell.
 
 We live in such a time when even self-proclaimed Christians live their lives with no fear of God whatsoever.
 

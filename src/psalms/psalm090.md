@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 90 (CSB)    
+>Psalm 90    
 > A prayer of Moses, the man of God. 
 >
 ><sup> 1  </sup>Lord, you have been our refuge in every generation. 

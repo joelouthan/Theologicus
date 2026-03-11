@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 23:6d (CSB)   all the days of my life
+>Psalm 23:6d   all the days of my life
 
 ## The Prayer
 

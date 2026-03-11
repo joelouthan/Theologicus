@@ -12,13 +12,13 @@
 >Matthew 6:12 and forgive us our debts,  
 >as we also have forgiven our debtors.
 >
->Matthew 6:14-15 (CSB) “For if you forgive others their offenses, your heavenly Father will forgive you as well. But if you don’t forgive others, your Father will not forgive your offenses.
+>Matthew 6:14-15 “For if you forgive others their offenses, your heavenly Father will forgive you as well. But if you don’t forgive others, your Father will not forgive your offenses.
 
 ## Forgive Us--Help Us to Forgive
 
 ### How can we forgive: God forgives and saves us
 
->Hebrews 8:10-12 (CSB) For this is the covenant  
+>Hebrews 8:10-12 For this is the covenant  
 >that I will make with the house of Israel  
 >after those days, says the Lord:  
 >I will put my laws into their minds  
@@ -38,7 +38,7 @@
 
 ### How can we forgive: God gives grace upon grace--we get to give grace upon grace
 
->Matthew 18:21-35 (CSB) Then Peter approached him and asked, “Lord, how many times must I forgive my brother or sister who sins against me? As many as seven times?”
+>Matthew 18:21-35 Then Peter approached him and asked, “Lord, how many times must I forgive my brother or sister who sins against me? As many as seven times?”
 >
 >22 “I tell you, not as many as seven,” Jesus replied, “but seventy times seven.
 
@@ -54,7 +54,7 @@ His brothers were so afraid that Joseph, being the most powerful person in the l
 
 But look at how Joseph responds:
 
->Genesis 50:19-21 (CSB) But Joseph said to them, “Don’t be afraid. Am I in the place of God? 20 You planned evil against me; God planned it for good to bring about the present result—the survival of many people. 21 Therefore don’t be afraid. I will take care of you and your children.” And he comforted them and spoke kindly to them.
+>Genesis 50:19-21 But Joseph said to them, “Don’t be afraid. Am I in the place of God? 20 You planned evil against me; God planned it for good to bring about the present result—the survival of many people. 21 Therefore don’t be afraid. I will take care of you and your children.” And he comforted them and spoke kindly to them.
 
 ###  How can we forgive: we are not defined and identified by the sins committed against us
 
@@ -62,7 +62,7 @@ Jesus Christ, he who knew no sin who became sin for us, who all the Jews and all
 
 But he never not once exacted his rightful wrath on anyone. Instead, look at what he does.
 
->Luke 23:32-34 (CSB) Two others—criminals—were also led away to be executed with him. When they arrived at the place called The Skull, they crucified him there, along with the criminals, one on the right and one on the left. Then Jesus said, “Father, forgive them, because they do not know what they are doing.” And they divided his clothes and cast lots.
+>Luke 23:32-34 Two others—criminals—were also led away to be executed with him. When they arrived at the place called The Skull, they crucified him there, along with the criminals, one on the right and one on the left. Then Jesus said, “Father, forgive them, because they do not know what they are doing.” And they divided his clothes and cast lots.
 
 I can remember for most of my life how I would so easily be able kill my dad with my bare hands because he raped and molested me. I wanted to kill him because he shamed me and humiliated me and made me not a whole person. I spent my entire life hoping to be able to take vengeance into my own hands. I hated my dad. But God, being rich in mercy, saved me.
 

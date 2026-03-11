@@ -46,7 +46,7 @@ Our God will stop at nothing to rescue his people from their sins.
 
 Here is the gospel promise.
 
-## The Gospel
+## His Gospel
 
 ### God will rescue those whom he declares righteous
 

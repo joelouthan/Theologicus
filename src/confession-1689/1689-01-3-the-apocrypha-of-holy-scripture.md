@@ -8,7 +8,7 @@
 
 ## The Text
 
->Luke 24:25-27 (CSB) He said to them, “How foolish you are, and how slow to believe all that the prophets have spoken! Wasn’t it necessary for the Messiah to suffer these things and enter into his glory?” Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
+>Luke 24:25-27 He said to them, “How foolish you are, and how slow to believe all that the prophets have spoken! Wasn’t it necessary for the Messiah to suffer these things and enter into his glory?” Then beginning with Moses and all the Prophets, he interpreted for them the things concerning himself in all the Scriptures.
 
 ## The Chapter
 
@@ -45,10 +45,10 @@ Yet, time and time again, God will say one thing and mankind will take it upon t
 
 What was Christ's response to the weight of sin? It wasn't to do more, better, faster. No.
 
->Matthew 11:28-30 (CSB) “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
+>Matthew 11:28-30 “Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
 
 We don't need to seek out other good news outside the revelation of God in Christ Jesus because there is nowhere else. If you don't believe the word of God, that is one thing. And I pray that you believe and obey Christ. But don't say you are a Christian and then keep looking for something other than the simple gospel of the Lord Jesus Christ.
 
 Repent, for the kingdom of God is now.
 
->Galatians 1:6-10 (CSB) I am amazed that you are so quickly turning away from him who called you by the grace of Christ and are turning to a different gospel— not that there is another gospel, but there are some who are troubling you and want to distort the gospel of Christ. But even if we or an angel from heaven should preach to you a gospel contrary to what we have preached to you, a curse be on him! As we have said before, I now say again: If anyone is preaching to you a gospel contrary to what you received, a curse be on him! For am I now trying to persuade people, or God? Or am I striving to please people? If I were still trying to please people, I would not be a servant of Christ.
+>Galatians 1:6-10 I am amazed that you are so quickly turning away from him who called you by the grace of Christ and are turning to a different gospel— not that there is another gospel, but there are some who are troubling you and want to distort the gospel of Christ. But even if we or an angel from heaven should preach to you a gospel contrary to what we have preached to you, a curse be on him! As we have said before, I now say again: If anyone is preaching to you a gospel contrary to what you received, a curse be on him! For am I now trying to persuade people, or God? Or am I striving to please people? If I were still trying to please people, I would not be a servant of Christ.

@@ -18,35 +18,35 @@ To the Christian, it is a full-blown out description of Christ as the path of li
 
 For here is love:
 
->Genesis 3:15 (CSB) I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
+>Genesis 3:15 I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
 
 And here is love: 
 
->Matthew 1:21 (CSB) She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
+>Matthew 1:21 She will give birth to a son, and you are to name him Jesus, because he will save his people from their sins.”
 
 And here is love:
 
->2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+>2 Corinthians 5:21 He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
 And here is love:
 
->Ezekiel 11:19–20 (CSB) I will give them integrity of heart and put a new spirit within them; I will remove their heart of stone from their bodies and give them a heart of flesh, so that they will follow my statutes, keep my ordinances, and practice them. They will be my people, and I will be their God.
+>Ezekiel 11:19–20 I will give them integrity of heart and put a new spirit within them; I will remove their heart of stone from their bodies and give them a heart of flesh, so that they will follow my statutes, keep my ordinances, and practice them. They will be my people, and I will be their God.
 
 And here is love:
 
->Romans 9:25–26 (CSB) As it also says in Hosea, I will call Not my People, My People, and she who is Unloved, Beloved. And it will be in the place where they were told, you are not my people, there they will be called sons of the living God.
+>Romans 9:25–26 As it also says in Hosea, I will call Not my People, My People, and she who is Unloved, Beloved. And it will be in the place where they were told, you are not my people, there they will be called sons of the living God.
 
 And here is love:
 
->John 3:16 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
+>John 3:16 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life.
 
 And here is love:
 
->Romans 8:1 (CSB) Therefore, there is now no condemnation for those in Christ Jesus,
+>Romans 8:1 Therefore, there is now no condemnation for those in Christ Jesus,
 
 And here is love:
 
->Romans 8:38–39 (CSB) For I am persuaded that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
+>Romans 8:38–39 For I am persuaded that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
 
 To the non-believer who denies the Triune God, this book displays the empirical evidence that you have been seeking that, yes, God does exists and He is not far. May the Holy Spirit show you the power of God by which you can be saved if you would only trust in Him!
 
@@ -58,4 +58,4 @@ Among my other favorite books, I cannot recommend any one of them to every singl
 
 Likewise, most of the modern Christian self-help books have fallen short in displaying the marvelous and weighty beauty and majesty of our sweet Savior, King and Lord. Those self-help books are just that: about self, in vain and encourages no one. This book is godly encouragement that is rooted in the very breath of God himself.
 
->2 Timothy 3:16–17 (CSB) All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.
+>2 Timothy 3:16–17 All Scripture is inspired by God and is profitable for teaching, for rebuking, for correcting, for training in righteousness, so that the man of God may be complete, equipped for every good work.

@@ -8,7 +8,7 @@
 
 ## The Text
 
->2 Corinthians 6:14–15 (CSB) Do not be yoked together with those who do not believe. For what partnership is there between righteousness and lawlessness? Or what fellowship does light have with darkness? What agreement does Christ have with Belial? Or what does a believer have in common with an unbeliever?
+>2 Corinthians 6:14–15 Do not be yoked together with those who do not believe. For what partnership is there between righteousness and lawlessness? Or what fellowship does light have with darkness? What agreement does Christ have with Belial? Or what does a believer have in common with an unbeliever?
 
 ## The Chapter
 
@@ -16,9 +16,9 @@
 
 ## The Confession
 
->1 Corinthians 11:29 (CSB) For whoever eats and drinks without recognizing the body, eats and drinks judgment on himself.
+>1 Corinthians 11:29 For whoever eats and drinks without recognizing the body, eats and drinks judgment on himself.
 
->Matthew 7:6 (CSB) Don’t give what is holy to dogs or toss your pearls before pigs, or they will trample them under their feet, turn, and tear you to pieces.
+>Matthew 7:6 Don’t give what is holy to dogs or toss your pearls before pigs, or they will trample them under their feet, turn, and tear you to pieces.
 
 Unbelievers, why do you want this bread and wine? It is a tiny meal. It will not sustain you. It will not give you life. It will not make you right with God. It will not cleansed you of your unrighteousness so you are free to go back to sinning. You will not save you so you can go back being afraid of the wrath and judgment of the Holy God!
 
@@ -36,13 +36,13 @@ Jesus did not sin. Born of a woman but never sinned. That goes beyond just doing
 
 In his sinless perfection, he is the perfect sacrifice. For:
 
->Hebrews 9:22 (CSB) According to the law almost everything is purified with blood, and without the shedding of blood there is no forgiveness.
+>Hebrews 9:22 According to the law almost everything is purified with blood, and without the shedding of blood there is no forgiveness.
 
 There must be a perfect sacrifice to God to atone for the sins of all of his people to wash them pure and clean. Christ is that perfect sacrifice. He is the Worthy Lamb of God that takes away the sins of the world.
 
 And we know that the Christ was some madman preacher who claimed to be the Son of God. He was the actual righteous Son of God:
 
->Romans 1:1-4 (CSB) Paul, a servant of Christ Jesus, called as an apostle and set apart for the gospel of God — which he promised beforehand through his prophets in the Holy Scriptures — concerning his Son, Jesus Christ our Lord, who was a descendant of David according to the flesh and was appointed to be the powerful Son of God according to the Spirit of holiness **by the resurrection of the dead**.
+>Romans 1:1-4 Paul, a servant of Christ Jesus, called as an apostle and set apart for the gospel of God — which he promised beforehand through his prophets in the Holy Scriptures — concerning his Son, Jesus Christ our Lord, who was a descendant of David according to the flesh and was appointed to be the powerful Son of God according to the Spirit of holiness **by the resurrection of the dead**.
 
 Christ is the only Messiah whose tomb is empty. It is empty because he is alive. Only dead people fill tombs. Our Christ is alive and well and sits at the right hand of God the Father Almighty which in the future he will come again to judge the living and the dead.
 

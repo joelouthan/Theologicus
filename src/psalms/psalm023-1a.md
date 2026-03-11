@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 23:1a (CSB)   The LORD is my shepherd
+>Psalm 23:1a   The LORD is my shepherd
 
 ## The Prayer
 

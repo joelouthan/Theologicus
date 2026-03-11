@@ -14,17 +14,17 @@ We have fully established that we are not fully alive despite being biologically
 
 And just being dead is not enough:
 
->Ephesians 2:1-3 (CSB) And you were dead in your trespasses and sins 2 in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. 3 We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
+>Ephesians 2:1-3 And you were dead in your trespasses and sins 2 in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. 3 We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
 
 And just when we think that Paul is being too critical or even too harsh, look at what the Apostle John has to say :
 
->John 3:36 (CSB) The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
+>John 3:36 The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 
 So you see, by being born and apart from God, we are doubly both dead in our trespasses and by nature children of the wrath of God.
 
 Paul explains this in the best way by comparing our original father, Adam, and the second Adam, Jesus Christ:
 
->Romans 5:12–21 (CSB)  
+>Romans 5:12–21  
 ><sup>12</sup> Therefore, just as sin entered the world through one man, and death through sin, in this way death spread to all people, because all sinned. 
 >
 ><sup>13</sup> In fact, sin was in the world before the law, but sin is not charged to a person’s account when there is no law. 
@@ -75,7 +75,7 @@ My friend and I started shaking the word of God down to its core teachings (doct
 
 To make a long story short, I contended that we must first have a new heart in order to choose God, have faith in Christ, and obey His commands by the power of the Holy Spirit. I argued that without God, we cannot choose God. I pointed to this verse (backed by John 1:12-13)
 
->1 John 5:1 (CSB) Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father also loves the one born of him.
+>1 John 5:1 Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father also loves the one born of him.
 
 In other words:
 
@@ -90,23 +90,23 @@ Here is the distinction God makes.
 
 Calls them goats and sheep:
 
->Matthew 25:31-34 (CSB) "When the Son of Man comes in his glory, and all the angels with him, then he will sit on his glorious throne. All the nations will be gathered before him, and he will separate them one from another, just as a shepherd separates the sheep from the goats. He will put the sheep on his right and the goats on the left. Then the King will say to those on his right, ‘Come, you who are blessed by my Father; inherit the kingdom prepared for you from the foundation of the world.
+>Matthew 25:31-34 "When the Son of Man comes in his glory, and all the angels with him, then he will sit on his glorious throne. All the nations will be gathered before him, and he will separate them one from another, just as a shepherd separates the sheep from the goats. He will put the sheep on his right and the goats on the left. Then the King will say to those on his right, ‘Come, you who are blessed by my Father; inherit the kingdom prepared for you from the foundation of the world.
 
 Chaff and wheat:
 
->Matthew 3:12 (CSB) His winnowing shovel is in his hand, and he will clear his threshing floor and gather his wheat into the barn. But the chaff he will burn with fire that never goes out.”
+>Matthew 3:12 His winnowing shovel is in his hand, and he will clear his threshing floor and gather his wheat into the barn. But the chaff he will burn with fire that never goes out.”
 
 Weeds and wheat:
 
->Matthew 13:29-30 (CSB) "‘No,’ he said. ‘When you pull up the weeds, you might also uproot the wheat with them. Let both grow together until the harvest. At harvest time I’ll tell the reapers: Gather the weeds first and tie them in bundles to burn them, but collect the wheat in my barn.’”
+>Matthew 13:29-30 "‘No,’ he said. ‘When you pull up the weeds, you might also uproot the wheat with them. Let both grow together until the harvest. At harvest time I’ll tell the reapers: Gather the weeds first and tie them in bundles to burn them, but collect the wheat in my barn.’”
 
 Many of those who are on the wide road of destruction versus those who go through the narrow door of salvation:
 
->Matthew 7:13-14 (CSB) "Enter through the narrow gate. For the gate is wide and the road broad that leads to destruction, and there are many who go through it. How narrow is the gate and difficult the road that leads to life, and few find it.
+>Matthew 7:13-14 "Enter through the narrow gate. For the gate is wide and the road broad that leads to destruction, and there are many who go through it. How narrow is the gate and difficult the road that leads to life, and few find it.
 
 Those who set their mind on the flesh versus those who set their mind on the Spirit:
 
->Romans 8:1-11 (CSB) Therefore, there is now no condemnation for those in Christ Jesus, because the law of the Spirit of life in Christ Jesus has set you free from the law of sin and death. For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering, in order that the law’s requirement would be fulfilled in us who do not walk according to the flesh but according to the Spirit. For those who live according to the flesh have their minds set on the things of the flesh, but those who live according to the Spirit have their minds set on the things of the Spirit. Now the mindset of the flesh is death, but the mindset of the Spirit is life and peace. The mindset of the flesh is hostile to God because it does not submit to God’s law. Indeed, it is unable to do so. Those who are in the flesh cannot please God. You, however, are not in the flesh, but in the Spirit, if indeed the Spirit of God lives in you. If anyone does not have the Spirit of Christ, he does not belong to him. Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness. And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
+>Romans 8:1-11 Therefore, there is now no condemnation for those in Christ Jesus, because the law of the Spirit of life in Christ Jesus has set you free from the law of sin and death. For what the law could not do since it was weakened by the flesh, God did. He condemned sin in the flesh by sending his own Son in the likeness of sinful flesh as a sin offering, in order that the law’s requirement would be fulfilled in us who do not walk according to the flesh but according to the Spirit. For those who live according to the flesh have their minds set on the things of the flesh, but those who live according to the Spirit have their minds set on the things of the Spirit. Now the mindset of the flesh is death, but the mindset of the Spirit is life and peace. The mindset of the flesh is hostile to God because it does not submit to God’s law. Indeed, it is unable to do so. Those who are in the flesh cannot please God. You, however, are not in the flesh, but in the Spirit, if indeed the Spirit of God lives in you. If anyone does not have the Spirit of Christ, he does not belong to him. Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness. And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
 
 A life lived by absolutes is wholly not recommended. It is only where God makes clear distinctions between one way and the next that we can be sure that there is no in-between.
 
@@ -118,9 +118,9 @@ If we are saved by God, then God is our Father.
 
 And if God is our Father, God absolutely promises we will look like His Son (and God does not break promises).
 
->Romans 8:29 (CSB) For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
+>Romans 8:29 For those he foreknew he also predestined to be conformed to the image of his Son, so that he would be the firstborn among many brothers and sisters.
 
->Hebrews 12:3–11 (CSB)  
+>Hebrews 12:3–11  
 ><sup>3</sup> For consider him who endured such hostility from sinners against himself, so that you won’t grow weary and give up. 
 >
 ><sup>4</sup> In struggling against sin, you have not yet resisted to the point of shedding your blood. 
@@ -141,24 +141,24 @@ And if God is our Father, God absolutely promises we will look like His Son (and
 
 And if God is our Father, we will not stand before Him in our own defense as though we could do so in our own self-righteousness. No! God himself bears witness with our witness that we belong to Him.
 
->Matthew 7:21–23 (CSB)  
+>Matthew 7:21–23  
 ><sup>21</sup> “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father in heaven. 
 >
 ><sup>22</sup> On that day many will say to me, ‘Lord, Lord, didn’t we prophesy in your name, drive out demons in your name, and do many miracles in your name?’ 
 >
 ><sup>23</sup> Then I will announce to them, ‘I never knew you. Depart from me, you lawbreakers!’
 
->Romans 8:16 (CSB) The Spirit himself testifies together with our spirit that we are God’s children,
+>Romans 8:16 The Spirit himself testifies together with our spirit that we are God’s children,
 
 And then God is our Father, and the Holy Spirit of adoption is our witness, then it stands to reason that Christ is our Eldest Brother. If that is the case, we are then co-heirs with He who is heir to all things.
 
->Romans 8:17 (CSB) and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
+>Romans 8:17 and if children, also heirs—heirs of God and coheirs with Christ—if indeed we suffer with him so that we may also be glorified with him.
 
->Hebrews 1:1-2 (CSB) Long ago God spoke to our ancestors by the prophets at different times and in different ways. In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
+>Hebrews 1:1-2 Long ago God spoke to our ancestors by the prophets at different times and in different ways. In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
 
 And to that end, you believe and trust in God, then the Father of Christ is your Father. We are His sons forevermore because a Perfect Father never loses his kids.
 
->John 10:28-30 (CSB) I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
+>John 10:28-30 I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
 
 In some states, when a child is adopted, the law ensures that the adopted child receives an inheritance, no matter what (assuming there is an inheritance to leave to the child), even if the natural-born children are left out of the will. But even still, sometimes adoptive kids can feel like second-class family members in their own home; never mind the reality of not being with their original parents.
 
@@ -166,7 +166,7 @@ But here’s why adoption must be rightly understood in the Bible. By birth, we 
 
 Christ takes it even a step further:
 
->John 8:39–47 (CSB)  
+>John 8:39–47  
 ><sup>39</sup> “Our father is Abraham,” they replied. “If you were Abraham’s children,” Jesus told them, “you would do what Abraham did. 
 >
 ><sup>40</sup> But now you are trying to kill me, a man who has told you the truth that I heard from God. Abraham did not do this. 

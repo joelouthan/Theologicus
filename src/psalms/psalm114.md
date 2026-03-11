@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 114 (CSB)  
+>Psalm 114  
 ><sup>1</sup> When Israel came out of Egypt— the house of Jacob from a people who spoke a foreign language— 
 >
 ><sup>2</sup> Judah became his sanctuary, Israel, his dominion. 

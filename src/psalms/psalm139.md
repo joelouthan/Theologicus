@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 139 (CSB)  
+>Psalm 139  
 ><sup></sup> For the choir director. A psalm of David. 
 >
 ><sup>1</sup> LORD, you have searched me and known me. 

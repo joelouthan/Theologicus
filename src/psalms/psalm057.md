@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 57 (CSB)  
+>Psalm 57  
 ><sup></sup> For the choir director: “Do Not Destroy.” A Miktam of David. When he fled before Saul into the cave. 
 >
 ><sup>1</sup> Be gracious to me, God, be gracious to me, for I take refuge in you. I will seek refuge in the shadow of your wings until danger passes. 

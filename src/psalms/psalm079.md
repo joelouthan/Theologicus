@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 79 (CSB)  
+>Psalm 79  
 ><sup></sup> A psalm of Asaph. 
 >
 ><sup>1</sup> God, the nations have invaded your inheritance, desecrated your holy temple, and turned Jerusalem into ruins. 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 46 (CSB)  
+>Psalm 46  
 ><sup></sup> For the choir director. A song of the sons of Korah. According to Alamoth. 
 >
 ><sup>1</sup> God is our refuge and strength, a helper who is always found in times of trouble. 

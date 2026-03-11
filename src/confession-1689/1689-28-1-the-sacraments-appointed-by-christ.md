@@ -8,9 +8,9 @@
 
 ## The Text
 
->Matthew 28:19–20 (CSB) Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”
+>Matthew 28:19–20 Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”
 
->1 Corinthians 11:26 (CSB) For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes.
+>1 Corinthians 11:26 For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes.
 
 ## The Chapter
 
@@ -30,7 +30,7 @@ But what does the church do?
 
 Preach Christ and him crucified:
 
->1 Corinthians 1:21–23 (CSB) For since, in God’s wisdom, the world did not know God through wisdom, God was pleased to save those who believe through the foolishness of what is preached. For the Jews ask for signs and the Greeks seek wisdom, but we preach Christ crucified, a stumbling block to the Jews and foolishness to the Gentiles.
+>1 Corinthians 1:21–23 For since, in God’s wisdom, the world did not know God through wisdom, God was pleased to save those who believe through the foolishness of what is preached. For the Jews ask for signs and the Greeks seek wisdom, but we preach Christ crucified, a stumbling block to the Jews and foolishness to the Gentiles.
 
 The world wants us to do these things. Other good intended believers want us to do certain things. But minister are called to preached the word of God.
 
@@ -38,11 +38,11 @@ And I said there were three things total. Here are the other two:
 
 Baptize:
 
->Matthew 28:19–20 (CSB) Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”
+>Matthew 28:19–20 Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age.”
 
 Communion:
 
->1 Corinthians 11:26 (CSB) For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes.
+>1 Corinthians 11:26 For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes.
 
 Too simple? Maybe. But these are the command of Christ for his church. 
 

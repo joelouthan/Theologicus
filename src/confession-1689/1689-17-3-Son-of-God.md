@@ -8,7 +8,7 @@
 
 ## The Text
 
->John 21:15–17 (CSB)  
+>John 21:15–17  
 ><sup>15</sup> When they had eaten breakfast, Jesus asked Simon Peter, “Simon, son of John, do you love me more than these?” “Yes, Lord,” he said to him, “you know that I love you.” “Feed my lambs,” he told him. 
 >
 ><sup>16</sup> A second time he asked him, “Simon, son of John, do you love me?” “Yes, Lord,” he said to him, “you know that I love you.” “Shepherd my sheep,” he told him. 
@@ -23,7 +23,7 @@
 
 ### Christ Saves: And though they may, through the temptation of Satan and of the world, the prevalency of corruption remaining in them, and the neglect of means of their preservation, fall into grievous sins, and for a time continue therein
 
->Matthew 26:70–74 (CSB) But he denied it in front of everyone: “I don’t know what you’re talking about.” When he had gone out to the gateway, another woman saw him and told those who were there, “This man was with Jesus the Nazarene!” And again he denied it with an oath: “I don’t know the man!” After a little while those standing there approached and said to Peter, “You really are one of them, since even your accent gives you away.” Then he started to curse and to swear with an oath, “I don’t know the man!” Immediately a rooster crowed,
+>Matthew 26:70–74 But he denied it in front of everyone: “I don’t know what you’re talking about.” When he had gone out to the gateway, another woman saw him and told those who were there, “This man was with Jesus the Nazarene!” And again he denied it with an oath: “I don’t know the man!” After a little while those standing there approached and said to Peter, “You really are one of them, since even your accent gives you away.” Then he started to curse and to swear with an oath, “I don’t know the man!” Immediately a rooster crowed,
 
 Do I even need to read the Bible to you? Hebrews 11 gives us the "Hall of Fame of Faith" because they were so perfect in their walk with God.
 
@@ -49,39 +49,39 @@ Murder someone like Moses?
 
 Any of us a prostitute like Rahab?
 
->Hebrews 11:32-34 (CSB) And what more can I say? Time is too short for me to tell about Gideon, Barak, Samson, Jephthah, David, Samuel, and the prophets, who by faith conquered kingdoms, administered justice, obtained promises, shut the mouths of lions, quenched the raging of fire, escaped the edge of the sword, gained strength in weakness, became mighty in battle, and put foreign armies to flight.
+>Hebrews 11:32-34 And what more can I say? Time is too short for me to tell about Gideon, Barak, Samson, Jephthah, David, Samuel, and the prophets, who by faith conquered kingdoms, administered justice, obtained promises, shut the mouths of lions, quenched the raging of fire, escaped the edge of the sword, gained strength in weakness, became mighty in battle, and put foreign armies to flight.
 
 ### Christ Saves: whereby they incur God's displeasure and grieve his Holy Spirit
 
->Isaiah 64:5–9 (CSB) You welcome the one who joyfully does what is right; they remember you in your ways. But we have sinned, and you were angry. How can we be saved if we remain in our sins? All of us have become like something unclean, and all our righteous acts are like a polluted garment; all of us wither like a leaf, and our iniquities carry us away like the wind. No one calls on your name, striving to take hold of you. For you have hidden your face from us and made us melt because of our iniquity. Yet LORD, you are our Father; we are the clay, and you are our potter; we all are the work of your hands. LORD, do not be terribly angry or remember our iniquity forever. Please look—all of us are your people!
+>Isaiah 64:5–9 You welcome the one who joyfully does what is right; they remember you in your ways. But we have sinned, and you were angry. How can we be saved if we remain in our sins? All of us have become like something unclean, and all our righteous acts are like a polluted garment; all of us wither like a leaf, and our iniquities carry us away like the wind. No one calls on your name, striving to take hold of you. For you have hidden your face from us and made us melt because of our iniquity. Yet LORD, you are our Father; we are the clay, and you are our potter; we all are the work of your hands. LORD, do not be terribly angry or remember our iniquity forever. Please look—all of us are your people!
 
->Ephesians 4:30 (CSB) And don’t grieve God’s Holy Spirit. You were sealed by him for the day of redemption.
+>Ephesians 4:30 And don’t grieve God’s Holy Spirit. You were sealed by him for the day of redemption.
 
 Every person born of Adam have sinned not just a little bit but grievously. The scale of the holiness of God is infinite. To sin damns us to hell. We have grieved the Holy Spirit because God is working at us and in us to his will and good pleasure. We have grieved the Holy Spirit because we have not been obedient to the will of God.
 
 ### Christ Saves: come to have their graces and comforts impaired
 
->Psalm 51:10–12 (CSB) God, create a clean heart for me and renew a steadfast spirit within me. Do not banish me from your presence or take your Holy Spirit from me. Restore the joy of your salvation to me, and sustain me by giving me a willing spirit.
+>Psalm 51:10–12 God, create a clean heart for me and renew a steadfast spirit within me. Do not banish me from your presence or take your Holy Spirit from me. Restore the joy of your salvation to me, and sustain me by giving me a willing spirit.
 
 We are broken! We are fractured. We are not whole. We are born alive. There is no spirit within us at the time of our birth that sustains us and takes us all the way home to be with the Father. 
 
->Ephesians 2:1-3 (CSB) And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
+>Ephesians 2:1-3 And you were dead in your trespasses and sins in which you previously walked according to the ways of this world, according to the ruler of the power of the air, the spirit now working in the disobedient. We too all previously lived among them in our fleshly desires, carrying out the inclinations of our flesh and thoughts, and we were by nature children under wrath as the others were also.
 
->Titus 3:3 (CSB) For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
+>Titus 3:3 For we too were once foolish, disobedient, deceived, enslaved by various passions and pleasures, living in malice and envy, hateful, detesting one another.
 
 ### Christ Saves: have their hearts hardened, and their consciences wounded
 
->Psalm 32:3–4 (CSB) When I kept silent, my bones became brittle from my groaning all day long. For day and night your hand was heavy on me; my strength was drained as in the summer’s heat. Selah
+>Psalm 32:3–4 When I kept silent, my bones became brittle from my groaning all day long. For day and night your hand was heavy on me; my strength was drained as in the summer’s heat. Selah
 
->Psalm 73:21–22 (CSB) When I became embittered and my innermost being was wounded, I was stupid and didn’t understand; I was an unthinking animal toward you.
+>Psalm 73:21–22 When I became embittered and my innermost being was wounded, I was stupid and didn’t understand; I was an unthinking animal toward you.
 
 ### Christ Saves: hurt and scandalize others, and bring temporal judgments upon themselves
 
->2 Samuel 12:14 (CSB) However, because you treated the LORD with such contempt in this matter, the son born to you will die.”
+>2 Samuel 12:14 However, because you treated the LORD with such contempt in this matter, the son born to you will die.”
 
 ### Christ Saves: yet shall they renew their repentance and be preserved through faith in Christ Jesus to the end
 
->Luke 22:32–62 (CSB)  
+>Luke 22:32–62  
 ><sup>32</sup> But I have prayed for you that your faith may not fail. And you, when you have turned back, strengthen your brothers.” 
 >
 ><sup>33</sup> “Lord,” he told him, “I’m ready to go with you both to prison and to death.” 
@@ -148,7 +148,7 @@ How is the Christ going to respond to Peter after he denied the Son of God three
 
 If this where the story stopped and we just had this much of the Bible--Old Testament plus Matthew, Mark, Luke to chapter 22, how would I know this was going to work out just based on the Old Testament?
 
->Psalm 103:8–20 (CSB)  
+>Psalm 103:8–20  
 ><sup>8</sup> The LORD is compassionate and gracious, slow to anger and abounding in faithful love. 
 >
 ><sup>9</sup> He will not always accuse us or be angry forever. 
@@ -179,7 +179,7 @@ God is compassionate for us. God is merciful to us. God has lavished his grace u
 
 How does God respond to us?
 
->Romans 5:8 (CSB) But God proves his own love for us in that while we were still sinners, Christ died for us.
+>Romans 5:8 But God proves his own love for us in that while we were still sinners, Christ died for us.
 
 We were ungodly and wicked sinner. Christ came to die for us so that we would be saved to him forever.
 
@@ -187,7 +187,7 @@ God does this. Not you. Not your big faith. Not your little mud kingdom. Not wha
 
 God alone has the right amount of power to save us and take us home. How much power does it take to save us? Almighty power.
 
->Romans 1:16 (CSB) For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek.
+>Romans 1:16 For I am not ashamed of the gospel, because it is the power of God for salvation to everyone who believes, first to the Jew, and also to the Greek.
 
 The almighty, infinite power of God to save us from our sins is the gospel and it is the good news that Jesus Christ has finished the work of saving us from our sins.
 

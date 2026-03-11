@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 2 (CSB)  
+>Psalm 2  
 ><sup>1</sup> Why do the nations rage and the peoples plot in vain? 
 >
 ><sup>2</sup> The kings of the earth take their stand, and the rulers conspire together against the LORD and his Anointed One: 

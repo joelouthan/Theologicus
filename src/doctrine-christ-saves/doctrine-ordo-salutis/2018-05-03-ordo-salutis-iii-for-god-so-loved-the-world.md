@@ -24,7 +24,7 @@ Beyond the authoritative Scriptures, each single attribute has had countless boo
 
 Yet, when I read the Bible, I am truly confident of who God is for God is love. The Bible overwhelmingly states this to be so. To read the Bible, surely you can walk away from knowing that God is love.
 
->1 John 4:8 (CSB) The one who does not love does not know God, because God is love.
+>1 John 4:8 The one who does not love does not know God, because God is love.
 
 ## But what is love?
 
@@ -76,7 +76,7 @@ God had nothing to prove to Pharaoh, Egypt, the Israelites, the Prophets or even
 
 He brings down the ten plagues because to every single child of wrath who has ever walked the earth and will ever walk the earth, God relentlessly, passionately, lovingly pursues even to all of those who have exchanged God for themselves as a god.
 
->Romans 9:17-18 (CSB) For the Scripture tells Pharaoh, I raised you up for this reason so that I may display my power in you and that my name may be proclaimed in the whole earth. <sup> 18 </sup>So then, he has mercy on whom he wants to have mercy and he hardens whom he wants to harden.
+>Romans 9:17-18 For the Scripture tells Pharaoh, I raised you up for this reason so that I may display my power in you and that my name may be proclaimed in the whole earth. <sup> 18 </sup>So then, he has mercy on whom he wants to have mercy and he hardens whom he wants to harden.
 
 For His people, he has mercy. To others including Pharaoh, His love and pursuit only serve to harden their hearts.
 
@@ -90,11 +90,11 @@ To that very thought, do we desire God to simply leave us alone?
 
 Never! God loves us too much to simply leave us alone.
 
->John 3:16a (CSB) For God loved the world in this way...
+>John 3:16a For God loved the world in this way...
 
 If God truly loves the world, then why does the Bible says he hated Esau?
 
->Romans 9:13 (CSB) As it is written: I have loved Jacob, but I have hated Esau.
+>Romans 9:13 As it is written: I have loved Jacob, but I have hated Esau.
 
 Is that a contradiction? Absolutely not. I am fully convinced that God loved Esau when Esau was alive on the earth. But as soon as he perished, he was judged by the Just and Holy God:
 
@@ -103,7 +103,7 @@ Is that a contradiction? Absolutely not. I am fully convinced that God loved Esa
 For as long as your body draws breath on this earth, make no mistake: God is pursuing you. The question remains: does His pursuit harden or soften your heart towards Him?
 
 Salvation was there for Esau. Salvation was there for you. All you have to do is trust Him.
->Hebrews 9:27-28 (CSB) And just as it is appointed for people to die once—and after this, judgment—<sup> 28 </sup>so also Christ, having been offered once to bear the sins of many, will appear a second time, not to bear sin, but to bring salvation to those who are waiting for him.
+>Hebrews 9:27-28 And just as it is appointed for people to die once—and after this, judgment—<sup> 28 </sup>so also Christ, having been offered once to bear the sins of many, will appear a second time, not to bear sin, but to bring salvation to those who are waiting for him.
 
->John 3:16-17 (CSB) For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. <sup> 17 </sup> For God did not send his Son into the world to condemn the world, but to save the world through him.
+>John 3:16-17 For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. <sup> 17 </sup> For God did not send his Son into the world to condemn the world, but to save the world through him.
 

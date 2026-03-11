@@ -20,7 +20,7 @@ God in his almightiness most certainly make our circumstances perfect. What do y
 
 ## The Text
 
->Genesis 9:18–29 (CSB)  
+>Genesis 9:18–29  
 ><sup> 18 </sup> Noah’s sons who came out of the ark were Shem, Ham, and Japheth. Ham was the father of Canaan. 
 >
 ><sup> 19 </sup> These three were Noah’s sons, and from them the whole earth was populated. 
@@ -51,7 +51,7 @@ God in his almightiness most certainly make our circumstances perfect. What do y
 
 ### The Glory of God: Mankind is blessed--God will do what he says he will do
 
->Genesis 9:1 (CSB) God blessed Noah and his sons and said to them, “Be fruitful and multiply and fill the earth.
+>Genesis 9:1 God blessed Noah and his sons and said to them, “Be fruitful and multiply and fill the earth.
 
 Again, be fruitful and multiple is not a commandment but a blessing by God.
 
@@ -61,7 +61,7 @@ Furthermore, we have already seen that God will stop at nothing to save his peop
 
 ### The Glory of God: Mankind sins--God is righteous
 
->Matthew 23:27-28 (CSB) “Woe to you, scribes and Pharisees, hypocrites! You are like whitewashed tombs, which appear beautiful on the outside, but inside are full of the bones of the dead and every kind of impurity. In the same way, on the outside you seem righteous to people, but inside you are full of hypocrisy and lawlessness.
+>Matthew 23:27-28 “Woe to you, scribes and Pharisees, hypocrites! You are like whitewashed tombs, which appear beautiful on the outside, but inside are full of the bones of the dead and every kind of impurity. In the same way, on the outside you seem righteous to people, but inside you are full of hypocrisy and lawlessness.
 
 God wipes the wickedness off the earth. All the evil has been purged. Life should be easy.
 
@@ -77,26 +77,26 @@ Man is mortal and born in sin and depravity--far from the glory of God.
 
 Make no mistake: look at Religious History. Man will go to great lengths to either exalt Man above his place or make God a little lower than he ought.  Once you do that, you are no longer orthodox and proper and history. Congratulations, you have just created a false religion which the Bible rightfully declares is led by demons (Deuteronomy 32:16-17; 1 Corinthians 10:20)
 
->Deuteronomy 32:16-17 (CSB) They provoked his jealousy with different gods;
+>Deuteronomy 32:16-17 They provoked his jealousy with different gods;
 they enraged him with detestable practices.
 17 They sacrificed to demons, not God,
 to gods they had not known,
 new gods that had just arrived,
 which your ancestors did not fear.
 
->1 Corinthians 10:20 (CSB) No, but I do say that what they sacrifice, they sacrifice to demons and not to God. I do not want you to be participants with demons!
+>1 Corinthians 10:20 No, but I do say that what they sacrifice, they sacrifice to demons and not to God. I do not want you to be participants with demons!
 
 God has saved man. God has wiped wickedness from the earth. Yet, Noah sins in the eyes of God.
 
 And I don't have short-term memory loss: I remember the declaration in Genesis 6.
 
->Genesis 6:8-9 (CSB) Noah, however, found favor with the LORD.These are the family records of Noah. Noah was a righteous man, blameless among his contemporaries; Noah walked with God.
+>Genesis 6:8-9 Noah, however, found favor with the LORD.These are the family records of Noah. Noah was a righteous man, blameless among his contemporaries; Noah walked with God.
 
 How do we reconcile the these two opposing issues?
 
 I think that any Christian who has been saved for longer than a moment already feel this strain. We believe in God, trust in God, and by the Spirit alone, obey Christ but yet we fall.
 
->Romans 7:22-24 (CSB) For in my inner self I delight in God’s law,but I see a different law in the parts of my body, waging war against the law of my mind and taking me prisoner to the law of sin in the parts of my body. What a wretched man I am! Who will rescue me from this body of death?
+>Romans 7:22-24 For in my inner self I delight in God’s law,but I see a different law in the parts of my body, waging war against the law of my mind and taking me prisoner to the law of sin in the parts of my body. What a wretched man I am! Who will rescue me from this body of death?
 
 Guess what? Salvation is not a one time thing. It is an every day, every hour, every second type of thing.
 
@@ -104,9 +104,9 @@ I look back at my life with God and see how he will rescue me from my sins over 
 
 God don't stop. God can't stop. Never stop rescuing us. It is what he does.
 
->Romans 8:12-13 (CSB) So then, brothers and sisters, we are not obligated to the flesh to live according to the flesh,because if you live according to the flesh, you are going to die. But if by the Spirit you put to death the deeds of the body, you will live.
+>Romans 8:12-13 So then, brothers and sisters, we are not obligated to the flesh to live according to the flesh,because if you live according to the flesh, you are going to die. But if by the Spirit you put to death the deeds of the body, you will live.
 
-> Proverbs 24:16 (CSB) Though a righteous person falls seven times,
+> Proverbs 24:16 Though a righteous person falls seven times,
 he will get up,
 but the wicked will stumble into ruin.
 
@@ -114,7 +114,7 @@ God sees you and knows you and sees that you stumble. But he gives himself to yo
 
 He never grows tired. He never weakens. He never gives up. He doesn't become exasperated with you. In fact, it is the opposite:
 
->Zephaniah 3:17 (CSB) The LORD your God is among you,
+>Zephaniah 3:17 The LORD your God is among you,
 a warrior who saves.
 He will rejoice over you with gladness.
 He will be quiet in his love.
@@ -132,7 +132,7 @@ His love is steadfast. His grace is stacked upon even more grace. His mercies ne
 
 The same God who wipes our sin and wickedness is the same God who loves us enough to send his only begotten Son, to live and die for us so that we can be with the Father forever.
 
-## The Gospel
+## His Gospel
 
 ><sup> 22 </sup> Ham, the father of Canaan, saw his father naked and told his two brothers outside. <sup> 23 </sup> Then Shem and Japheth took a cloak and placed it over both their shoulders, and walking backward, they covered their father’s nakedness. Their faces were turned away, and they did not see their father naked.
 
@@ -142,24 +142,24 @@ Man cannot wipe away their own sin. They lack the power to do so.
 
 Look at the power of God when we sin and yet trust in God:
 
->Psalm 51:7 (CSB) Purify me with hyssop, and I will be clean;
+>Psalm 51:7 Purify me with hyssop, and I will be clean;
 wash me, and I will be whiter than snow.
 
->Psalm 103:12 (CSB) As far as the east is from the west,
+>Psalm 103:12 As far as the east is from the west,
 so far has he removed
 our transgressions from us.
 
->1 John 1:9 (CSB) If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
+>1 John 1:9 If we confess our sins, he is faithful and righteous to forgive us our sins and to cleanse us from all unrighteousness.
 
->2 Corinthians 5:19 (CSB) That is, in Christ, God was reconciling the world to himself, not counting their trespasses against them, and he has committed the message of reconciliation to us.
+>2 Corinthians 5:19 That is, in Christ, God was reconciling the world to himself, not counting their trespasses against them, and he has committed the message of reconciliation to us.
 
->Ephesians 1:7-8 (CSB) In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his gracethat he richly poured out on us with all wisdom and understanding.
+>Ephesians 1:7-8 In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his gracethat he richly poured out on us with all wisdom and understanding.
 
->Ephesians 2:4-5 (CSB) But God, who is rich in mercy, because of his great love that he had for us,made us alive with Christ even though we were dead in trespasses. You are saved by grace!
+>Ephesians 2:4-5 But God, who is rich in mercy, because of his great love that he had for us,made us alive with Christ even though we were dead in trespasses. You are saved by grace!
 
 >Titus 3:4-7 (CSB)But when the kindness of God our Savior and his love for mankind appeared,he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Saviorso that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
->Titus 2:14 (CSB) He gave himself for us to redeem us from all lawlessness and to cleanse for himself a people for his own possession, eager to do good works.
+>Titus 2:14 He gave himself for us to redeem us from all lawlessness and to cleanse for himself a people for his own possession, eager to do good works.
 
 What does man do about the problem of evil? Nothing on their own.
 
@@ -173,7 +173,7 @@ Let me address something real quick: it has been the wickedness of preachers bef
 
 That is wickedness. That is evil. That is blasphemy. And if you believe and teach that, you are the son of Satan and a child of hell by the declaration of Jesus Christ.
 
->John 8:44 (CSB) You are of your father the devil, and you want to carry out your father’s desires. He was a murderer from the beginning and does not stand in the truth, because there is no truth in him. When he tells a lie, he speaks from his own nature, because he is a liar and the father of lies.
+>John 8:44 You are of your father the devil, and you want to carry out your father’s desires. He was a murderer from the beginning and does not stand in the truth, because there is no truth in him. When he tells a lie, he speaks from his own nature, because he is a liar and the father of lies.
 
 In Noah's drunken stupor and hangover, he probably felt like the smallest person in the world and it shows. Leaning on his own shame and guilt, he attempts to curse one of his son's descendants. Now, did it work? We don't know a Canaanite today so you can make the argument it did work.
 
@@ -201,7 +201,7 @@ I will contend to you that Paul's cry is your cry and my cry if we love the Lord
 
 Paul figured it out. This is his answer.
 
->Romans 7:25 (CSB) Thanks be to God through Jesus Christ our Lord! So then, with my mind I myself am serving the law of God, but with my flesh, the law of sin.
+>Romans 7:25 Thanks be to God through Jesus Christ our Lord! So then, with my mind I myself am serving the law of God, but with my flesh, the law of sin.
 
 As the hymn goes:
 

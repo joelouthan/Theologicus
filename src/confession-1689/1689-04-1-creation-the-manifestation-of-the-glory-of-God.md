@@ -8,7 +8,7 @@
 
 ## The Text
 
->Genesis 1:1-2 (CSB) In the beginning God created the heavens and the earth. Now the earth was formless and empty, darkness covered the surface of the watery depths, and the Spirit of God was hovering over the surface of the waters.
+>Genesis 1:1-2 In the beginning God created the heavens and the earth. Now the earth was formless and empty, darkness covered the surface of the watery depths, and the Spirit of God was hovering over the surface of the waters.
 
 ## The Chapter
 
@@ -18,7 +18,7 @@
 
 ### In the beginning it pleased God the Father, Son, and Holy Spirit
 
->John 1:2–3 (CSB) He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created.
+>John 1:2–3 He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created.
 
 When we arrive to the creation of the Bible, we have to had done the work on the attributes of the Creator before we can understand his creation--to lest we attribute something on the *why* God created the world that is not in his word.
 
@@ -35,21 +35,21 @@ Why for?
 
 ### for the manifestation of the glory of his eternal power, wisdom, and goodness
 
->Hebrews 1:2 (CSB) In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
+>Hebrews 1:2 In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
 
 Much ink has been spilled trying to help wrap our minds around the glory of God. We could say that the glory of God is the sum of all his attributes. But keeping in mind that God is simply all of his attributes perfectly and the glory is the sum of his attributes perfectly maxed.
 
 It is it any wonder why God is jealous for his people?
 
->Isaiah 42:8–9 (CSB) I am the LORD. That is my name, and I will not give my glory to another or my praise to idols. The past events have indeed happened. Now I declare new events; I announce them to you before they occur.”
+>Isaiah 42:8–9 I am the LORD. That is my name, and I will not give my glory to another or my praise to idols. The past events have indeed happened. Now I declare new events; I announce them to you before they occur.”
 
 Is it any wonder why God wouldn't let Moses see the full splendor of his glory?
 
->Exodus 33:18–23 (CSB) Then Moses said, “Please, let me see your glory.” He said, “I will cause all my goodness to pass in front of you, and I will proclaim the name ‘the LORD’ before you. I will be gracious to whom I will be gracious, and I will have compassion on whom I will have compassion.” But he added, “You cannot see my face, for humans cannot see me and live.” The LORD said, “Here is a place near me. You are to stand on the rock, and when my glory passes by, I will put you in the crevice of the rock and cover you with my hand until I have passed by. Then I will take my hand away, and you will see my back, but my face will not be seen.”
+>Exodus 33:18–23 Then Moses said, “Please, let me see your glory.” He said, “I will cause all my goodness to pass in front of you, and I will proclaim the name ‘the LORD’ before you. I will be gracious to whom I will be gracious, and I will have compassion on whom I will have compassion.” But he added, “You cannot see my face, for humans cannot see me and live.” The LORD said, “Here is a place near me. You are to stand on the rock, and when my glory passes by, I will put you in the crevice of the rock and cover you with my hand until I have passed by. Then I will take my hand away, and you will see my back, but my face will not be seen.”
 
 Yet, is it any wonder when God became His very good creation--that is when Jesus took on flesh--that we all now see his glory?
 
->John 1:14 (CSB) The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth.
+>John 1:14 The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth.
 
 Prior to the incarnation, we could only see ths semblances of his glory and sometimes in creation. But because of Christ, we see the fullness of his glory.
 
@@ -57,13 +57,13 @@ And you might say, "But we are not in heaven with him? How can we see him now?" 
 
 ### to create or make the world
 
->Job 26:13 (CSB) By his breath the heavens gained their beauty; his hand pierced the fleeing serpent.
+>Job 26:13 By his breath the heavens gained their beauty; his hand pierced the fleeing serpent.
 
 In the manifestation of the glory of his eternal power, wisdom, and goodness, God could easily elected to do infinite other things besides create the heavens and the earth. What those things are? I lack the creativity and the intellect to even begin. God could have done anything he wanted to do but he chose to create the world.
 
 ### and all things therein
 
->Romans 1:20 (CSB) For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse.
+>Romans 1:20 For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse.
 
 God did not just make the spiritual realm as a big vast empty dwelling place. God did not just make a big world as a finite empty dwelling place. God made the heavens and the earth and all the things within.
 
@@ -71,13 +71,13 @@ He made the sun, moon, stars, the day sky and the night sky. He made the land ma
 
 ### whether visible or invisible
 
->Colossians 1:16 (CSB) For everything was created by him, in heaven and on earth, the visible and the invisible, whether thrones or dominions or rulers or authorities— all things have been created through him and for him.
+>Colossians 1:16 For everything was created by him, in heaven and on earth, the visible and the invisible, whether thrones or dominions or rulers or authorities— all things have been created through him and for him.
 
 What we can see is the material plane: the visible creation including the depths of the ocean we have yet to the explore and the vastness of the cosmos that we have yet to reach. But there is also the invisible creation: the spiritual realm that we cannot see with our eyes--namely, the angels and the heavens, the demons and the hells and all points in between.
 
 ### in the space of six days, and all very good
 
->Genesis 1:31 (CSB) God saw all that he had made, and it was very good indeed. Evening came and then morning: the sixth day.
+>Genesis 1:31 God saw all that he had made, and it was very good indeed. Evening came and then morning: the sixth day.
 
 In this point, I am not hear to debate the finer points of creation. Does six days means six days? Is our world older or younger? That is another debate for another day. In whatever your stance might be, it is the Lord's command that we rest on the seventh day because God rested on the seventh day after creating the heavens and the earth for the first six days. The six days of work? Not set apart. The seventh day? Set apart and called holy. 
 

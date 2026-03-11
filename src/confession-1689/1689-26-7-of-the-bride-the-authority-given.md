@@ -8,7 +8,7 @@
 
 ## The Text
 
->Matthew 28:16-20 (CSB) The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age."
+>Matthew 28:16-20 The eleven disciples traveled to Galilee, to the mountain where Jesus had directed them. When they saw him, they worshiped, but some doubted. Jesus came near and said to them, “All authority has been given to me in heaven and on earth. Go, therefore, and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe everything I have commanded you. And remember, I am with you always, to the end of the age."
 
 ## The Chapter
 
@@ -16,13 +16,13 @@
 
 ## The Confession
 
->Matthew 18:17–18 (CSB) If he doesn’t pay attention to them, tell the church. If he doesn’t pay attention even to the church, let him be like a Gentile and a tax collector to you. Truly I tell you, whatever you bind on earth will have been bound in heaven, and whatever you loose on earth will have been loosed in heaven.
+>Matthew 18:17–18 If he doesn’t pay attention to them, tell the church. If he doesn’t pay attention even to the church, let him be like a Gentile and a tax collector to you. Truly I tell you, whatever you bind on earth will have been bound in heaven, and whatever you loose on earth will have been loosed in heaven.
 
->1 Corinthians 5:4–5 (CSB) When you are assembled in the name of our Lord Jesus, and I am with you in spirit, with the power of our Lord Jesus, hand that one over to Satan for the destruction of the flesh, so that his spirit may be saved in the day of the Lord.
+>1 Corinthians 5:4–5 When you are assembled in the name of our Lord Jesus, and I am with you in spirit, with the power of our Lord Jesus, hand that one over to Satan for the destruction of the flesh, so that his spirit may be saved in the day of the Lord.
 
->1 Corinthians 5:13 (CSB) God judges outsiders. Remove the evil person from among you.
+>1 Corinthians 5:13 God judges outsiders. Remove the evil person from among you.
 
->2 Corinthians 2:6–8 (CSB) This punishment by the majority is sufficient for that person. As a result, you should instead forgive and comfort him. Otherwise, he may be overwhelmed by excessive grief. Therefore I urge you to reaffirm your love to him.
+>2 Corinthians 2:6–8 This punishment by the majority is sufficient for that person. As a result, you should instead forgive and comfort him. Otherwise, he may be overwhelmed by excessive grief. Therefore I urge you to reaffirm your love to him.
 
 We have many people, since the sins of Adam and Eve, faught with power trying to feebly build their own little kingdoms of sand.
 

@@ -25,7 +25,7 @@
 
 ## The Word
 
->John 16:7-15 (CSB) Nevertheless, I am telling you the truth. It is for your benefit that I go away, because if I don’t go away the **Counselor** will not come to you. If I go, I will send him to you. When he comes, he will convict the world about sin, righteousness, and judgment: About sin, because they do not believe in me; about righteousness, because I am going to the Father and you will no longer see me; and about judgment, because the ruler of this world has been judged.
+>John 16:7-15 Nevertheless, I am telling you the truth. It is for your benefit that I go away, because if I don’t go away the **Counselor** will not come to you. If I go, I will send him to you. When he comes, he will convict the world about sin, righteousness, and judgment: About sin, because they do not believe in me; about righteousness, because I am going to the Father and you will no longer see me; and about judgment, because the ruler of this world has been judged.
 >
 >“I still have many things to tell you, but you can’t bear them now. When the Spirit of truth comes, he will guide you into all the truth. For he will not speak on his own, but he will speak whatever he hears. He will also declare to you what is to come. He will glorify me, because he will take from what is mine and declare it to you. Everything the Father has is mine. This is why I told you that he takes from what is mine and will declare it to you.
 

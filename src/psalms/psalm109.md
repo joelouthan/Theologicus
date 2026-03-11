@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 109 (CSB)  
+>Psalm 109  
 ><sup></sup> For the choir director. A psalm of David. 
 >
 ><sup>1</sup> God of my praise, do not be silent. 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 119:3 (CSB) They do nothing wrong; they walk in his ways.
+>Psalm 119:3 They do nothing wrong; they walk in his ways.
 
 ## The Prayer
 

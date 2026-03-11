@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 28 (CSB)  
+>Psalm 28  
 ><sup></sup> Of David. 
 >
 ><sup>1</sup> LORD, I call to you; my rock, do not be deaf to me. If you remain silent to me, I will be like those going down to the Pit. 

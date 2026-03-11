@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 119:7 (CSB) I will praise you with an upright heart when I learn your righteous judgments.
+>Psalm 119:7 I will praise you with an upright heart when I learn your righteous judgments.
 
 ## The Prayer
 

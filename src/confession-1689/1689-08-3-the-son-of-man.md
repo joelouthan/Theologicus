@@ -14,7 +14,7 @@ g { color: Green }
 
 ## The Text
 
->Daniel 7:9-14 (CSB)  
+>Daniel 7:9-14  
 >“As I kept watching,  
 >thrones were set in place,  
 >and the Ancient of Days took his seat.  
@@ -54,11 +54,11 @@ g { color: Green }
 
 ### The Lord Jesus, in His human nature thus united to the divine, in the person of the Son, was sanctified and anointed with the Holy Spirit above measure
 
->Psalm 45:7 (CSB) You love righteousness and hate wickedness; therefore God, your God, has anointed you with the oil of joy more than your companions.
+>Psalm 45:7 You love righteousness and hate wickedness; therefore God, your God, has anointed you with the oil of joy more than your companions.
 
->Acts 10:38 (CSB) how God anointed Jesus of Nazareth with the Holy Spirit and with power, and how he went about doing good and healing all who were under the tyranny of the devil, because God was with him.
+>Acts 10:38 how God anointed Jesus of Nazareth with the Holy Spirit and with power, and how he went about doing good and healing all who were under the tyranny of the devil, because God was with him.
 
->John 3:34 (CSB) For the one whom God sent speaks God’s words, since he gives the Spirit without measure.
+>John 3:34 For the one whom God sent speaks God’s words, since he gives the Spirit without measure.
 
 Second chapter of the 1689 deals with the Attributes of God. So by the time you got to the Chapter 8 on the Person of Christ, you would have seen this statement from Chapter 2 Paragraph 1:
 
@@ -152,9 +152,9 @@ The fight was long won by the grace of God. But we must be vigilant and fight th
 
 ### having in Him all the treasures of wisdom and knowledge
 
->Colossians 2:3 (CSB) In him are hidden all the treasures of wisdom and knowledge.
+>Colossians 2:3 In him are hidden all the treasures of wisdom and knowledge.
 
->1 Corinthians 1:18-25 (CSB) For the word of the cross is foolishness to those who are perishing, but it is the power of God to us who are being saved. For it is written,
+>1 Corinthians 1:18-25 For the word of the cross is foolishness to those who are perishing, but it is the power of God to us who are being saved. For it is written,
 >
 >**I will destroy the wisdom of the wise, and I will set aside the intelligence of the intelligent.**
 >
@@ -162,40 +162,40 @@ The fight was long won by the grace of God. But we must be vigilant and fight th
 
 At this point, I could have just quoted 1 Corinthians chapters one to three.
 
->Romans 8:5-6 (CSB) For those who live according to the flesh have their minds set on the things of the flesh, but those who live according to the Spirit have their minds set on the things of the Spirit. Now the mindset of the flesh is death, but the mindset of the Spirit is life and peace.
+>Romans 8:5-6 For those who live according to the flesh have their minds set on the things of the flesh, but those who live according to the Spirit have their minds set on the things of the Spirit. Now the mindset of the flesh is death, but the mindset of the Spirit is life and peace.
 
 This passage in Romans 8 is an exposition of the ministry of Christ in Mark 8. In other words what God must do in order for us to be believe and trust in his Son. This is not an intelligence or knowledge ascent--all the Christian schooling and seminary won't save you. And this is not an emotional ascent--feel all the good feels to make you feel like you are in the presence of God. God literally has to open your eyes (Mark 8:22–26), open your ears (Mark 7:31-37), swap out your heart (Mark 8:14–21), renew your mind (Mark 8:11–13), and feed us his word (Mark 8:1-10) so that we might be made fully alive (1 John 5:1) and believe in Christ.
 
 Apart from God doing any of that, you and I cannot hope to believe and trust in his Son.
 
->Romans 8:8 (CSB) Those who are in the flesh cannot please God.
+>Romans 8:8 Those who are in the flesh cannot please God.
 
 However:
 
->Romans 8:9-11 (CSB) You, however, are not in the flesh, but in the Spirit, if indeed the Spirit of God lives in you. If anyone does not have the Spirit of Christ, he does not belong to him. Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness. And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
+>Romans 8:9-11 You, however, are not in the flesh, but in the Spirit, if indeed the Spirit of God lives in you. If anyone does not have the Spirit of Christ, he does not belong to him. Now if Christ is in you, the body is dead because of sin, but the Spirit gives life because of righteousness. And if the Spirit of him who raised Jesus from the dead lives in you, then he who raised Christ from the dead will also bring your mortal bodies to life through his Spirit who lives in you.
 
 My Beloved, Christ dwells in you. The Spirit who raised Christ from the dead dwells in you. The Father has made his home in you. Because of what God has done, we have the mindset of Christ to truly know him and love him:
 
->1 Corinthians 2:16 (CSB) For  
+>1 Corinthians 2:16 For  
 >**who has known the Lord’s mind,**  
 >**that he may instruct him?**  
 >But we have the mind of Christ.
 
 ### in whom it pleased the Father that all fullness should dwell
 
->Colossians 1:19 (CSB) For God was pleased to have all his fullness dwell in him,
+>Colossians 1:19 For God was pleased to have all his fullness dwell in him,
 
 And:
 
->Colossians 2:9-10 (CSB) For the entire fullness of God’s nature dwells bodily in Christ, and you have been filled by him, who is the head over every ruler and authority.
+>Colossians 2:9-10 For the entire fullness of God’s nature dwells bodily in Christ, and you have been filled by him, who is the head over every ruler and authority.
 
 When we speak of the fullness of God, it would be easy to think of only the Father. Yet, it is the Spirit, the fullness of God as well, that dwells in the Son, as well. For:
 
->John 3:34-35 (CSB) For the one whom God sent speaks God’s words, since he gives the Spirit without measure. The Father loves the Son and has given all things into his hands.
+>John 3:34-35 For the one whom God sent speaks God’s words, since he gives the Spirit without measure. The Father loves the Son and has given all things into his hands.
 
 The Son of Man, fully God and fully man, descended into his Creation, to live perfectly unto his Father. But Jesus, for all of his divine and glory, did not do this by himself. Himself, fully God, having the Father, fully God, and the Spirit, fully God, dwelling in him fully at all times. For:
 
->John 1:1–2 (CSB) In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning.
+>John 1:1–2 In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning.
 
 Father, Son, and Spirit were always together from eternity past. They are in perfect love and community and fellowship and relationship and presence with each other. They are in the fullness of joy and pleasures evermore with one another. (Psalm 16:11)
 
@@ -203,25 +203,25 @@ If Christ came to our world to minister to others, why would we think he did thi
 
 ### to the end that being holy, harmless, undefiled
 
->Hebrews 7:26 (CSB) For this is the kind of high priest we need: holy, innocent, undefiled, separated from sinners, and exalted above the heavens.
+>Hebrews 7:26 For this is the kind of high priest we need: holy, innocent, undefiled, separated from sinners, and exalted above the heavens.
 
 When the Bible speaks of the spotless Lamb, it is referring to Jesus Christ, the Worthy Lamb that was Slain.
 
->1 Peter 1:18–20 (CSB) For you know that you were redeemed from your empty way of life inherited from your ancestors, not with perishable things like silver or gold, but with the precious blood of Christ, like that of an unblemished and spotless lamb. He was foreknown before the foundation of the world but was revealed in these last times for you.
+>1 Peter 1:18–20 For you know that you were redeemed from your empty way of life inherited from your ancestors, not with perishable things like silver or gold, but with the precious blood of Christ, like that of an unblemished and spotless lamb. He was foreknown before the foundation of the world but was revealed in these last times for you.
 
 He is the Passover Lamb that has saved us from death:
 
->Exodus 12:5-7 (CSB) You must have an unblemished animal, a year-old male; you may take it from either the sheep or the goats. You are to keep it until the fourteenth day of this month; then the whole assembly of the community of Israel will slaughter the animals at twilight. They must take some of the blood and put it on the two doorposts and the lintel of the houses where they eat them.
+>Exodus 12:5-7 You must have an unblemished animal, a year-old male; you may take it from either the sheep or the goats. You are to keep it until the fourteenth day of this month; then the whole assembly of the community of Israel will slaughter the animals at twilight. They must take some of the blood and put it on the two doorposts and the lintel of the houses where they eat them.
 
 He is the Lamb that was slain for our sins:
 
->John 1:29 (CSB) The next day John saw Jesus coming toward him and said, “Look, the Lamb of God, who takes away the sin of the world!
+>John 1:29 The next day John saw Jesus coming toward him and said, “Look, the Lamb of God, who takes away the sin of the world!
 
 Christ is perfect in his obedience to the law of God. But Christ is holy because he is God who is holy.
 
 ### and full of grace and truth
 
->John 1:14 (CSB) The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth.
+>John 1:14 The Word became flesh and dwelt among us. We observed his glory, the glory as the one and only Son from the Father, full of grace and truth.
 
 For:
 
@@ -231,13 +231,13 @@ When Christ came to live and die upon the cross, this meeting, joining, melding,
 
 It was only because of what Christ did so that we could be made holy, harmless, and undefiled. It is only because of what Christ did that we could be made righteous and at peace with God.
 
->Romans 1:17 (CSB) For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
+>Romans 1:17 For in it the righteousness of God is revealed from faith to faith, just as it is written: The righteous will live by faith.
 
->2 Corinthians 5:21 (CSB) He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
+>2 Corinthians 5:21 He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
 
 ### He might be throughly furnished to execute the office of mediator and surety
 
->Hebrews 7:22 (CSB) Because of this oath, Jesus has also become the guarantee of a better covenant.
+>Hebrews 7:22 Because of this oath, Jesus has also become the guarantee of a better covenant.
 
 All of what and who Jesus is the guarantee of a better covenant.
 
@@ -257,32 +257,32 @@ The previous covenants were good and holy. But they were for a moment in time un
 
 ### which office He took not upon himself, but was thereunto called by His Father
 
->Hebrews 5:5 (CSB) In the same way, Christ did not exalt himself to become a high priest, but God who said to him, You are my Son; today I have become your Father,
+>Hebrews 5:5 In the same way, Christ did not exalt himself to become a high priest, but God who said to him, You are my Son; today I have become your Father,
 
 Christ did not do this alone. He did not ascend to any of the offices on his own. He was sent here by the Father and he did only what he saw his Father do. Christ is perfectly and eternally begotten of the Father. The Father and the Son are always in perfect lock step and they glorify one another.
 
 ### who also put all power and judgement in His hand, and gave Him commandment to execute the same
 
->John 5:22–27 (CSB) The Father, in fact, judges no one but has given all judgment to the Son, so that all people may honor the Son just as they honor the Father. Anyone who does not honor the Son does not honor the Father who sent him. “Truly I tell you, anyone who hears my word and believes him who sent me has eternal life and will not come under judgment but has passed from death to life. “Truly I tell you, an hour is coming, and is now here, when the dead will hear the voice of the Son of God, and those who hear will live. For just as the Father has life in himself, so also he has granted to the Son to have life in himself. And he has granted him the right to pass judgment, because he is the Son of Man.
+>John 5:22–27 The Father, in fact, judges no one but has given all judgment to the Son, so that all people may honor the Son just as they honor the Father. Anyone who does not honor the Son does not honor the Father who sent him. “Truly I tell you, anyone who hears my word and believes him who sent me has eternal life and will not come under judgment but has passed from death to life. “Truly I tell you, an hour is coming, and is now here, when the dead will hear the voice of the Son of God, and those who hear will live. For just as the Father has life in himself, so also he has granted to the Son to have life in himself. And he has granted him the right to pass judgment, because he is the Son of Man.
 
->Matthew 28:18 (CSB) Jesus came near and said to them, “All authority has been given to me in heaven and on earth.
+>Matthew 28:18 Jesus came near and said to them, “All authority has been given to me in heaven and on earth.
 
->Acts 2:36 (CSB) “Therefore let all the house of Israel know with certainty that God has made this Jesus, whom you crucified, both Lord and Messiah.”
+>Acts 2:36 “Therefore let all the house of Israel know with certainty that God has made this Jesus, whom you crucified, both Lord and Messiah.”
 
 And because Christ, the Son of Man, was perfect in his execution of the salvation of the people of God, God the Father has now given him all authority, power and dominion, glory and honor forever.
 
->Matthew 28:18 (CSB) Jesus came near and said to them, “All authority has been given to me in heaven and on earth.
+>Matthew 28:18 Jesus came near and said to them, “All authority has been given to me in heaven and on earth.
 
 And:
 
->Daniel 7:13–14 (CSB) I continued watching in the night visions, and suddenly one like a son of man was coming with the clouds of heaven. He approached the Ancient of Days and was escorted before him. He was given dominion and glory and a kingdom, so that those of every people, nation, and language should serve him. His dominion is an everlasting dominion that will not pass away, and his kingdom is one that will not be destroyed.
+>Daniel 7:13–14 I continued watching in the night visions, and suddenly one like a son of man was coming with the clouds of heaven. He approached the Ancient of Days and was escorted before him. He was given dominion and glory and a kingdom, so that those of every people, nation, and language should serve him. His dominion is an everlasting dominion that will not pass away, and his kingdom is one that will not be destroyed.
 
 That is why we sing:
 
->Romans 11:33–36 (CSB) Oh, the depth of the riches and the wisdom and the knowledge of God! How unsearchable his judgments and untraceable his ways! For who has known the mind of the Lord? Or who has been his counselor? And who has ever given to God, that he should be repaid? For from him and through him and to him are all things. To him be the glory forever. Amen.
+>Romans 11:33–36 Oh, the depth of the riches and the wisdom and the knowledge of God! How unsearchable his judgments and untraceable his ways! For who has known the mind of the Lord? Or who has been his counselor? And who has ever given to God, that he should be repaid? For from him and through him and to him are all things. To him be the glory forever. Amen.
 
 And:
 
->Revelation 5:12 (CSB) They said with a loud voice, Worthy is the Lamb who was slaughtered to receive power and riches and wisdom and strength and honor and glory and blessing!
+>Revelation 5:12 They said with a loud voice, Worthy is the Lamb who was slaughtered to receive power and riches and wisdom and strength and honor and glory and blessing!
 
 Amen!

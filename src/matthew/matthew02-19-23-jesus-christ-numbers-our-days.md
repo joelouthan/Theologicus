@@ -6,7 +6,7 @@
 
 ## The Text
 
->Matthew 2:19-23 (CSB) After Herod died, an angel of the Lord appeared in a dream to Joseph in Egypt, saying, “Get up, take the child and his mother, and go to the land of Israel, because those who intended to kill the child are dead.” So he got up, took the child and his mother, and entered the land of Israel. But when he heard that Archelaus was ruling over Judea in place of his father Herod, he was afraid to go there. And being warned in a dream, he withdrew to the region of Galilee. Then he went and settled in a town called Nazareth to fulfill what was spoken through the prophets, that he would be called a Nazarene.
+>Matthew 2:19-23 After Herod died, an angel of the Lord appeared in a dream to Joseph in Egypt, saying, “Get up, take the child and his mother, and go to the land of Israel, because those who intended to kill the child are dead.” So he got up, took the child and his mother, and entered the land of Israel. But when he heard that Archelaus was ruling over Judea in place of his father Herod, he was afraid to go there. And being warned in a dream, he withdrew to the region of Galilee. Then he went and settled in a town called Nazareth to fulfill what was spoken through the prophets, that he would be called a Nazarene.
 
 ## The Devotion - The Gift of Myrrh
 
@@ -18,11 +18,11 @@ No matter the danger he was in, Christ remain invincible. The Evangelist George 
 
 >We are immortal until our work on earth is done.
 
->Job 14:5 (CSB) Since a person’s days are determined  
+>Job 14:5 Since a person’s days are determined  
 >and the number of his months depends on you,  
 >and since you have set limits he cannot pass,
 
->Hebrews 9:27 (CSB) And just as it is appointed for people to die once — and after this, judgment —
+>Hebrews 9:27 And just as it is appointed for people to die once — and after this, judgment —
 
 If the days of Christ are numbered, how can we be anything less? If we are in Christ, we remain invincible until God's work is done and he brings us home.
 

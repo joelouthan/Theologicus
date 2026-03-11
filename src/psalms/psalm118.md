@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 118 (CSB)  
+>Psalm 118  
 ><sup>1</sup> Give thanks to the LORD, for he is good; his faithful love endures forever. 
 >
 ><sup>2</sup> Let Israel say, “His faithful love endures forever.” 

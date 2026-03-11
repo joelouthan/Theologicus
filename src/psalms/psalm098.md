@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 98 (CSB)    
+>Psalm 98    
 > A psalm. 
 >
 ><sup> 1  </sup>Sing a new song to the LORD, for he has performed wonders; his right hand and holy arm have won him victory. 

@@ -4,7 +4,7 @@
 
 ## The Text
 
->1 Timothy 1:1–11 (CSB)  
+>1 Timothy 1:1–11  
 ><sup>1</sup> Paul, an apostle of Christ Jesus by the command of God our Savior and of Christ Jesus our hope: 
 >
 ><sup>2</sup> To Timothy, my true son in the faith. Grace, mercy, and peace from God the Father and Christ Jesus our Lord. 
@@ -49,7 +49,7 @@ I wish and pray and hope that number one would be the most common response among
 
 Scripture is where God has truly reveal himself to us. You might want God to do a certain thing or look the other way on certain sins, but where God has been clear to reveal himself to us, we have to change our minds accordingly. We are called to worship the Lord our God and this is how we do so:
 
->Romans 12:1-2 (CSB) Therefore, brothers and sisters, in view of the mercies of God, I urge you to present your bodies as a living sacrifice, holy and pleasing to God; this is your true worship. Do not be conformed to this age, but be transformed by the renewing of your mind, so that you may discern what is the good, pleasing, and perfect will of God.
+>Romans 12:1-2 Therefore, brothers and sisters, in view of the mercies of God, I urge you to present your bodies as a living sacrifice, holy and pleasing to God; this is your true worship. Do not be conformed to this age, but be transformed by the renewing of your mind, so that you may discern what is the good, pleasing, and perfect will of God.
 
 The Christian is not called to be right and win every argument. Those battles belongs to the Lord. Instead, we are called to trust in God, who is the source for all truth, obey him, and take him at his world. And when he shows us who he really is and revealed himself to us, we have to pay attention.
 
@@ -57,7 +57,7 @@ And this is how he has reveal himself to us: Jesus Christ.
 
 Do you want him to look the other way on one of your sins? That sin that you think that will make you happy, whole, content, secure, and safe? But Christ died to take that sin from you. He was crucified 2,000 years ago. What are you going to do? Hold on to sin so hard that you would go back in time, climb that bloody, piss-fece-soaked cross and extract your sin from his blood?
 
->Hebrews 9:27-28 (CSB) And just as it is appointed for people to die once—and after this, judgment— so also Christ, having been offered once to bear the sins of many, will appear a second time, not to bear sin, but to bring salvation to those who are waiting for him.
+>Hebrews 9:27-28 And just as it is appointed for people to die once—and after this, judgment— so also Christ, having been offered once to bear the sins of many, will appear a second time, not to bear sin, but to bring salvation to those who are waiting for him.
 
 Here is what the gospel of God calls you to do right now: repent because the kingdom of God is here. Here is your other choice: don't repent and let the wrath of God remain upon you. (John 3:36)
 
@@ -69,6 +69,6 @@ This is why Paul instructs in, in the middle of eagerly desiring the gifts of th
 
 This hurts my heart. I have known way too many people who have turned away from the gospel only to increase the law which only exposes more sin that they do not want to repent of.  
 
->Romans 6:1-11 (CSB) What should we say then? Should we continue in sin so that grace may multiply? Absolutely not! How can we who died to sin still live in it? Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life. For if we have been united with him in the likeness of his death, we will certainly also be in the likeness of his resurrection. For we know that our old self was crucified with him so that the body ruled by sin might be rendered powerless so that we may no longer be enslaved to sin, since a person who has died is freed from sin. Now if we died with Christ, we believe that we will also live with him, because we know that Christ, having been raised from the dead, will not die again. Death no longer rules over him. For the death he died, he died to sin once for all time; but the life he lives, he lives to God. So, you too consider yourselves dead to sin and alive to God in Christ Jesus.
+>Romans 6:1-11 What should we say then? Should we continue in sin so that grace may multiply? Absolutely not! How can we who died to sin still live in it? Or are you unaware that all of us who were baptized into Christ Jesus were baptized into his death? Therefore we were buried with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, so we too may walk in newness of life. For if we have been united with him in the likeness of his death, we will certainly also be in the likeness of his resurrection. For we know that our old self was crucified with him so that the body ruled by sin might be rendered powerless so that we may no longer be enslaved to sin, since a person who has died is freed from sin. Now if we died with Christ, we believe that we will also live with him, because we know that Christ, having been raised from the dead, will not die again. Death no longer rules over him. For the death he died, he died to sin once for all time; but the life he lives, he lives to God. So, you too consider yourselves dead to sin and alive to God in Christ Jesus.
 
 But repentance is a gift of God alone. I can only pray and proclaim the gospel to them.  Will God grant them repentance?

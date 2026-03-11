@@ -4,7 +4,7 @@
 
 ## The Text
 
->Romans 13:1–7 (CSB)  
+>Romans 13:1–7  
 ><sup>1</sup> Let everyone submit to the governing authorities, since there is no authority except from God, and the authorities that exist are instituted by God. 
 >
 ><sup>2</sup> So then, the one who resists the authority is opposing God’s command, and those who oppose it will bring judgment on themselves. 
@@ -25,11 +25,11 @@
 
 ### Christ is King: He Has Put All Leaders Over Us
 
->Daniel 2:21 (CSB) He changes the times and seasons; he removes kings and establishes kings. He gives wisdom to the wise and knowledge to those who have understanding.
+>Daniel 2:21 He changes the times and seasons; he removes kings and establishes kings. He gives wisdom to the wise and knowledge to those who have understanding.
 
->Psalm 75:6–7 (CSB) Exaltation does not come from the east, the west, or the desert, for God is the Judge: He brings down one and exalts another.
+>Psalm 75:6–7 Exaltation does not come from the east, the west, or the desert, for God is the Judge: He brings down one and exalts another.
 
->1 Peter 2:13–14 (CSB) Submit yourselves for the Lord’s sake to every human authority: whether to the emperor as the supreme authority, or to governors as sent by him to punish those who do wrong and to praise those who do right. For it is God’s will that by doing good you should silence the ignorant talk of foolish people.
+>1 Peter 2:13–14 Submit yourselves for the Lord’s sake to every human authority: whether to the emperor as the supreme authority, or to governors as sent by him to punish those who do wrong and to praise those who do right. For it is God’s will that by doing good you should silence the ignorant talk of foolish people.
 
 Let me get super political here for a moment and assuming that I am speaking to Americans.
 
@@ -58,15 +58,15 @@ But a Christian nation American is not and cannot be? Why? The Bible never decla
 
 ### Christ is King: Not To Obey Leaders is Bringing Judgment Upon Ourselves
 
->Mark 10:42–43 (CSB) Jesus called them over and said to them, “You know that those who are regarded as rulers of the Gentiles lord it over them, and those in high positions act as tyrants over them. But it is not so among you. On the contrary, whoever wants to become great among you will be your servant,
+>Mark 10:42–43 Jesus called them over and said to them, “You know that those who are regarded as rulers of the Gentiles lord it over them, and those in high positions act as tyrants over them. But it is not so among you. On the contrary, whoever wants to become great among you will be your servant,
 
->Daniel 6:7-9 (CSB) All the administrators of the kingdom — the prefects, satraps, advisers, and governors — have agreed that the king should establish an ordinance and enforce an edict that, for thirty days, anyone who petitions any god or man except you, the king, will be thrown into the lions’ den. Therefore, Your Majesty, establish the edict and sign the document so that, as a law of the Medes and Persians, it is irrevocable and cannot be changed.” So King Darius signed the written edict.
+>Daniel 6:7-9 All the administrators of the kingdom — the prefects, satraps, advisers, and governors — have agreed that the king should establish an ordinance and enforce an edict that, for thirty days, anyone who petitions any god or man except you, the king, will be thrown into the lions’ den. Therefore, Your Majesty, establish the edict and sign the document so that, as a law of the Medes and Persians, it is irrevocable and cannot be changed.” So King Darius signed the written edict.
 
 Let us determined, in most part, by and large, not governed by born-again leaders. Because our nation has moved further and further away from the Ten Commmandments, we have to have more and more laws governing us. Do you think these laws are perfect? Absolutely not. Far from it.
 
 But when these laws start to dictate that you should sin against God, that is the only point of defiance.
 
->Acts 5:29 (CSB) Peter and the apostles replied, “We must obey God rather than people.
+>Acts 5:29 Peter and the apostles replied, “We must obey God rather than people.
 
 But get this: you might face consequences from the wicked rulers that God has placed over you. Each of the Apostles except for one were martyred and slain by their wicked governors. As American as we are, we are no better than that.
 
@@ -76,7 +76,7 @@ Obey your leaders. When they tell you to sin against God, then you defy. Cannot 
 
 ### Christ is King: He rules over all
 
->Jeremiah 20:3-5 (CSB) The next day, when Pashhur released Jeremiah from the stocks, Jeremiah said to him, “The LORD does not call you Pashhur, but Terror Is on Every Side, for this is what the LORD says, ‘I am about to make you a terror to both yourself and those you love. They will fall by the sword of their enemies before your very eyes. I will hand Judah over to the king of Babylon, and he will deport them to Babylon and put them to the sword. I will give away all the wealth of this city, all its products and valuables. Indeed, I will hand all the treasures of the kings of Judah over to their enemies. They will plunder them, seize them, and carry them off to Babylon.
+>Jeremiah 20:3-5 The next day, when Pashhur released Jeremiah from the stocks, Jeremiah said to him, “The LORD does not call you Pashhur, but Terror Is on Every Side, for this is what the LORD says, ‘I am about to make you a terror to both yourself and those you love. They will fall by the sword of their enemies before your very eyes. I will hand Judah over to the king of Babylon, and he will deport them to Babylon and put them to the sword. I will give away all the wealth of this city, all its products and valuables. Indeed, I will hand all the treasures of the kings of Judah over to their enemies. They will plunder them, seize them, and carry them off to Babylon.
 
 God sets up our leaders. He sets up other leaders. And sometimes, with wicked nations, he will let other wicked nations conquer other wicked nations.
 
@@ -92,12 +92,12 @@ Yet, choose on this day of whom you will serve.
 
 Christ told us to pay taxes, for:
 
->Matthew 22:21 (CSB) They said to him, “Caesar’s.” Then he said to them, “Therefore, render to Caesar the things that are Caesar’s, and to God the things that are God’s.”
+>Matthew 22:21 They said to him, “Caesar’s.” Then he said to them, “Therefore, render to Caesar the things that are Caesar’s, and to God the things that are God’s.”
 
 Not to pay taxes is sin against God.
 
 The early church, because they lived in the Roman Empire were heavily taxed. They did not respond by failing to pay or cheating on their taxes. Look how the early church responded:
 
->Acts 2:43-47 (CSB) Everyone was filled with awe, and many wonders and signs were being performed through the apostles. Now all the believers were together and held all things in common. They sold their possessions and property and distributed the proceeds to all, as any had need. Every day they devoted themselves to meeting together in the temple, and broke bread from house to house. They ate their food with joyful and sincere hearts, praising God and enjoying the favor of all the people. Every day the Lord added to their number those who were being saved.
+>Acts 2:43-47 Everyone was filled with awe, and many wonders and signs were being performed through the apostles. Now all the believers were together and held all things in common. They sold their possessions and property and distributed the proceeds to all, as any had need. Every day they devoted themselves to meeting together in the temple, and broke bread from house to house. They ate their food with joyful and sincere hearts, praising God and enjoying the favor of all the people. Every day the Lord added to their number those who were being saved.
 
 Pay your taxes. Yet, love one another.

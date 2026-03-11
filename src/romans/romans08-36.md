@@ -4,17 +4,17 @@
 
 ## The Introduction
 
->Romans 8:36 (CSB) As it is written: Because of you we are being put to death all day long; we are counted as sheep to be slaughtered.
+>Romans 8:36 As it is written: Because of you we are being put to death all day long; we are counted as sheep to be slaughtered.
 
 So what if a little “tribulation, or distress, or persecution, or famine, or nakedness, or danger, or sword?”[^1] comes our way? God promises suffering for his saints. There is no way around it.
 
 Just in case you are at odds with the rest of the authors of the Bible and only want the “red letter edition”, let us consider the words of Christ himself:
 
->Matthew 10:34–39 (CSB) Don’t assume that I came to bring peace on the earth. I did not come to bring peace, but a sword. For I came to turn a man against his father, a daughter against her mother, a daughter-in-law against her mother-in-law; and a man’s enemies will be the members of his household. The one who loves a father or mother more than me is not worthy of me; the one who loves a son or daughter more than me is not worthy of me. And whoever doesn’t take up his cross and follow me is not worthy of me. Anyone who finds his life will lose it, and anyone who loses his life because of me will find it.
+>Matthew 10:34–39 Don’t assume that I came to bring peace on the earth. I did not come to bring peace, but a sword. For I came to turn a man against his father, a daughter against her mother, a daughter-in-law against her mother-in-law; and a man’s enemies will be the members of his household. The one who loves a father or mother more than me is not worthy of me; the one who loves a son or daughter more than me is not worthy of me. And whoever doesn’t take up his cross and follow me is not worthy of me. Anyone who finds his life will lose it, and anyone who loses his life because of me will find it.
 
 And.
 
->Matthew 12:46–50 (CSB) While he was still speaking with the crowds, his mother and brothers were standing outside wanting to speak to him. Someone told him, “Look, your mother and your brothers are standing outside, wanting to speak to you.” He replied to the one who was speaking to him, “Who is my mother and who are my brothers?” Stretching out his hand toward his disciples, he said, “Here are my mother and my brothers! For whoever does the will of my Father in heaven is my brother and sister and mother.”
+>Matthew 12:46–50 While he was still speaking with the crowds, his mother and brothers were standing outside wanting to speak to him. Someone told him, “Look, your mother and your brothers are standing outside, wanting to speak to you.” He replied to the one who was speaking to him, “Who is my mother and who are my brothers?” Stretching out his hand toward his disciples, he said, “Here are my mother and my brothers! For whoever does the will of my Father in heaven is my brother and sister and mother.”
 
 ## Our God
 
@@ -22,13 +22,13 @@ Right away, you know that choosing Christ as your God and Savior and Lord might 
 
 And that is just one example in my own life.
 
->Mark 10:23–31 (CSB) Jesus looked around and said to his disciples, “How hard it is for those who have wealth to enter the kingdom of God!” The disciples were astonished at his words. Again Jesus said to them, “Children, how hard it is to enter the kingdom of God! It is easier for a camel to go through the eye of a needle than for a rich person to enter the kingdom of God.” They were even more astonished, saying to one another, “Then who can be saved?” Looking at them, Jesus said, “With man it is impossible, but not with God, because all things are possible with God.” Peter began to tell him, “Look, we have left everything and followed you.” “Truly I tell you,” Jesus said, “there is no one who has left house or brothers or sisters or mother or father or children or fields for my sake and for the sake of the gospel, who will not receive a hundred times more, now at this time—houses, brothers and sisters, mothers and children, and fields, with persecutions—and eternal life in the age to come. But many who are first will be last, and the last first.”
+>Mark 10:23–31 Jesus looked around and said to his disciples, “How hard it is for those who have wealth to enter the kingdom of God!” The disciples were astonished at his words. Again Jesus said to them, “Children, how hard it is to enter the kingdom of God! It is easier for a camel to go through the eye of a needle than for a rich person to enter the kingdom of God.” They were even more astonished, saying to one another, “Then who can be saved?” Looking at them, Jesus said, “With man it is impossible, but not with God, because all things are possible with God.” Peter began to tell him, “Look, we have left everything and followed you.” “Truly I tell you,” Jesus said, “there is no one who has left house or brothers or sisters or mother or father or children or fields for my sake and for the sake of the gospel, who will not receive a hundred times more, now at this time—houses, brothers and sisters, mothers and children, and fields, with persecutions—and eternal life in the age to come. But many who are first will be last, and the last first.”
 
 We could forsake everything like Peter and the world will still persecute us.
 
 And that is a sign of the times we live in:
 
->Luke 21:7–19 (CSB)  
+>Luke 21:7–19  
 ><sup> 7  </sup>“Teacher,” they asked him, “so when will these things happen? And what will be the sign when these things are about to take place?” 
 >
 ><sup> 8  </sup>Then he said, “Watch out that you are not deceived. For many will come in my name, saying, ‘I am he,’ and, ‘The time is near.’ Don’t follow them. 
@@ -57,7 +57,7 @@ And that is a sign of the times we live in:
 
 Jesus Christ even promised the “laying on of hands”. My Charismatic friends, that is not the good kind but the opposite of good-“bar fight with a bunch of drunk dudes at 2am in the morning” kind of laying of hands.
 
->John 15:18–25 (CSB) “If the world hates you, understand that it hated me before it hated you. If you were of the world, the world would love you as its own. However, because you are not of the world, but I have chosen you out of it, the world hates you. Remember the word I spoke to you: ‘A servant is not greater than his master.’ If they persecuted me, they will also persecute you. If they kept my word, they will also keep yours. But they will do all these things to you on account of my name, because they don’t know the one who sent me. If I had not come and spoken to them, they would not be guilty of sin. Now they have no excuse for their sin. The one who hates me also hates my Father. If I had not done the works among them that no one else has done, they would not be guilty of sin. Now they have seen and hated both me and my Father. But this happened so that the statement written in their law might be fulfilled: They hated me for no reason.
+>John 15:18–25 “If the world hates you, understand that it hated me before it hated you. If you were of the world, the world would love you as its own. However, because you are not of the world, but I have chosen you out of it, the world hates you. Remember the word I spoke to you: ‘A servant is not greater than his master.’ If they persecuted me, they will also persecute you. If they kept my word, they will also keep yours. But they will do all these things to you on account of my name, because they don’t know the one who sent me. If I had not come and spoken to them, they would not be guilty of sin. Now they have no excuse for their sin. The one who hates me also hates my Father. If I had not done the works among them that no one else has done, they would not be guilty of sin. Now they have seen and hated both me and my Father. But this happened so that the statement written in their law might be fulfilled: They hated me for no reason.
 
 The Gospel authors Matthew, Mark, Luke, and John all testify that Christ said these words.
 
@@ -80,7 +80,7 @@ Get up! Don’t reject us forever!”
 
 Because we have all let our own circumstances in life determine our faith in God or even more so than that, let the persecutions and the trials and sufferings of this present time dictate just how much love God has for his children. Remember when Paul said:
 
->Romans 8:18 (CSB) For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us.
+>Romans 8:18 For I consider that the sufferings of this present time are not worth comparing with the glory that is going to be revealed to us.
 
 We can take a loss of a job, a loss of a spouse, a loss of marriage or family, a significant drop in income—whatever is your idol—and let that shape your views on God.
 
@@ -88,7 +88,7 @@ Or even one step further: I was the good kid growing up and I did all the right 
 
 More so than that: God gave us everything. Why do I know that? Because God gave us Christ Jesus, who:
 
->Isaiah 53:7 (CSB) He was oppressed and afflicted, yet he did not open his mouth. Like a lamb led to the slaughter and like a sheep silent before her shearers, he did not open his mouth.
+>Isaiah 53:7 He was oppressed and afflicted, yet he did not open his mouth. Like a lamb led to the slaughter and like a sheep silent before her shearers, he did not open his mouth.
 
 God gave us Christ to not only live for us and die for us but ascended to the cross in perfect obedience and joy.
 

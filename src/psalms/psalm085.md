@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 85 (CSB)    
+>Psalm 85    
 > For the choir director. A psalm of the sons of Korah. 
 >
 ><sup> 1 </sup> LORD, you showed favor to your land; you restored the fortunes of Jacob. 

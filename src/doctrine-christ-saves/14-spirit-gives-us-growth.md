@@ -10,7 +10,7 @@
 
 ## The Devotion
 
->Isaiah 48:9–11 (CSB)  
+>Isaiah 48:9–11  
 
 ><sup> 9 </sup> I will delay my anger for the sake of my name, and I will restrain myself for your benefit and for my praise, so that you will not be destroyed. 
 
@@ -30,7 +30,7 @@ And just because God saved me didn't mean everything magically got better. For s
 
 Now, I can throw the following verse at you, and take a moment to highlight the key phrase in the verse to make sure you understand the nuance in the text:
 
->Romans 8:28 (CSB) We know that all things work together for the good of those who love God, who are called according to his purpose.
+>Romans 8:28 We know that all things work together for the good of those who love God, who are called according to his purpose.
 
 I think most of us get that. All things mean all things. All means good and bad. But exactly what does that mean, and what does it mean for me?
 
@@ -46,13 +46,13 @@ And this will take a lifetime.
 
 For some I know who got saved, they were immediately broken free from crippling addictions. It happened to me. The moment I got saved from a decades-long addiction to porn. But what I learned later is that it doesn't mean the temptations don't come after you. And it doesn't say you won't fall. I certainly did. But was the difference between my old self and new self? I got right back up. By the grace of God, I kept getting back up after every fall.
 
->Proverbs 24:16 (CSB) Though a righteous person falls seven times, he will get up, but the wicked will stumble into ruin.
+>Proverbs 24:16 Though a righteous person falls seven times, he will get up, but the wicked will stumble into ruin.
 
 Let us rejoice in the fact that this is not some absolute limit of how many times a Christian can sin before he is let go by God. What does it mean that the righteous ones of God will _always_ get up one more time, even after all the times they have fallen? That is because of the strength, love, and grace of our Lord Jesus Christ.
 
 Paul, in 2 Corinthians 5:17, tells us that "if anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come." Which is indeed true, but I think we need to flip back over to his previous letter to get a stronger point:
 
->Romans 6:1–14 (CSB)  
+>Romans 6:1–14  
 ><sup>1</sup> What should we say then? Should we continue in sin so that grace may multiply? 
 >
 ><sup>2</sup> Absolutely not! How can we who died to sin still live in it? 
@@ -85,7 +85,7 @@ In other words, that old self is dead. When God saves you, Christ took your old 
 
 Ezekiel takes it one step further and declares a complete heart transplant by God, the Good Surgeon:
 
->Ezekiel 11:19-20 (CSB) I will give them integrity of heart and put a new spirit within them; I will remove their heart of stone from their bodies and give them a heart of flesh, so that they will follow my statutes, keep my ordinances, and practice them. They will be my people, and I will be their God.
+>Ezekiel 11:19-20 I will give them integrity of heart and put a new spirit within them; I will remove their heart of stone from their bodies and give them a heart of flesh, so that they will follow my statutes, keep my ordinances, and practice them. They will be my people, and I will be their God.
 
 Notice the order. First, he gives us a new heart. Next, a new spirit. He does so by removing our stony, hard, cancerous, sin-filled hearts and replacing them with a soft, healthy, fleshy heart. But it is only now that we have this new heart; we _get_ to walk in his statutes, keep his rules, and obey them.
 
@@ -97,7 +97,7 @@ To know God's part, we have to look at the promises he has for his children when
 
 First, he will sanctify, or that is, make us holy by our faith. Look at what Paul says when he gives a testimony of God saving him on the road to Damascus:
 
->Acts 26:15-18 (CSB) “I asked, ‘Who are you, Lord?’ “And the Lord replied, ‘I am Jesus, the one you are persecuting. But get up and stand on your feet. For I have appeared to you for this purpose, to appoint you as a servant and a witness of what you have seen and will see of me. I will rescue you from your people and from the Gentiles. I am sending you to them to open their eyes so that they may turn from darkness to light and from the power of Satan to God, that they may receive forgiveness of sins and a share among those who are sanctified by faith in me.’
+>Acts 26:15-18 “I asked, ‘Who are you, Lord?’ “And the Lord replied, ‘I am Jesus, the one you are persecuting. But get up and stand on your feet. For I have appeared to you for this purpose, to appoint you as a servant and a witness of what you have seen and will see of me. I will rescue you from your people and from the Gentiles. I am sending you to them to open their eyes so that they may turn from darkness to light and from the power of Satan to God, that they may receive forgiveness of sins and a share among those who are sanctified by faith in me.’
 
 It is your faith, which is a gift from God, that makes you holy. Not only are you declared holy because God is holy, but you will be holy because of your faith in the God who the angels in heaven declare is "holy, holy, holy!"
 

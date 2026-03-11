@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 67 (CSB)  
+>Psalm 67  
 ><sup></sup> For the choir director: with stringed instruments. A psalm. A song. 
 >
 ><sup>1</sup> May God be gracious to us and bless us; may he make his face shine upon us Selah 

@@ -8,7 +8,7 @@
 
 ## The Text
 
->John 3:14–15 (CSB) “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
+>John 3:14–15 “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life.
 
 ## The Chapter
 
@@ -17,15 +17,15 @@
 
 ## The Confession
 
->Mark 16:16 (CSB) Whoever believes and is baptized will be saved, but whoever does not believe will be condemned.
+>Mark 16:16 Whoever believes and is baptized will be saved, but whoever does not believe will be condemned.
 
->Acts 8:36 (CSB) As they were traveling down the road, they came to some water. The eunuch said, “Look, there’s water. What would keep me from being baptized?”
+>Acts 8:36 As they were traveling down the road, they came to some water. The eunuch said, “Look, there’s water. What would keep me from being baptized?”
 
->Acts 2:41 (CSB) So those who accepted his message were baptized, and that day about three thousand people were added to them.
+>Acts 2:41 So those who accepted his message were baptized, and that day about three thousand people were added to them.
 
->Acts 8:12 (CSB) But when they believed Philip, as he proclaimed the good news about the kingdom of God and the name of Jesus Christ, both men and women were baptized.
+>Acts 8:12 But when they believed Philip, as he proclaimed the good news about the kingdom of God and the name of Jesus Christ, both men and women were baptized.
 
->Acts 18:8 (CSB) Crispus, the leader of the synagogue, believed in the Lord, along with his whole household. Many of the Corinthians, when they heard, believed and were baptized.
+>Acts 18:8 Crispus, the leader of the synagogue, believed in the Lord, along with his whole household. Many of the Corinthians, when they heard, believed and were baptized.
 
 Dearest believer, the Christ has died, once more has been resurrected. You are freed from sin. You are no longer a slave to sin to live in fear but instead you and I have the Spirit of adoption, as sons, by whom we cry, "Abba! Father!" The Spirit himself bears witness with our spirit that we are children of God (Romans 8:15-16).
 

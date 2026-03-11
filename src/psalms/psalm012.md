@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 12 (CSB)  
+>Psalm 12  
 ><sup></sup> For the choir director: according to Sheminith. A psalm of David. 
 >
 ><sup>1</sup> Help, LORD, for no faithful one remains; the loyal have disappeared from the human race. 

@@ -11,7 +11,7 @@
 
 ## The Psalm
 
->Psalm 73 (CSB)  
+>Psalm 73  
 ><sup></sup> A psalm of Asaph. 
 >
 ><sup>1</sup> God is indeed good to Israel, to the pure in heart. 
