@@ -19,7 +19,7 @@ Seem familiar? Don’t we hear the same desperation in anyone, who by the grace 
 
 Even more than that, it seems to be the same question Isaiah asked:
 
->Isaiah 64:5–6 (CSB)
+>Isaiah 64:5–6
 >You welcome the one who joyfully does what is right;  
 >they remember you in your ways.  
 >But we have sinned, and you were angry.  

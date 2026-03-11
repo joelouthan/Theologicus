@@ -89,7 +89,7 @@ Sounds a tad familiar? Who is the only one who can give us rest for our weary so
 
 Who is the only one?
 
->Matthew 11:28-30 (CSB)“Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
+>Matthew 11:28-30“Come to me, all of you who are weary and burdened, and I will give you rest. Take up my yoke and learn from me, because I am lowly and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
 
 ## Our Response
 

@@ -111,7 +111,7 @@ They saw him revealed and rejoiced. We see him revealed and we are glad in it.
 
 ## God
 
->Ruth 1:1-5 (CSB)
+>Ruth 1:1-5
 ><sup>1</sup> During the time of the judges, there was a famine in the land. A man left Bethlehem in Judah with his wife and two sons to stay in the territory of Moab for a while.
 >
 ><sup>2</sup> The man’s name was Elimelech, and his wife’s name was Naomi. The names of his two sons were Mahlon and Chilion. They were Ephrathites from Bethlehem in Judah. They entered the fields of Moab and settled there.
@@ -180,7 +180,7 @@ These are hard questions and the answers don't come easy. You might have had gre
 
 Is it any wonder then why God has chosen not leave nor forsake us but sent us only begotten Son to live and die for us and to save us from our sins?
 
->Ruth 1:6-7 (CSB)
+>Ruth 1:6-7
 ><sup>6</sup> She and her daughters-in-law set out to return from the territory of Moab, because she had heard in Moab that the LORD had paid attention to his people’s need by providing them food.
 >
 ><sup>7</sup> She left the place where she had been living, accompanied by her two daughters-in-law, and traveled along the road leading back to the land of Judah.

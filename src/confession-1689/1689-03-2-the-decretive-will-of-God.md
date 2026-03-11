@@ -46,7 +46,7 @@ One of the Doctrines of Grace that is perhaps the most controversial and yet the
 
 If Christ died on the cross for our sins prior to the fall of mankind, then one could state that Christ's death on the cross was to make salvation possible for mankind. Proponents of this view will simply state that since Christ has made it possible, all the person has to do is believe and trust him within their own ability and will and power.
 
-But we know that mankind's ability is lacking; our will marred and our power weak because of sin. And to choose God is a good and righteous choice. But since "There is no one righteous, not even one. There is no one who understands; there is no one who seeks God. All have turned away; all alike have become worthless. There is no one who does what is good, not even one." (Romans 3:10–12 (CSB)), we cannot choose God.
+But we know that mankind's ability is lacking; our will marred and our power weak because of sin. And to choose God is a good and righteous choice. But since "There is no one righteous, not even one. There is no one who understands; there is no one who seeks God. All have turned away; all alike have become worthless. There is no one who does what is good, not even one." (Romans 3:10–12), we cannot choose God.
 
 Ephesians 2:1 says, "We are dead in our trespasses." Dead men do not make choices because they are dead.
 

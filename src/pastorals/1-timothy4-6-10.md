@@ -75,7 +75,7 @@ There are a few new Christians reading this. That exhortation ain't for you. But
 
 Look at the opposite of that direction:
 
->Hosea 4:6-8 (CSB)
+>Hosea 4:6-8
 >My people are destroyed for lack of knowledge.  
 >Because you have rejected knowledge,  
 >I will reject you from serving as my priest.  

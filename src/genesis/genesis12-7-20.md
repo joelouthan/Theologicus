@@ -37,7 +37,7 @@ Do you think it will be different this time around?
 
 ## The Text
 
->Genesis 12:7-20 (CSB)
+>Genesis 12:7-20
 ><sup> 7 </sup> The LORD appeared to Abram and said, “To your offspring, I will give this land.” So he built an altar there to the LORD who had appeared to him. 
 >
 ><sup> 8 </sup> From there he moved on to the hill country east of Bethel and pitched his tent, with Bethel on the west and Ai on the east. He built an altar to the LORD there, and he called on the name of the LORD. 

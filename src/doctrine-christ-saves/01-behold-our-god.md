@@ -36,7 +36,7 @@ What is so difficult for people to get is that you and I are born weak, depraved
 
 Christ did not come to give us a better life than our unbelieving neighbors. Christ did not come so that our favorite politician could be elected as president. Christ did not come so that we would have a good job, a lovely home, money in the bank, and long lives.
 
->John 10:10 (CSB): A thief comes only to steal and kill and destroy. I have come so that they may have life and have it in abundance.
+>John 10:10: A thief comes only to steal and kill and destroy. I have come so that they may have life and have it in abundance.
 
 >Luke 5:31–32 Jesus replied to them, "It is not those who are healthy who need a doctor, but those who are sick. I have not come to call the righteous, but sinners to repentance."
 
