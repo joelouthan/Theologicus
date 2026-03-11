@@ -57,14 +57,12 @@ In other words, why us?
 
 We know that we believe:
 
-```
-... in one God,
-the Father almighty,
-maker of heaven and earth,
-of all things visible and invisible.
-
-Nicene Creed
-```
+>... in one God,  
+>the Father almighty,  
+>maker of heaven and earth,  
+>of all things visible and invisible.
+>
+>Nicene Creed
 
 Since God is Creator, what is God's relationship to his creation? What is God's relation to us--mankind, human, the aptly named image bearers of God?
 
