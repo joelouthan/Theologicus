@@ -51,7 +51,6 @@ Man, in our sin and hubris and fallen ness and corruption, want to sin all the m
 God completely free and free from sin
 
 Man born to sin, wants to sin more, but has no freedom 
-```
 
 We were born in sin. We were born apart from God. And unless God gets involved, we are born as children of his wrath and we will perish in our sins.
 
