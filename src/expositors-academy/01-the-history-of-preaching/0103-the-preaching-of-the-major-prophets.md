@@ -81,7 +81,7 @@ We will be delivered from our despair. We will be brought properly into the pres
 
 The message we bring is an unchanging message that endures forever.
 
->Isaiah 40:9-11 (CSB)Zion, herald of good news,  
+>Isaiah 40:9-11Zion, herald of good news,  
 >go up on a high mountain.  
 >Jerusalem, herald of good news,  
 >raise your voice loudly.  

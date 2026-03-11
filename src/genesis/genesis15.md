@@ -4,7 +4,7 @@
 
 ## The Text
 
->Genesis 15 (CSB)
+>Genesis 15
 ><sup>1</sup> After these events, the word of the LORD came to Abram in a vision: Do not be afraid, Abram. I am your shield; your reward will be very great. 
 >
 ><sup>2</sup> But Abram said, “Lord GOD, what can you give me, since I am childless and the heir of my house is Eliezer of Damascus?” 

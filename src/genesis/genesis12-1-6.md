@@ -128,7 +128,7 @@ James: But wait! You see that a person is justified by works and not by faith al
 
 Here's the plot twist:
 
-Paul: Oh James, I completely agree! For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do. (Ephesians 2:8–10 (CSB))
+Paul: Oh James, I completely agree! For you are saved by grace through faith, and this is not from yourselves; it is God’s gift—9 not from works, so that no one can boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared ahead of time for us to do. (Ephesians 2:8–10)
 
 Paul would double down with rest of the Bible: we are not saved by good works but *to* good works. We are not saved by others to one another. We are only saved by thing along and it is not a thing but a person and that is Jesus Christ our Lord and Savior. Praise be to to God.
 

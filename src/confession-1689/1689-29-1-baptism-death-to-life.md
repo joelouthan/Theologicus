@@ -70,7 +70,7 @@ How does he do that? We see this in Romans 6. When Christ died, he took your sin
 
 So now, we live and move and have our being in Christ. We celebrate his goodness upon our lives. In deepest despair, sorrow over our sins, God forbid, we backslide and keep running into our sin, God knows. God knows. God knows you and I are made from dust.
 
->Psalm 103:14 (CSB)
+>Psalm 103:14
 >As a father has compassion on his children,  
 >so the LORD has compassion on those who fear him.  
 >For he knows what we are made of,  

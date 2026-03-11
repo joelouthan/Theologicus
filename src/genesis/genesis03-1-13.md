@@ -57,7 +57,7 @@ Satan here will immediately attack the children of God and lie about God's perfe
 
 The counter punch to this Satanic lie comes from Christ himself:
 
->Matthew 6:31-34 (CSB)So don’t worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’For the Gentiles eagerly seek all these things, and your heavenly Father knows that you need them. But seek first the kingdom of God and his righteousness, and all these things will be provided for you. Therefore don’t worry about tomorrow, because tomorrow will worry about itself. Each day has enough trouble of its own.
+>Matthew 6:31-34So don’t worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’For the Gentiles eagerly seek all these things, and your heavenly Father knows that you need them. But seek first the kingdom of God and his righteousness, and all these things will be provided for you. Therefore don’t worry about tomorrow, because tomorrow will worry about itself. Each day has enough trouble of its own.
 
 God is generous by default. Listen, he created everything out of nothing. Do you think he is limited in his provision?
 

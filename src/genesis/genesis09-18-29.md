@@ -157,7 +157,7 @@ our transgressions from us.
 
 >Ephesians 2:4-5 But God, who is rich in mercy, because of his great love that he had for us,made us alive with Christ even though we were dead in trespasses. You are saved by grace!
 
->Titus 3:4-7 (CSB)But when the kindness of God our Savior and his love for mankind appeared,he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Saviorso that, having been justified by his grace, we may become heirs with the hope of eternal life.
+>Titus 3:4-7But when the kindness of God our Savior and his love for mankind appeared,he saved us—not by works of righteousness that we had done, but according to his mercy—through the washing of regeneration and renewal by the Holy Spirit. He poured out his Spirit on us abundantly through Jesus Christ our Saviorso that, having been justified by his grace, we may become heirs with the hope of eternal life.
 
 >Titus 2:14 He gave himself for us to redeem us from all lawlessness and to cleanse for himself a people for his own possession, eager to do good works.
 

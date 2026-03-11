@@ -204,7 +204,7 @@ Those who contend for the free will of man in their own salvation will, after mu
 
 But God is not a school subject. He is not an academic course. He is not a science project. He is not an undiscovered element. The modern mind wants to so desperately treat God as if he is just another major study at the local college. But the Scripture make it crystal clear:
 
->1 Corinthians 2:7–16 (CSB)
+>1 Corinthians 2:7–16
 
 ><sup> 7  </sup>On the contrary, we speak God’s hidden wisdom in a mystery, a wisdom God predestined before the ages for our glory. 
 >
@@ -320,7 +320,7 @@ It is this same holiness that is now given to the people of God. All because God
 
 ### most wise
 
->Proverbs 8:22–31 (CSB)
+>Proverbs 8:22–31
 
 ><sup> 22  </sup>“The LORD acquired me at the beginning of his creation, before his works of long ago. 
 >
@@ -542,7 +542,7 @@ This is the rest that Christ has given to his people. We never have to earn his 
 
 ### forgiving iniquity, transgression and sin
 
->Psalm 103 (CSB)
+>Psalm 103
 
 >
 ><sup>1</sup> My soul, bless the LORD, and all that is within me, bless his holy name. 
