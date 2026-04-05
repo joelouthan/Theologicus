@@ -26,4 +26,6 @@ Let us suppose the Bible is God's love letter to me. In that case, then Theologi
 
 **When I finally see you, I will behold your face and kiss your face with a thousand kisses because you are so beautiful to me, and you have loved me the best.**
 
+I write these things so that your joy and my joy may be complete (1 John 1:4).
+
 Amen.
