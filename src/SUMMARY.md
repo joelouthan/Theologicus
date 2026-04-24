@@ -32,8 +32,8 @@
 -----------
 
 - [Second London Baptist Confession of Faith](confession-1689/index.md)
+  - [Introduction](confession-1689/1689-0-introduction.md)
   - [Foreword](confession-1689/1689-0-foreword.md)
-  - [Introduction](confession-1689/1689-00-introduction.md)
   - [I. Of The Holy Scriptures](confession-1689/1689-01-0-index.md)
     - [1.1 The Holy Scriptures](confession-1689/1689-01-1-the-holy-scriptures.md)
     - [1.2 The Old and New Testaments of Holy Scripture](confession-1689/1689-01-2-old-and-new-testaments.md)
