@@ -279,44 +279,85 @@ Amen.
 ## Bibliography
 
 - Akin, Daniel L., Johnny M. Hunt, and Tony Merida. *Exalting Jesus in Psalms 101–150*. Edited by David Platt, Daniel L. Akin, and Tony Merida. Christ-Centered Exposition. Nashville, TN: Holman Reference, 2021.
+
 - Boice, James Montgomery. *Psalms 1–41: An Expositional Commentary*. Grand Rapids, MI: Baker Books, 2005.
+
 - ———. *Psalms 42–106: An Expositional Commentary*. Grand Rapids, MI: Baker Books, 2005.
+
 - ———. *Psalms 107–150: An Expositional Commentary*. Grand Rapids, MI: Baker Books, 2005.
+
 - Briggs, Charles A., and Emilie Grace Briggs. *A Critical and Exegetical Commentary on the Book of Psalms*. International Critical Commentary. New York: C. Scribner's Sons, 1906.
+
 - Calvin, John, and James Anderson. *Commentary on the Book of Psalms*. Bellingham, WA: Logos Bible Software, 2010.
+
 - Custis, Miles. *Psalms: A Life of Worship*. Not Your Average Bible Study. Bellingham, WA: Lexham Press, 2014.
+
 - German, Brian T. *Psalms of the Faithful: Luther's Early Reading of the Psalter in Canonical Context*. Studies in Historical and Systematic Theology. Bellingham, WA: Lexham Press, 2017.
+
 - Gillingham, Susan. *Psalms through the Centuries*. Edited by John Sawyer, Christopher Rowland, Judith Kovacs, and David M. Gunn. Vol. 1. Blackwell Bible Commentaries. Malden, MA; Oxford; Carlton, Victoria: Blackwell Publishing, 2008.
+
 - ———. *Psalms through the Centuries: A Reception History Commentary on Psalms 1–72*. Edited by John Sawyer, Christopher Rowland, Judith Kovacs, and David M. Gunn. Vol. 2. Wiley Blackwell Bible Commentaries. Hoboken, NJ; West Sussex, UK: Wiley Blackwell, 2018.
+
 - ———. *Psalms through the Centuries: A Reception History Commentary on Psalms 73–151*. Edited by John Sawyer, Christopher Rowland, Judith Kovacs, and David M. Gunn. Vol. 3. Wiley Blackwell Bible Commentaries. Hoboken, NJ; West Sussex, UK: Wiley Blackwell, 2022.
+
 - Hamilton, James M. *Psalms*. Evangelical Biblical Theology Commentary. Bellingham, WA: Lexham Academic, 2021.
+
 - Harman, Allan. *Psalms: A Mentor Commentary*. Vols. 1–2. Mentor Commentaries. Ross-shire, Great Britain: Mentor, 2011.
+
 - Hawker, Robert. *Poor Man's Old Testament Commentary: Job–Psalms*. Vol. 4. Bellingham, WA: Logos Bible Software, 2013.
+
 - Henry, Matthew. *Matthew Henry's Commentary on the Whole Bible: Complete and Unabridged in One Volume*. Peabody: Hendrickson, 1994. 743.
+
 - Augustine of Hippo. *Expositions on the Book of Psalms: Psalms 1–150*. Vol. I–VI. A Library of Fathers of the Holy Catholic Church. Oxford; London: F. and J. Rivington; John Henry Parker, 1847.
+
 - Horne, Charles, and Julius Bewer. *The Bible and Its Story: History–Poetry, II Chronicles to Psalms*. Vol. 5. New York, NY: Francis R. Niglutsch, 1909.
+
 - ———. *The Bible and Its Story: Poetry–Prophets, Psalms to Isaiah*. Vol. 6. New York, NY: Francis R. Niglutsch, 1909.
+
 - Joseph, Oscar L. *The Expositor's Bible: Psalms to Isaiah*. Edited by W. Robertson Nicoll. Vol. 3. Expositor's Bible. Hartford, CT: S.S. Scranton Co., 1903.
+
 - Kuyper, Abraham. *Ever in Thy Sight: 31 Devotions on the Psalms*. Edited by James A. De Jong. Bellingham, WA: Lexham Press, 2020.
+
 - Longman, III, Tremper. *How to Read the Psalms*. Downers Grove, IL; Nottingham, England: IVP Academic; Inter-Varsity Press, 1988.
+
 - Murray, Andrew. *Have Mercy upon Me: The Prayer of the Penitent in the Fifty-First Psalm Explained and Applied*. Edited by J. P. Lilley. London: J. Nisbet & Co., 1896.
+
 - Parks, Jimmy. *All the Songs in the Bible*. Faithlife Biblical and Theological Lists. Bellingham, WA: Faithlife, 2021.
+
 - Pentz, Croft M. *Sermon Outlines from the Psalms*. Dollar Sermon Library Series. Grand Rapids, MI: Baker Book House, 1974.
+
 - Platt, David, Matt Mason, and Jim Shaddix. *Exalting Jesus in Psalms 51-100*. Nashville, TN: Holman Reference, 2020.
+
 - *Psalms 1–72: Old Testament*. Vol. VII. Reformation Commentary on Scripture. Downers Grove, IL: IVP Academic, 2015.
+
 - Robertson, O. Palmer. *The Flow of the Psalms: Discovering Their Structure and Theology*. Phillipsburg, NJ: P&R Publishing, 2015.
+
 - Ross, Allen P. *A Commentary on the Psalms (90–150): Commentary*. Vol. 3. Kregel Exegetical Library. Grand Rapids, MI: Kregel Academic, 2016.
+
 - ———. *A Commentary on the Psalms (90–150): Text*. Vol. 3. Kregel Exegetical Library. Grand Rapids, MI: Kregel Academic, 2016.
+
 - *Saint Augustin: Expositions on the Book of Psalms*. Vol. 8. A Select Library of the Nicene and Post-Nicene Fathers of the Christian Church, First Series. New York: Christian Literature Company, 1888.
+
 - Smith, J. Josh, and Daniel L. Akin. *Exalting Jesus in Psalms 1–50*. Edited by David Platt, Daniel L. Akin, and Tony Merida. Christ-Centered Exposition Commentary. Nashville, TN: Holman Reference, 2022.
+
 - Spurgeon, C. H. *Our Own Hymn Book: A Collection of Psalms and Hymns for Public, Social and Private Worship*. London: Passmore & Alabaster, 1883.
+
 - ———. *The Treasury of David: Psalms 1-26*. Vol. 1. London; Edinburgh; New York: Marshall Brothers, n.d.
+
 - ———. *The Treasury of David: Psalms 27-57*. Vol. 2. London; Edinburgh; New York: Marshall Brothers, n.d.
+
 - ———. *The Treasury of David: Psalms 56-87*. Vol. 3. London; Edinburgh; New York: Marshall Brothers, n.d.
+
 - ———. *The Treasury of David: Psalms 88-110*. Vol. 4. London; Edinburgh; New York: Marshall Brothers, n.d.
+
 - ———. *The Treasury of David: Psalms 111-119*. Vol. 5. London; Edinburgh; New York: Marshall Brothers, n.d.
+
 - ———. *The Treasury of David: Psalms 120-150*. Vol. 6. London; Edinburgh; New York: Marshall Brothers, n.d.
+
 - Storms, Sam. *Biblical Studies: Meditations on the Psalms*. Edmond, OK: Sam Storms, 2016.
+
 - ———. *Biblical Studies: Psalms*. Edmond, OK: Sam Storms, 2016.
+
 - Wilcock, Michael. *The Message of Psalms: Songs for the People of God*. Edited by J. A. Motyer. The Bible Speaks Today. Nottingham, England: Inter-Varsity Press, 2001.
+
 - Witthoff, David, Kristopher A. Lyle, and Matt Nerdahl. *Psalms Form and Structure*. Edited by Eli Evans. Bellingham, WA: Faithlife, 2014.

@@ -1,5 +1,12 @@
 <img class="intro-right" src="../images/art-zephaniah.jpg">
 
+<style>
+  li {list-style-type: none;}
+  p + ul {
+    margin-top: -18px;
+}
+</style>
+
 # 📖 Zephaniah 3
 
 ## The Text
@@ -397,4 +404,22 @@ The LORD has spoken.
 > He has washed us with His blood\
 > He has washed us with His blood\
 > He has washed us with His blood\
-> He has brought us nigh to God
+> He has brought us nigh to God[^1]
+
+[^1]: “Let Us Love and Sing and Wonder | Modern Reformation.” Accessed June 14, 2026. <https://www.modernreformation.org/resources/articles/let-us-love-and-sing-and-wonder>.
+
+## Bibliography
+
+- Calvin, John, and John Owen. *Commentaries on the Twelve Minor Prophets*. Bellingham, WA: Logos Bible Software, 2010.
+
+- Coggins, Richard, and Jin H. Han. *Six Minor Prophets through the Centuries: Nahum, Habakkuk, Zephaniah, Haggai, Zechariah, and Malachi*. Edited by John Sawyer, Christopher Rowland, Judith Kovacs, and David M. Gunn. Vol. 29. Blackwell Bible Commentaries. West Sussex, UK: Wiley Blackwell, 2011.
+
+- Duguid, Iain M., and Matthew P. Harmon. *Zephaniah, Haggai, Malachi*. Edited by Richard D. Phillips, Philip Graham Ryken, and Daniel M. Doriani. Reformed Expository Commentary. Phillipsburg, NJ: P&R Publishing, 2018.
+
+- Fries, Micah, Stephen Rummage, and Robby Gallaty. *Exalting Jesus in Zephaniah, Haggai, Zechariah, and Malachi*. Edited by David Platt, Daniel L. Akin, and Tony Merida. Christ-Centered Exposition Commentary. Nashville, TN: Holman Reference, 2015.
+
+- “Let Us Love and Sing and Wonder | Modern Reformation.” Accessed June 14, 2026. <https://www.modernreformation.org/resources/articles/let-us-love-and-sing-and-wonder>.
+
+- Pakula, Martin. *Nahum, Habakkuk & Zephaniah: The End of Evil*. Edited by Paul Barnett. Reading the Bible Today Series. Sydney, South NSW: Aquila Press, 2014.
+
+- Smith, J. M. Powis, William Hayes Ward, and Julius August Bewer. *A Critical and Exegetical Commentary on Micah, Zephaniah, Nahum, Habakkuk, Obadiah and Joel*. International Critical Commentary. New York: C. Scribner’s Sons, 1911.
