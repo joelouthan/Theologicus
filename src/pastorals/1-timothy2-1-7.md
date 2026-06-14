@@ -93,7 +93,9 @@ I am not off subject. Look at what Paul tells us to do: "lead a tranquil and qui
 
 >Romans 2:3-4 Do you think—anyone of you who judges those who do such things yet do the same—that you will escape God’s judgment? Or do you despise the riches of his kindness, restraint, and patience, not recognizing that God’s kindness is intended to lead you to repentance?
 
-You know what these passages are not about? Trying to full some Calvinist vs. non-Calvinist online debate. You know what this passage is about? Look and marvel at the sweetness of God our Savior and his tender mercies and kindness towards mankind.
+You know what these passages are not about? Trying to fuel some Calvinist vs. non-Calvinist online debates. It really is not about that. It is not polemic in the least bit.
+
+You know what this passage is about? Look and marvel at the sweetness of God our Savior and his tender mercies and kindness towards mankind.
 
 God is holy, just, and right. Fully and perfectly, But God is love, kind, gracious, and merciful. Fully and perfectly. It's the end of discussion. Dwell on the goodness of God.
 
