@@ -7,7 +7,7 @@
 }
 </style>
 
-# Psalm 1
+# 📖 Psalm 1
 
 ## The Text
 
