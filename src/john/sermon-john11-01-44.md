@@ -1,3 +1,5 @@
+<img class="intro-right" src="../images/art-john.jpg">
+
 # John 11:1-44
 
 ## The Text
