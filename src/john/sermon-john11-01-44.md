@@ -1,6 +1,6 @@
 <img class="intro-right" src="../images/art-john.jpg">
 
-# Sermon: John 11:1-44
+# 📖 John 11:1-44
 
 ## The Text
 

@@ -1,5 +1,5 @@
 # 📖 Mark 8:27-9:1
-# Sermon: Mark 8:27-9:1
+# 📖 Mark 8:27-9:1
 
 ## The Text
 

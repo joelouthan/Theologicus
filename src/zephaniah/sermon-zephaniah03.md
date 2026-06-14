@@ -1,6 +1,6 @@
 <img class="intro-right" src="../images/art-zephaniah.jpg">
 
-# Sermon: Zephaniah 3
+# 📖 Zephaniah 3
 
 ## The Text
 

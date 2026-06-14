@@ -1,4 +1,4 @@
-# Sermon: Mark 7:31-8:26
+# 📖 Mark 7:31-8:26
 
 ## The Text
 
