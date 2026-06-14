@@ -406,6 +406,7 @@
 - [Job]()
 - [Psalms](psalms/index.md)
   - [Psalm 1](psalms/psalm001.md)
+    - [📖 Psalm 1](psalms/sermon-psalm01.md)
   - [Psalm 2](psalms/psalm002.md)
   - [Psalm 3](psalms/psalm003.md)
   - [Psalm 4](psalms/psalm004.md)
