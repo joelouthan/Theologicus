@@ -33,8 +33,9 @@ no-section-label = true
 edit-url-template = "https://github.com/joelouthan/theologicus/edit/main/{path}"
 additional-css = ["theme/css/book.css"]
 
-#[output.linkcheck]
-#warning-policy = "ignore"
+[output.linkcheck]
+follow-web-links = true
+warning-policy = "warn"
 
 [output.html.search]
 enable = true            # enables the search feature

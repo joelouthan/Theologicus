@@ -10,7 +10,7 @@
 
 ## [Foreword](1689-0-foreword.md)
 
-## [Introduction](1689-00-introduction.md)
+## [Introduction](1689-0-introduction.md)
 
 To the Judicial and Impartial Reader,
 
