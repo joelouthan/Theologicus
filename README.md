@@ -6,25 +6,25 @@ of my only, only Lord Jesus.
 
 ## upcoming
 
-- [1 Samuel](https://theologic.us/samuel-1/index.html)
-- [Matthew](https://theologic.us/matthew/index.md)
+- [1 Samuel](samuel-1/index.html)
+- [Matthew](matthew/index.md)
 
 ## releases
 
-- v3.6 (2025 Dec 13) [Christ Came to Save Sinners](https://theologic.us/doctrine-christ-saves/index.html)
-- v3.5.1 (2025 May 16) Migrated "Resources" feature to [Bibliography](https://theologic.us/bibliography/index.md)
-- v3.5 (2025 Mar 5) [Praying Through Psalms](https://theologic.us/psalms/)
-- v3.4 (2025 Jan 19) [1689 Second London Baptist Confession](https://theologic.us/confession-1689/index.md)
+- v3.6 (2025 Dec 13) [Christ Came to Save Sinners](doctrine-christ-saves/index.html)
+- v3.5.1 (2025 May 16) Migrated "Resources" feature to [Bibliography](bibliography/index.md)
+- v3.5 (2025 Mar 5) [Praying Through Psalms](psalms/)
+- v3.4 (2025 Jan 19) [1689 Second London Baptist Confession](confession-1689/index.md)
 - v3.3.2 (2024 Apr 10) Port 1689 to [submodule](https://github.com/joelouthan/theologicus-1689) <img src="icon-git.png" alt="Icon - Git" width="15">
 - v3.3.1 (2024 Jan 7) [Swift port](https://github.com/joelouthan/com.theologicus) <img src="icon-swift.png" alt="Icon - Swiftui" width="15">
-- v3.3 (2023 Jul 16) [Apostles' Creed](https://theologic.us/creed-apostles/index.md)
-- v3.2 (2023 Jul 04) [Book Reviews](https://theologic.us/reviews/index.md)
-- v3.1 (2023 Jun 14) [Ruth](https://theologic.us/ruth/index.md)
+- v3.3 (2023 Jul 16) [Apostles' Creed](creed-apostles/index.md)
+- v3.2 (2023 Jul 04) [Book Reviews](reviews/index.md)
+- v3.1 (2023 Jun 14) [Ruth](ruth/index.md)
 - v3.0 (2023 Jun 09) [Hugo to mdBook](https://theologic.us) <img style="background: #ffffff" src="icon-mdbook.jpg" alt="Icon - mdbook - command line tool for creating books written in Markdown--written in Rust" width="15">
-- v2.4 (2023 Apr 13) [The Epistle to the Romans](https://theologic.us/romans/index.md)
-- v2.3 (2023 Feb 08) [The Gospel of Mark](https://theologic.us/mark/index.md)
-- v2.2 (2022 Sep 08) [The Pastoral Epistles](https://theologic.us/pastorals/index.md)
-- v2.1 (2021 Apr 29) [The Gospel of Luke](https://theologic.us/luke/index.md)
+- v2.4 (2023 Apr 13) [The Epistle to the Romans](romans/index.md)
+- v2.3 (2023 Feb 08) [The Gospel of Mark](mark/index.md)
+- v2.2 (2022 Sep 08) [The Pastoral Epistles](pastorals/index.md)
+- v2.1 (2021 Apr 29) [The Gospel of Luke](luke/index.md)
 - v2.0 (2020 Apr 20) [Wordpress to Hugo](https://github.com/joelouthan/theologic.us) <img src="icon-hugo.png" alt="Icon - Hugo Static Site Generator" width="15">
 
 ## running
@@ -36,7 +36,7 @@ of my only, only Lord Jesus.
 ## using
 
 <p align="center">
-  <a href="https://theologic.us/author">
+  <a href="author">
     <img
       src="https://go-skill-icons.vercel.app/api/icons?i=terminal,vscode,vim,md,regex,xcode,swift,css,html,githubcopilot,rust,mdbook,ansible,bash,git,github,netlify,linux&titles=true&theme=light&perline=9"
     />

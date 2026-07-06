@@ -28,7 +28,7 @@
 >
 ><sup>11</sup> You reveal the path of life to me; in your presence is abundant joy; at your right hand are eternal pleasures.
 
-Finishing our first series, [Apostles' Creed](https://theologic.us/creed-apostles/index.html), in the Bible Study with my son, [Yusef](https://www.instagram.com/big_yuzi/), he asked if we could do a study on the life of David.
+Finishing our first series, [Apostles' Creed](creed-apostles/index.html), in the Bible Study with my son, [Yusef](https://www.instagram.com/big_yuzi/), he asked if we could do a study on the life of David.
 
 The only thing I can say is, "There's nothing to it but to do it."
 

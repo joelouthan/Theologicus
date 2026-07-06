@@ -28,7 +28,7 @@ You have to deal with the magnitude, vastness and the *almight* of the Lord God 
 
 >... all infinite, without beginning, therefore but one God, who is not to be divided in nature and being, but distinguished by several peculiar relative properties and personal relations; which doctrine of the Trinity is the foundation of all our communion with God, and comfortable dependence on him.
 >
->[1689.2.3 The Triune God](https://theologic.us/confession-1689/1689-02-3-the-triune-god)
+>[1689.2.3 The Triune God](confession-1689/1689-02-3-the-triune-god)
 
 And when God himself, whether it be just the Father, just the Son, or just the Spirit, does anything within this material plane, there are the effectual, precise definite work of God and the effects of God on a individual or a people group.
 

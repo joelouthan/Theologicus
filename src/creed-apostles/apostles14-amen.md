@@ -29,7 +29,7 @@
 
 ## The Belief
 
-Taken from the [1689 Baptist Confession of Faith, Chapter 1.2 The Old and New Testaments of Holy Scripture](https://theologic.us/confession-1689/1689-01-2-old-and-new-testaments.html), let us examine the promises of God.
+Taken from the [1689 Baptist Confession of Faith, Chapter 1.2 The Old and New Testaments of Holy Scripture](confession-1689/1689-01-2-old-and-new-testaments.html), let us examine the promises of God.
 
 ### All of which are given by the inspiration of God, to be the rule of faith and life
 
