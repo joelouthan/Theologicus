@@ -27,3 +27,6 @@ theme/Gutenberg
 
 # Local Netlify folder
 .netlify
+
+# Logs
+*.log
