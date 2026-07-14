@@ -22,7 +22,7 @@
 
 >Genesis 3:15 I will put hostility between you and the woman, and between your offspring and her offspring. He will strike your head, and you will strike his heel.
 
-### in this promise the gospel, as to the substance of it, was revealed, and [is] therein effectual for the conversion and salvation of sinners
+### in this promise the gospel, as to the substance of it, was revealed, and is therein effectual for the conversion and salvation of sinners
 
 For here is the gospel of Christ:
 

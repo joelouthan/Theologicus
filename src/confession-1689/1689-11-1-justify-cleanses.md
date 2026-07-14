@@ -48,7 +48,7 @@ One hundred percent of those predestined (let's call this *w*) equals one hundre
 
 Ergo: `w = x = y = z`
 
-Whatever that [set number](confession-1689/1689-03-6-the-free-purpose-of-the-will-of-god#are-effectually-called-unto-faith-in-christ) is, that is the set number of those who will be saved.
+Whatever that [set number](./1689-03-6-the-free-purpose-of-the-will-of-God.md) is, that is the set number of those who will be saved.
 
 Do we know what that number is? As much as I love my Jehovah's Witnesses neighbors, we are not God so no, we do not know what that number is. That is not for us to know. Ours to know is Jesus Christ, Son of God who is God. For:
 
@@ -62,7 +62,7 @@ This glorious doctrine, that is, whom God effectually calls, he also freely just
 
 >Ephesians 1:7 In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace
 
-In [Ordo Salutis (the Order of Salvation)](doctrine-christ-saves/), there is particular set of what God does in order to save his people. Predestination occurred in the covenant of redemption between the Father and the Son before the creation of time and space--before Genesis 1:1. From that, the Son came after the saints of the Old Testament lived and came before the born again saints of the New Testament. Those are moments in time. 
+In [Ordo Salutis (the Order of Salvation)](../doctrine-christ-saves/index.md), there is particular set of what God does in order to save his people. Predestination occurred in the covenant of redemption between the Father and the Son before the creation of time and space--before Genesis 1:1. From that, the Son came after the saints of the Old Testament lived and came before the born again saints of the New Testament. Those are moments in time. 
 
 What does happen, seemingly all at one time, is the work of the Spirit upon the believer. One is that the Spirit gives the heart of the Father and makes his home in the person. There the gift of faith is bestowed. And now the person believes and trusts Christ.
 

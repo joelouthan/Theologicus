@@ -26,13 +26,13 @@
 
 You have to deal with the magnitude, vastness and the *almight* of the Lord God Almighty. Start with the Triuneness of God. Each of the persons of the Godhead--Father, Son, and Spirit--are, by themselves, the fullness of God.
 
->... all infinite, without beginning, therefore but one God, who is not to be divided in nature and being, but distinguished by several peculiar relative properties and personal relations; which doctrine of the Trinity is the foundation of all our communion with God, and comfortable dependence on him.
+>[. . .] all infinite, without beginning, therefore but one God, who is not to be divided in nature and being, but distinguished by several peculiar relative properties and personal relations; which doctrine of the Trinity is the foundation of all our communion with God, and comfortable dependence on him.
 >
->[1689.2.3 The Triune God](confession-1689/1689-02-3-the-triune-god)
+>[1689.2.3 The Triune God](./1689-02-3-the-triune-God.md)
 
-And when God himself, whether it be just the Father, just the Son, or just the Spirit, does anything within this material plane, there are the effectual, precise definite work of God and the effects of God on a individual or a people group.
+And when God himself, whether it be just the Father, just the Son, or just the Spirit, does anything within this material plane, there are the effectual, precise definite work of God and the effects of God on an individual or a people group.
 
-But when you are dealing with that amount of power--infinite, that is--you have to know that there will be residual affects of that power. Think of any sort of bomb. That bomb will destroy its intended target to be sure but the magnitude of the bomb will have residual affects on the surrounding area. And what is a bomb, even a nuclear warhead, pales in comparison to the power of God.
+But when you are dealing with that amount of power--infinite, that is--you have to know that there will be residual effects of that power. Think of any sort of bomb. That bomb will destroy its intended target to be sure but the magnitude of the bomb will have residual effects on the surrounding area. And what is a bomb, even a nuclear warhead, pales in comparison to the power of God.
 
 And that is just it: every analogy I could use to try to compare to God will more than likely be a weapon of destruction. God's holy and righteous saving power is one of salvation, healing, restoration, reconciliation, and love.
 

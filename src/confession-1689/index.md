@@ -1867,7 +1867,7 @@ Prayer is to be made for things lawful, and for all sorts of men living, or that
 
 >1 John 5:16 If anyone sees a fellow believer committing a sin that doesn’t lead to death, he should ask, and God will give life to him—to those who commit sin that doesn’t lead to death. There is sin that leads to death. I am not saying he should pray about that.
 
-### [22.5 Worship God Alone: Holy, Holy, Holy](confession-1689/1689-22-5-holy-holy-holy.md)
+### [22.5 Worship God Alone: Holy, Holy, Holy](1689-22-5-holy-holy-holy.md)
 
 The reading of the Scriptures, preaching, and hearing the Word of God, teaching and admonishing one another in psalms, hymns, and spiritual songs, singing with grace in our hearts to the Lord; as also the administration of baptism, and the Lord's supper, are all parts of religious worship of God, to be performed in obedience to him, with understanding, faith, reverence, and godly fear; moreover, solemn humiliation, with fastings, and thanksgivings, upon special occasions, ought to be used in an holy and religious manner.
 
@@ -1915,7 +1915,7 @@ Neither prayer nor any other part of religious worship, is now under the gospel,
 
 >Acts 2:42 They devoted themselves to the apostles’ teaching, to the fellowship, to the breaking of bread, and to prayer.
 
-### [22.7 Worship God Alone: Jesus The Name Above All Names](confession-1689/1689-22-7-jesus-name-above-all-names.md)
+### [22.7 Worship God Alone: Jesus The Name Above All Names](1689-22-7-jesus-name-above-all-names.md)
 
 As it is the law of nature, that in general a proportion of time, by God's appointment, be set apart for the worship of God, so by his Word, in a positive moral, and perpetual commandment, binding all men, in all ages, he hath particularly appointed one day in seven for a sabbath to be kept holy unto him, which from the beginning of the
 
@@ -1929,7 +1929,7 @@ world to the resurrection of Christ was the last day of the week, and from the r
 
 >Revelation 1:10 I was in the Spirit on the Lord’s day, and I heard a loud voice behind me like a trumpet
 
-### [22.8 Worship God Alone: Still](confession-1689/1689-22-8-still.md)
+### [22.8 Worship God Alone: Still](1689-22-8-still.md)
 
 The sabbath is then kept holy unto the Lord, when men, after a due preparing of their hearts, and ordering their common affairs aforehand, do not only observe an holy rest all day, from their own works, words and thoughts, about their worldly employment and recreations, but are also taken up the whole time in the public and private exercises of his worship, and in the duties of necessity and mercy.
 
@@ -2225,7 +2225,7 @@ No church members, upon any offence taken by them, having performed their duty r
 
 >Ephesians 4:2–3 with all humility and gentleness, with patience, bearing with one another in love, making every effort to keep the unity of the Spirit through the bond of peace.
 
-### [26.14 Of The Bride: Brothers & Sisters of Christ](confession-1689/1689-26-14-of-the-bride-brothers-and-sisters-of-christ.md)
+### [26.14 Of The Bride: Brothers & Sisters of Christ](1689-26-14-of-the-bride-brothers-and-sisters-of-christ.md)
 
 As each church, and all the members of it, are bound to pray continually for the good and prosperity of all the churches of Christ, in all places, and upon all occasions to further every one within the bounds of their places and callings, in the exercise of their gifts and graces, so the churches, when planted by the providence of God, so as they may enjoy opportunity and advantage for it, ought to hold communion among themselves, for their peace, increase of love, and mutual edification.
 
@@ -2295,7 +2295,7 @@ Saints by profession are bound to maintain an holy fellowship and communion in t
 
 ## [Chapter XXVIII. Of Baptism and the Lord's Supper](1689-28-0-index.md)
 
-### [28.1 The Sacraments: Appointed by Christ](confession-1689/1689-28-1-the-sacraments-appointed-by-christ.md)
+### [28.1 The Sacraments: Appointed by Christ](1689-28-1-the-sacraments-appointed-by-christ.md)
 
 Baptism and the Lord's Supper are ordinances of positive and sovereign institution, appointed by the Lord Jesus, the only lawgiver, to be continued in his church to the end of the world.
 
@@ -2303,7 +2303,7 @@ Baptism and the Lord's Supper are ordinances of positive and sovereign instituti
 
 >1 Corinthians 11:26 For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes.
 
-### [28.2 The Sacraments: Commission by Christ](confession-1689/1689-28-2-the-sacraments-commission-by-christ.md)
+### [28.2 The Sacraments: Commission by Christ](1689-28-2-the-sacraments-commission-by-christ.md)
 
 These holy appointments are to be administered by those only who are qualified and thereunto called, according to the commission of Christ.
 
@@ -2405,7 +2405,7 @@ The outward elements in this ordinance, duly set apart to the use ordained by Ch
 
 >1 Corinthians 11:26–28 For as often as you eat this bread and drink the cup, you proclaim the Lord’s death until he comes. So, then, whoever eats the bread or drinks the cup of the Lord in an unworthy manner will be guilty of sin against the body and blood of the Lord. Let a person examine himself; in this way let him eat the bread and drink from the cup.
 
-### [30.6 Lord's Supper: Bread & Wine](confession-1689/1689-30-6-lord's-supper-bread-and-wine.md)
+### [30.6 Lord's Supper: Bread & Wine](1689-30-6-lord's-supper-bread-and-wine.md)
 
 That doctrine which maintains a change of the substance of bread and wine, into the substance of Christ's body and blood, commonly called transubstantiation, by consecration of a priest, or by any other way, is repugnant not to Scripture alone, but even to common sense and reason, overthroweth the nature of the ordinance, and hath been, and is, the cause of manifold superstitions, yea, of gross idolatries.
 
@@ -2483,7 +2483,7 @@ The bodies of the unjust shall, by the power of Christ, be raised to dishonour; 
 
 ## [Chapter XXXII. Of the Last Judgement](1689-32-0-index.md)
 
-### [32.1 The Quick & The Dead: Judgment Day](confession-1689/1689-32-1-the-quick-and-the-dead-judgment-day.md)
+### [32.1 The Quick & The Dead: Judgment Day](1689-32-1-the-quick-and-the-dead-judgment-day.md)
 
 God hath appointed a day wherein he will judge the world in righteousness, by Jesus Christ; to whom all power and judgment is given of the Father; in which day, not only the apostate angels shall be judged, but likewise all persons that have lived upon the earth shall appear before the tribunal of Christ, to give an account of their thoughts, words, and deeds, and to receive according to what they have done in the body, whether good or evil.
 
@@ -2505,7 +2505,7 @@ God hath appointed a day wherein he will judge the world in righteousness, by Je
 
 >Matthew 25:32–46 All the nations will be gathered before him, and he will separate them one from another, just as a shepherd separates the sheep from the goats. He will put the sheep on his right and the goats on the left. Then the King will say to those on his right, ‘Come, you who are blessed by my Father; inherit the kingdom prepared for you from the foundation of the world. “ ‘For I was hungry and you gave me something to eat; I was thirsty and you gave me something to drink; I was a stranger and you took me in; I was naked and you clothed me; I was sick and you took care of me; I was in prison and you visited me.’ “Then the righteous will answer him, ‘Lord, when did we see you hungry and feed you, or thirsty and give you something to drink? When did we see you a stranger and take you in, or without clothes and clothe you? When did we see you sick, or in prison, and visit you?’ “And the King will answer them, ‘Truly I tell you, whatever you did for one of the least of these brothers and sisters of mine, you did for me.’ “Then he will also say to those on the left, ‘Depart from me, you who are cursed, into the eternal fire prepared for the devil and his angels! For I was hungry and you gave me nothing to eat; I was thirsty and you gave me nothing to drink; I was a stranger and you didn’t take me in; I was naked and you didn’t clothe me, sick and in prison and you didn’t take care of me.’ “Then they too will answer, ‘Lord, when did we see you hungry, or thirsty, or a stranger, or without clothes, or sick, or in prison, and not help you?’ “Then he will answer them, ‘Truly I tell you, whatever you did not do for one of the least of these, you did not do for me.’ “And they will go away into eternal punishment, but the righteous into eternal life.”
 
-### [32.2 The Quick & The Dead: Manifestation of His Glory](confession-1689/1689-32-2-the-quick-and-the-dead-manifestation-of-his-glory.md)
+### [32.2 The Quick & The Dead: Manifestation of His Glory](1689-32-2-the-quick-and-the-dead-manifestation-of-his-glory.md)
 
 The end of God's appointing this day, is for the manifestation of the glory of his mercy, in the eternal salvation of the elect; and of his justice, in the eternal damnation of the reprobate, who are wicked and disobedient; for then shall the righteous go into everlasting life, and receive that fulness of joy and glory with everlasting rewards, in the presence of the Lord; but the wicked, who know not God, and obey not the gospel of Jesus Christ, shall be cast aside into everlasting torments, and punished with everlasting destruction, from the presence of the Lord, and from the glory of his power.
 

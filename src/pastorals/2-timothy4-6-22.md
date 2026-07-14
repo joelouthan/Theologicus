@@ -65,7 +65,7 @@ or like smoke from a window.
 
 There is no denying this. Most people think that their time here on earth is much too short. But it is too short. For the lost of our love ones, we wish we could hold them one more time and say, "I love you one more time." 
 
-What about the loved ones we lost who did not love the Lord? We might comfort ourselves for a second thinking perhaps they repented on their deathbed. But we don't know that for a fact unless we witness them draw their last breath. Those loved ones with hardened hearts like the Pharoah in Exodus or any of the sons of the devil: you wish you wish you wish they could draw one more breath, perhaps to grab on the free gift of the Lord Jesus Christ and let go of their sin in order to grab on to the righteousness of the Almighty Savior.
+What about the loved ones we lost who did not love the Lord? We might comfort ourselves for a second thinking perhaps they repented on their deathbed. But we don't know that for a fact unless we witness them draw their last breath. Those loved ones with hardened hearts like the Pharaoh in Exodus or any of the sons of the devil: you wish you wish you wish they could draw one more breath, perhaps to grab on the free gift of the Lord Jesus Christ and let go of their sin in order to grab on to the righteousness of the Almighty Savior.
 
 So many of my family members quickly dying--40s, 50s, 60s--never loving God never obeying the Son and never possessing the Spirit. They died and descended into the eternal wrath of the Jesus Christ.
 

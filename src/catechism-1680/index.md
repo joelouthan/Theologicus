@@ -1696,9 +1696,7 @@ all that is good; [^1] and because your holy name, and not we ourselves, should 
 
 [^1] Isa. 65:24; 2 Cor. 1:20; 2 Tim. 2:13
 
-To order additional copies please contact Doug Barger with the Reformed Baptist Faith and Family Ministry
-<dbarger@rbfaithandfamily.org>
-or call: 317 -542 -3159
+To order additional copies please contact [Doug Barger](mailto:dbarger@rbfaithandfamily.org) with the Reformed Baptist Faith and Family Ministry or call: 317 -542 -3159
 
 Orders of twelve or more qualify to be printed with a personal title page that features your church’s name and contact information.
 

@@ -254,7 +254,7 @@ Let us pray.
 
 ## The Closing Prayer
 
-*Source: [Theologicus - Praying Through: Psalm 1](psalms/psalm001)*
+*Source: [Theologicus - Praying Through: Psalm 1](./psalm001.md)*
 
 <div style="font-variant: small-caps;">
 O Lord,

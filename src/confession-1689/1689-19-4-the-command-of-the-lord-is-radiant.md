@@ -8,7 +8,7 @@
 
 ## The Text
 
->Psalm 19:8b [...] the command of the LORD is radiant, making the eyes light up.
+>Psalm 19:8b [. . .] the command of the LORD is radiant, making the eyes light up.
 
 ## The Chapter
 

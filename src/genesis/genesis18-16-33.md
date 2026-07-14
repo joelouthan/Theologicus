@@ -45,7 +45,7 @@
 
 ### Let us not treat God as a mathematical formula when it comes to his salvation and his tender mercies
 
-[1689.3.4](confession-1689/1689-03-4-the-certainty-of-god) states "These angels and men thus predestinated and foreordained, are particularly and unchangeably designed, and their number so certain and definite, that it cannot be either increased or diminished."
+[1689.3.4](../confession-1689/1689-03-4-the-certainty-of-God.md) states "These angels and men thus predestinated and foreordained, are particularly and unchangeably designed, and their number so certain and definite, that it cannot be either increased or diminished."
 
 It is a fool's errand for us mere mortals to figure out what that number is. That is not for us to know nor worry about. God knows that number, for:
 
