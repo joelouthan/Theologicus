@@ -1,0 +1,5 @@
+[linter]
+disabled_rules = ["NumericRangeEnDash"]
+
+[spell]
+allow_acronyms = true
