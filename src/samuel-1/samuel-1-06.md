@@ -4,7 +4,7 @@
 
 ## The Word
 
->Luke 4:5-8 So [Satan] took him up and showed him all the kingdoms of the world in a moment of time. The devil said to him, “I will give you their splendor and all this authority, because it has been given over to me, and I can give it to anyone I want. If you, then, will worship me, all will be yours.” And Jesus answered him, “It is written: <bgy>Worship the Lord your God, and serve him only.</bgy>”
+>Luke 4:5-8 So Satan took him up and showed him all the kingdoms of the world in a moment of time. The devil said to him, “I will give you their splendor and all this authority, because it has been given over to me, and I can give it to anyone I want. If you, then, will worship me, all will be yours.” And Jesus answered him, “It is written: <bgy>Worship the Lord your God, and serve him only.</bgy>”
 
 ## The Passage
 

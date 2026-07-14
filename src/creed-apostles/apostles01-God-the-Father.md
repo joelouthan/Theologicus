@@ -211,4 +211,4 @@ We are weak. We cannot cover up ourselves enough to be holy unto God. Yet, God i
 
 That is the Almighty God.
 
-[^1689.2.3]: See [1689 Chapter 2.3 The Triune God](/confession-1689/1689-02-3-the-triune-God.md)
+[^1689.2.3]: See [1689 Chapter 2.3 The Triune God](../confession-1689/1689-02-3-the-triune-God.md)

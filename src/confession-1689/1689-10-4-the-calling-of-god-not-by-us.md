@@ -26,7 +26,7 @@
 
 You have to deal with the magnitude, vastness and the *almight* of the Lord God Almighty. Start with the Triuneness of God. Each of the persons of the Godhead--Father, Son, and Spirit--are, by themselves, the fullness of God.
 
->[. . .] all infinite, without beginning, therefore but one God, who is not to be divided in nature and being, but distinguished by several peculiar relative properties and personal relations; which doctrine of the Trinity is the foundation of all our communion with God, and comfortable dependence on him.
+>&#91;. . .&#93; all infinite, without beginning, therefore but one God, who is not to be divided in nature and being, but distinguished by several peculiar relative properties and personal relations; which doctrine of the Trinity is the foundation of all our communion with God, and comfortable dependence on him.
 >
 >[1689.2.3 The Triune God](./1689-02-3-the-triune-God.md)
 

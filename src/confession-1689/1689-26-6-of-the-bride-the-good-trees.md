@@ -44,7 +44,7 @@ As a Reformed Baptist, I count myself as someone who was once an Evangelical but
 
 But there is one thing I do apprecciate my Evangelical siblings is this one notion of the grace of the Lord Jesus Christ and it is this: where people are at now is not where they will end up.
 
-Those who were saved from our sins--we were once dead in our trespasses and sins. Titus 3 rightly called us "once foolish, led astray, enslaved to various passions and pleasures [. . .] hating ourselves and hating one another." And there are many who first tasted the sweetness of the Holy Spirit many years ago only to stray from God today.
+Those who were saved from our sins--we were once dead in our trespasses and sins. Titus 3 rightly called us "once foolish, led astray, enslaved to various passions and pleasures &#91;. . .&#93; hating ourselves and hating one another." And there are many who first tasted the sweetness of the Holy Spirit many years ago only to stray from God today.
 
 But our God is not only all merciful but all powerful. I speak of these worthless people and that might bring someone you know to mind--someone who fits that description. You might see them in their wickedness and hatred and think, 'Surely, there is no way they would get to God." Based on our flesh, our born state, on our inheritance from Adam, you would be correct--for we are destined to hell to suffer the wrath of Christ for all of eternal.
 

@@ -6,7 +6,7 @@
 
 ## The Text
 
->Judges 21:25b [. . .] <span class="bgy">Everyone did what was right in his own eyes.</span>
+>Judges 21:25b &#91;. . .&#93; <span class="bgy">Everyone did what was right in his own eyes.</span>
 
 ## The Devotion
 

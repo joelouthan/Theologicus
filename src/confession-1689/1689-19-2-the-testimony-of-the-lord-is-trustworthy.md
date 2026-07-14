@@ -8,7 +8,7 @@
 
 ## The Text
 
->Psalm 19:7b [. . .] the testimony of the LORD is trustworthy, making the inexperienced wise.
+>Psalm 19:7b &#91;. . .&#93; the testimony of the LORD is trustworthy, making the inexperienced wise.
 
 ## The Chapter
 

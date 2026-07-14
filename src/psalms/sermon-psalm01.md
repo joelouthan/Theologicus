@@ -144,9 +144,9 @@ In contrast:
 
 Those who turn away from God will look different and go down a very different path.
 
->**Matthew 3:12** [. . .] **but the chaff he will burn with unquenchable fire.**
+>**Matthew 3:12** &#91;. . .&#93; **but the chaff he will burn with unquenchable fire.**
 
->**Matthew 7:15–23** [. . .] **Every tree that does not bear good fruit is cut down and thrown into the fire.**
+>**Matthew 7:15–23** &#91;. . .&#93; **Every tree that does not bear good fruit is cut down and thrown into the fire.**
 
 The law bears the character of God. Sinners, wicked and unholy, will fall short of God's glory, and they will stand condemned in their sin, because the law cannot save them.
 
@@ -200,7 +200,7 @@ Think on this: most of the believers in the Bible could not read. They had littl
 >**has done great things for me,**  
 >**and his name is holy.**  
 >
->[. . .]
+>&#91;. . .&#93;
 
 And on my best day, I couldn't come up with a song half as beautiful. How did Mary do this? How did Mary come up with such beautiful words to magnify our Great God? There was only one way to hear and then meditate on the law of God for the people of God — to gather together, every Sabbath, that is, the Lord's Day, and hear the preached word of God.
 
@@ -210,7 +210,7 @@ The solution to Psalm 1 is not "read your Bible more and be happy." The solution
 
 To know we have every blessing in the heavens. We get to gather and hear the preached word so that the law and the gospel of God are "to be on our hearts, repeated to our children, talk about them when you are chilling at home, or taking a walk outside, when you lie down and when you get up" (Deut 6:4-9). Because:
 
->**Romans 10:17** [. . .] **faith comes from what is heard, and what is heard comes through the message about Christ.**
+>**Romans 10:17** &#91;. . .&#93; **faith comes from what is heard, and what is heard comes through the message about Christ.**
 
 We preach the same Christ who perfectly and delightfully meditated on and obeyed the law of God. And this is the covenant of grace — Christ has done this, obeyed the entire law of God, perfectly. And by doing so, we have his benefits! We have his obedience! And his righteousness!
 

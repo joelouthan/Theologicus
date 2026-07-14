@@ -10,7 +10,7 @@ Barrett, C. K. *A Critical and Exegetical Commentary on the Acts of the Apostles
 
 Brown, David, A. R. Fausset, and Robert Jamieson. *A Commentary, Critical, Experimental, and Practical, on the Old and New Testaments: Acts–Revelation*. Vol. VI. London; Glasgow: William Collins, Sons, & Company, Limited, n.d.
 
-Bruce, F. F. *The Book of the Acts*. Rev. ed., [Repr.]. The New International Commentary on the New Testament. Grand Rapids, Mich: Eerdmans, 2009.
+Bruce, F. F. *The Book of the Acts*. Rev. ed., . The New International Commentary on the New Testament. Grand Rapids, Mich: Eerdmans, 2009.
 
 Calvin, John, and Henry Beveridge. *Commentary upon the Acts of the Apostles*. Bellingham, WA: Logos Bible Software, 2010.
 

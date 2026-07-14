@@ -100,7 +100,7 @@ Let us continue to move through the Old Testament. When we get to Deuteronomy an
 
 >Romans 3:23 For all have sinned and fall short of the glory of God;
 
->Romans 6:23a For the wages of sin is death [. . .]
+>Romans 6:23a For the wages of sin is death &#91;. . .&#93;
 
 >Genesis 2:16-17 And the LORD God commanded the man, "You are free to eat from any tree of the garden, but you must not eat from the tree of the knowledge of good and evil, for on the day you eat from it, you will certainly die."
 

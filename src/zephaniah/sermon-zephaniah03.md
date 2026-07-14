@@ -63,7 +63,7 @@ Zephaniah 3
 
 > **2 Pet. 3:9-10** The Lord is not slow to fulfill his promise as some count slowness, but is patient toward you, not wishing that any should perish, but that all should reach repentance. But the day of the Lord will come like a thief, and then the heavens will pass away with a roar, and the heavenly bodies will be burned up and dissolved, and the earth and the works that are done on it will be exposed.
 
-Both the prophet Jonah and we know that God is, "[. . .] a gracious and compassionate God, slow to anger, abounding in faithful love, and one who relents from sending disaster." (Jon. 4:2)
+Both the prophet Jonah and we know that God is, "&#91;. . .&#93; a gracious and compassionate God, slow to anger, abounding in faithful love, and one who relents from sending disaster." (Jon. 4:2)
 
 God is not slow
 
@@ -79,7 +79,7 @@ He gives ample time for any of us to repent
 
 > **Zeph. 2** Judgment on our surrounding neighbors
 
-> **Jn. 16:8-9** When [the Holy Spirit] comes, he will convict the world about sin, righteousness, and judgment: About sin, because they do not believe in me;
+> **Jn. 16:8-9** When the Holy Spirit comes, he will convict the world about sin, righteousness, and judgment: About sin, because they do not believe in me;
 
 *But do you think God is preaching his righteousness to you and me in order to hear how the world is going to hell and our neighbors are heathens?*
 
@@ -107,7 +107,7 @@ He applies his justice morning by morning;
 he does not fail at dawn,
 yet the one who does wrong knows no shame.
 
-### The Comparison of God and Man - God [. . .]
+### The Comparison of God and Man - God &#91;. . .&#93;
 
 How can God pronounce the 'quick' judgment?
 
@@ -169,7 +169,7 @@ God: you can only see my back
 
 God is driving out these nations because of their wickedness (Dt. 9:4) not because of your righteousness
 
-How? (Dt. 9:3) "[. . .] the Lord your God will cross over ahead of you as a consuming fire; he will devastate and subdue them before you"
+How? (Dt. 9:3) "&#91;. . .&#93; the Lord your God will cross over ahead of you as a consuming fire; he will devastate and subdue them before you"
 
 **rejecting vomit**
 
@@ -181,7 +181,7 @@ That is God's land - "the whole earth is filled with his glory" (Ps. 72:19) beca
 
 God is vomiting out the poison in his land on his earth because he is the most Holy, Sovereign and Almighty Triune God
 
-### [. . .] compared to us
+### &#91;. . .&#93; compared to us
 
 > **Rom. 3:10-18** as it is written:
 
