@@ -4,11 +4,11 @@ All notable changes to this project will be documented in this file.
 
 The format is based on [Keep a Changelog](https://keepachangelog.com/en/1.0.0/), and this project adheres to [Semantic Versioning](https://semver.org/spec/v2.0.0.html).
 
-## 3.6 (2025 Dec 13) [Christ Came to Save Sinners](doctrine-christ-saves/)
+## 3.6 (2025 Dec 13) [Christ Came to Save Sinners](doctrine-christ-saves/index.md)
 
 ![Word Count](https://img.shields.io/badge/Word%20Count-655875-brightgreen)
 
-## 3.5.1 (2025 May 16) *conversion of resources to a [bibliography](bibliography/)*
+## 3.5.1 (2025 May 16) *conversion of resources to a [bibliography](bibliography/index.md)*
 
 - standardized to using [mdbook's include syntax](https://rust-lang.github.io/mdBook/format/mdbook.html#including-files)
 - See this repo's [src/bibliography](https://github.com/joelouthan/Theologicus/tree/main/src/bibliography) for my examples
@@ -16,11 +16,11 @@ The format is based on [Keep a Changelog](https://keepachangelog.com/en/1.0.0/),
 
 ![Word Count](https://img.shields.io/badge/Word%20Count-565211-brightgreen)
 
-## 3.5 (2025 Mar 5) [Praying Through Psalms](psalms/)
+## 3.5 (2025 Mar 5) [Praying Through Psalms](psalms/index.md)
 
-## 3.4 (2025 Jan 19) [1689 Second London Baptist Confession](confession-1689/)
+## 3.4 (2025 Jan 19) [1689 Second London Baptist Confession](confession-1689/index.md)
 
-## 3.3.2 (2024 Apr 10) *port [1689 ](confession-1689/) to [git submodule](https://github.com/joelouthan/volume-confession-1689)*
+## 3.3.2 (2024 Apr 10) *port [1689](confession-1689/index.md) to [git submodule](https://github.com/joelouthan/volume-confession-1689)*
 
 - seeing if could make standalone books
 - not sustainable
