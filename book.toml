@@ -33,6 +33,9 @@ no-section-label = true
 edit-url-template = "https://github.com/joelouthan/theologicus/edit/main/{path}"
 additional-css = ["theme/css/book.css"]
 
+[output.linkcheck]
+optional = true
+
 # Should we check links on the internet? Enabling this option adds a
 # non-negligible performance impact
 follow-web-links = false
