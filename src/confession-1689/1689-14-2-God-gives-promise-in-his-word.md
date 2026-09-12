@@ -44,9 +44,9 @@ How important is it to believe the word of God and take it at face value and not
 
 In the Portland Monthly interview with Christopher Hitchens, the interviewer, Marilyn Swell, a Unitarian Minister, was asked about his book, *God is Not Great* and the following exchange took place:
 
-**Marilyn Sewell** The religion you cite in your book is generally the fundamentalist faith of various kinds. I’m a liberal Christian, and I don’t take the stories from the scripture literally. I don’t believe in the doctrine of atonement (that Jesus died for our sins, for example). Do you make and distinction between fundamentalist faith and liberal religion?
-
-**Christopher Hitchens** I would say that if you don’t believe that Jesus of Nazareth was the Christ and Messiah, and that he rose again from the dead and by his sacrifice our sins are forgiven, you’re really not in any meaningful sense a Christian. 
+> **Marilyn Sewell** The religion you cite in your book is generally the fundamentalist faith of various kinds. I’m a liberal Christian, and I don’t take the stories from the scripture literally. I don’t believe in the doctrine of atonement (that Jesus died for our sins, for example). Do you make and distinction between fundamentalist faith and liberal religion?
+> 
+> **Christopher Hitchens** I would say that if you don’t believe that Jesus of Nazareth was the Christ and Messiah, and that he rose again from the dead and by his sacrifice our sins are forgiven, you’re really not in any meaningful sense a Christian. 
 
 The Unitarian minister had nothing more to respond to that other than, "Let me go someplace else."[^hitchens-portland-monthly]
 
