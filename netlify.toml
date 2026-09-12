@@ -1,6 +1,6 @@
 [build]
   command = "curl --proto '=https' --tlsv1.2 -sSf https://sh.rustup.rs | sh -s -- -y --no-modify-path && source \"$CARGO_HOME/env\" && cargo install mdbook --version 0.4.34 --locked && if [ ! -f ./bin/bin/mdbook-toc ]; then cargo install --root ./bin mdbook-toc --version 0.14.1 --locked; fi && export PATH=\"$PATH:$(pwd)/bin/bin\" && mdbook build"
-  publish = "book"
+  publish = "book/html"
 
 [build.environment]
   RUSTUP_HOME = "./rustup"
