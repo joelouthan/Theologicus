@@ -11,34 +11,64 @@
 
 ## The Text
 
-- **1** God is indeed good to Israel, to the pure in heart.
-- **2** But as for me, my feet almost slipped; my steps nearly went astray.
-- **3** For I envied the arrogant; I saw the prosperity of the wicked.
-- **4** They have an easy time until they die, and their bodies are well fed.
-- **5** They are not in trouble like others; they are not afflicted like most people.
-- **6** Therefore, pride is their necklace, and violence covers them like a garment.
-- **7** Their eyes bulge out from fatness; the imaginations of their hearts run wild.
-- **8** They mock, and they speak maliciously; they arrogantly threaten oppression.
-- **9** They set their mouths against heaven, and their tongues strut across the earth.
-- **10** Therefore his people turn to them and drink in their overflowing words.
-- **11** The wicked say, “How can God know? Does the Most High know everything?”
-- **12** Look at them—the wicked! They are always at ease, and they increase their wealth.
-- **13** Did I purify my heart and wash my hands in innocence for nothing?
-- **14** For I am afflicted all day long and punished every morning.
-- **15** If I had decided to say these things aloud, I would have betrayed your people.
-- **16** When I tried to understand all this, it seemed hopeless
-- **17** until I entered God’s sanctuary. Then I understood their destiny.
-- **18** Indeed, you put them in slippery places; you make them fall into ruin.
-- **19** How suddenly they become a desolation! They come to an end, swept away by terrors.
-- **20** Like one waking from a dream, Lord, when arising, you will despise their image.
-- **21** When I became embittered and my innermost being was wounded,
-- **22** I was stupid and didn’t understand; I was an unthinking animal toward you.
-- **23** Yet I am always with you; you hold my right hand.
-- **24** You guide me with your counsel, and afterward you will take me up in glory.
-- **25** Who do I have in heaven but you? And I desire nothing on earth but you.
-- **26** My flesh and my heart may fail, but God is the strength of my heart, my portion forever.
-- **27** Those far from you will certainly perish; you destroy all who are unfaithful to you.
-- **28** But as for me, God’s presence is my good. I have made the Lord God my refuge, so I can tell about all you do.
+>Psalm 73 
+><sup></sup> A psalm of Asaph. 
+>
+><sup>1</sup> God is indeed good to Israel, to the pure in heart. 
+>
+><sup>2</sup> But as for me, my feet almost slipped; my steps nearly went astray. 
+>
+><sup>3</sup> For I envied the arrogant; I saw the prosperity of the wicked. 
+>
+><sup>4</sup> They have an easy time until they die, and their bodies are well fed. 
+>
+><sup>5</sup> They are not in trouble like others; they are not afflicted like most people. 
+>
+><sup>6</sup> Therefore, pride is their necklace, and violence covers them like a garment. 
+>
+><sup>7</sup> Their eyes bulge out from fatness; the imaginations of their hearts run wild. 
+>
+><sup>8</sup> They mock, and they speak maliciously; they arrogantly threaten oppression. 
+>
+><sup>9</sup> They set their mouths against heaven, and their tongues strut across the earth. 
+>
+><sup>10</sup> Therefore his people turn to them and drink in their overflowing words. 
+>
+><sup>11</sup> The wicked say, “How can God know? Does the Most High know everything?” 
+>
+><sup>12</sup> Look at them—the wicked! They are always at ease, and they increase their wealth. 
+>
+><sup>13</sup> Did I purify my heart and wash my hands in innocence for nothing? 
+>
+><sup>14</sup> For I am afflicted all day long and punished every morning. 
+>
+><sup>15</sup> If I had decided to say these things aloud, I would have betrayed your people. 
+>
+><sup>16</sup> When I tried to understand all this, it seemed hopeless 
+>
+><sup>17</sup> until I entered God’s sanctuary. Then I understood their destiny. 
+>
+><sup>18</sup> Indeed, you put them in slippery places; you make them fall into ruin. 
+>
+><sup>19</sup> How suddenly they become a desolation! They come to an end, swept away by terrors. 
+>
+><sup>20</sup> Like one waking from a dream, Lord, when arising, you will despise their image. 
+>
+><sup>21</sup> When I became embittered and my innermost being was wounded, 
+>
+><sup>22</sup> I was stupid and didn’t understand; I was an unthinking animal toward you. 
+>
+><sup>23</sup> Yet I am always with you; you hold my right hand. 
+>
+><sup>24</sup> You guide me with your counsel, and afterward you will take me up in glory. 
+>
+><sup>25</sup> Who do I have in heaven but you? And I desire nothing on earth but you. 
+>
+><sup>26</sup> My flesh and my heart may fail, but God is the strength of my heart, my portion forever. 
+>
+><sup>27</sup> Those far from you will certainly perish; you destroy all who are unfaithful to you. 
+>
+><sup>28</sup> But as for me, God’s presence is my good. I have made the Lord GOD my refuge, so I can tell about all you do.
 
 ## Pray
 
