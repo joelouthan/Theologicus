@@ -404,7 +404,7 @@
 - [Job]()
 - [Psalms](psalms/index.md)
   - [Psalm 1](psalms/psalm001.md)
-    - [Psalm 1 Christ is the Blessed One](psalms/psalm01-sermon-Christ-is-the-blessed-one.md)
+    - [Psalm 1 Christ Is The Blessed One](psalms/psalm01-sermon-Christ-is-the-blessed-one.md)
   - [Psalm 2](psalms/psalm002.md)
   - [Psalm 3](psalms/psalm003.md)
   - [Psalm 4](psalms/psalm004.md)
