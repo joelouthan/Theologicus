@@ -7,7 +7,9 @@
 }
 </style>
 
-# 📖 Psalm 1
+# Psalm 1 
+
+<p style="font-size: 1.6rem; margin-top: 0px "><i>A Sermon</i><p>
 
 ## The Text
 
