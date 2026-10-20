@@ -8,7 +8,7 @@
 </style>
 
 # Psalm 73 Yet God is Good
-
+<p style="font-size: 1.6rem; margin-top: 0px "><i>A Personal Confession of Faith</i><p>
 
 ## The Text
 
