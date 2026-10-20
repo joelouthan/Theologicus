@@ -7,7 +7,8 @@
 }
 </style>
 
-# Psalm 73
+# Psalm 73 Yet God is Good
+
 
 ## The Text
 
