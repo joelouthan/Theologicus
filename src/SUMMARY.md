@@ -301,7 +301,7 @@
   - [Genesis 19:30-38 The Gospel Reach](genesis/genesis19-30-38.md)
   - [Genesis 20 The Gospel Delivery](genesis/genesis20.md)
   - [Genesis 21 The Gospel Seed](genesis/genesis21.md)
-  - [Genesis 22 The Gospel Sacrifice]()
+  - [Genesis 22 The Gospel Sacrifice](genesis/genesis22.md)
   - [Genesis 23 The Gospel Life]()
   - [Genesis 24 The Gospel Relief]()
   - [Genesis 25:1-18 The Gospel Promise]()
