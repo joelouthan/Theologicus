@@ -1,6 +1,8 @@
 <img class="intro-right" src="../images/art-john.jpg">
 
-# 📖 John 11:1-44
+# John 11:1-44 Christ Is Our Life Forever
+
+<p style="font-size: 1.6rem; margin-top: 0px "><i>A Sermon</i><p>
 
 ## The Text
 
