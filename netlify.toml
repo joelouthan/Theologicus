@@ -1,6 +1,9 @@
 [build]
   command = "curl --proto '=https' --tlsv1.2 -sSf https://sh.rustup.rs | sh -s -- -y --no-modify-path && source \"$CARGO_HOME/env\" && cargo install mdbook --version 0.4.34 --locked && if [ ! -f ./bin/bin/mdbook-toc ]; then cargo install --root ./bin mdbook-toc --version 0.14.1 --locked; fi && export PATH=\"$PATH:$(pwd)/bin/bin\" && mdbook build"
   publish = "book/html"
+  # Only build main. Exit 0 cancels the build, so draft pushes, branch deploys,
+  # and deploy previews never spend build minutes.
+  ignore = 'test "$BRANCH" != "main"'
 
 [build.environment]
   RUSTUP_HOME = "./rustup"
