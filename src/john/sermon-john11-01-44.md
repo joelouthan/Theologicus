@@ -330,5 +330,3 @@
 ## The Prayer
 
 ## ⚔️
-
-## Bibliography
