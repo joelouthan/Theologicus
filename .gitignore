@@ -32,3 +32,5 @@ theme/Gutenberg
 *.log
 mdbook-serve-clean
 
+# Obsidian
+*.base
