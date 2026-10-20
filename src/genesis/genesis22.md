@@ -4,7 +4,7 @@
 
 ## The Text
 
-><% tp.file.cursor() %>
+
 
 ## Our God
 
