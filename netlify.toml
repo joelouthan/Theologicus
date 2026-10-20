@@ -11,3 +11,16 @@
 
 [build.cacheDirs]
   paths = ["./bin", "./rustup", "./cargo"]
+
+# Pages renamed to drop ":" from their filenames (2026-10-20)
+[[redirects]]
+  from = "/genesis/genesis19:1-29.html"
+  to = "/genesis/genesis19-1-29.html"
+  status = 301
+  force = true
+
+[[redirects]]
+  from = "/genesis/genesis19:30-38.html"
+  to = "/genesis/genesis19-30-38.html"
+  status = 301
+  force = true
