@@ -580,7 +580,7 @@
   - [Psalm 71](psalms/psalm071.md)
   - [Psalm 72](psalms/psalm072.md)
   - [Psalm 73](psalms/psalm073.md)
-    - [Psalm 73 Yet God is Good](psalms/psalm073-sermon-yet-God-is-good.md)
+    - [Psalm 73 Yet God Is Good](psalms/psalm073-sermon-yet-God-is-good.md)
   - [Psalm 75](psalms/psalm075.md)
   - [Psalm 76](psalms/psalm076.md)
   - [Psalm 77](psalms/psalm077.md)
