@@ -183,7 +183,8 @@ I want you to see the mercies of God.
 
 >Ezekiel 16:51-52 But Samaria did not commit even half your sins. You have multiplied your detestable practices beyond theirs and made your sisters appear righteous by all the detestable acts you have committed. You must also bear your disgrace, since you have helped your sisters out. For they appear more righteous than you because of your sins, which you committed more detestably than they did. So you also, be ashamed and bear your disgrace, since you have made your sisters appear righteous.
 
-You and I are sinful just like the people of Sodom and Samaria. Sodom represents people who sinned against God. Samaria, 
+You and I were born in disgrace, sinning against God right from the start. But listen carefully to how God responds to our sins.
+
 
 ## Our Response 
 
