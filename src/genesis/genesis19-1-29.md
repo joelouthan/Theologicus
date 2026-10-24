@@ -137,9 +137,11 @@ But we just learned in Psalm 115 that he does as he pleases.
 
 But then Jewish teachers would say, "Wait a minute, it wasn't because of sexual immorality -- it was the way they mistreated the poor and the needy."
 
->Ezekiel 16:49 Now this was the iniquity of your sister Sodom: She and her daughters had pride, plenty of food, and comfortable security, but didn’t support the poor and needy.
+>Ezekiel 16:49-50 Now this was the iniquity of your sister Sodom: She and her daughters had pride, plenty of food, and comfortable security, but didn’t support the poor and needy. They were haughty and did detestable acts before me, so I removed them when I saw this
 
+God says, "D. All of the above."
 
+They were doing abominable 
 
 #### Hell is real 
 
