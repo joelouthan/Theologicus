@@ -173,9 +173,15 @@ But let the hearer hear: these are the sins we have committed and these are the 
 
 #### alone being rich in never-ending mercies 
 
-#### alone who gives grace upon much needed grace 
+#### alone who gives grace upon much-needed grace 
 
-#### alone whose steadfast love that never stops because it never began 
+#### alone whose steadfast love never stops because it never began 
+
+He alone will save his people from their sins.
+
+I want you to see the mercies of God.
+
+
 
 ## Our Response 
 
