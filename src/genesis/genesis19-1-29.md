@@ -161,7 +161,7 @@ It's all πορνεία. It's all sexual immorality. It is all a sin in the eyes
 
 Say what you want about the ministry of God. But don't be these foolish people who love to say, "Jesus never mentioned hell." 
 
-You know that sitting under the preached word of God 
+You know doing a word search in your Bible app is a poor, poor substitute for sitting under the preached word and the full counsel of God?
 
 #### This is not the torturous work of the devil, nor the mere consequences of our sins but this is the holy wrath of God 
 
