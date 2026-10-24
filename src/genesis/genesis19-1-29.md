@@ -63,11 +63,11 @@
 >
 ><sup>29</sup> So it was, when God destroyed the cities of the plain, he remembered Abraham and brought Lot out of the middle of the upheaval when he demolished the cities where Lot had lived.
 
-The world questions whether or not God has the right to judge and execute us. What have we done to deserve this wrath? Your God has no right to touch me! Your God has no right to take my life or the life of my loved one. He must be evil and cruel not only to allow evil to take place here, but also to exercise judgment over us.
+The world questions whether or not God has the right to judge and execute us. What have we done to deserve this wrath? Your God has no right to touch me! Your God has no right to take my life or the life of my loved one. He must be evil and cruel, not only to allow evil to take place here, but also to judge us.
 
-## Our God 
+## This is Our God 
 
-### God is Creator over everything 
+### First, God is Creator over everything 
 
 ### God rules and reigns over everything 
 
