@@ -7,7 +7,7 @@
 }
 </style>
 
-# 📖 Zephaniah 3
+# Zephaniah 3
 
 ## The Text
 
