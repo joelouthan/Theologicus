@@ -83,7 +83,7 @@ The world questions whether or not God has the right to judge and execute us. Wh
 
 Whether we, as mankind, believe or do not believe that God is Creator, matters not -- God is still Creator over all of creation.
 
-Since he is Creator, he has certain inalienable 
+Since he is Creator, he has certain inalienable, inviolable rights that belong to being Creator. If you created something, say an invention or a piece of technology, you are 
 
 ### Second, God rules and reigns over everything 
 
