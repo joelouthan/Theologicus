@@ -110,8 +110,9 @@ God established this with Adam in the garden, "Do these things and you will live
 Adam failed to meet those demands.
 ### We have failed to meet his demands 
 
-What did God say would happen if we disobey him? We will surely die. Make no mistake -- Adam & Eve did not dro 
+What did God say would happen if we disobey him? We will surely die. Make no mistake -- Adam & Eve did not drop dead on sight upon taking a mere delicious bite from the forbidden fruit from the forbidden tree. But the fact is they surely did die.
 
+They were meant to live forever. Because of their sin, they perished.
 ### We shall perish because we are disobedient -- by choice and by birth 
 
 Ezekiel 16:49 Now this was the iniquity of your sister Sodom: She and her daughters had pride, plenty of food, and comfortable security, but didn’t support the poor and needy.
