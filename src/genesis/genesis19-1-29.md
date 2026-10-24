@@ -63,9 +63,12 @@
 >
 ><sup>29</sup> So it was, when God destroyed the cities of the plain, he remembered Abraham and brought Lot out of the middle of the upheaval when he demolished the cities where Lot had lived.
 
+The world questions whether or not God has the right to judge and execute us. What have we done to deserve this wrath? Your God has no right to touch me! Your God has no right to take my life or the life of my loved one. He must be evil and cruel not only to allow evil to take place here, but also to exercise judgment over us.
+
 ## Our God
 
 ### God is Creator over everything
+
 
 ### God rules and reigns over everything
 
@@ -78,6 +81,8 @@
 ### We have failed to meet his demands
 
 ### We shall perish because we are disobedient -- by choice and by birth
+
+Ezekiel 16:49 Now this was the iniquity of your sister Sodom: She and her daughters had pride, plenty of food, and comfortable security, but didn’t support the poor and needy.
 
 #### Hell is real
 
