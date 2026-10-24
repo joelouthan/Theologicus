@@ -163,15 +163,15 @@ Say what you want about the ministry of God. But don't be these foolish people w
 
 You know doing a word search in your Bible app is a poor, poor substitute for sitting under the preached word and the full counsel of God?
 
-#### This is not the torturous work of the devil, nor the mere consequences of our sins but this is the holy wrath of God 
+Don't be damned in your ignorance.
 
-#### That wrath is forever 
+But let the hearer hear: these are the sins we have committed and these are the punishments we deserve!
 
 ## His Gospel 
 
 ### But God 
 
-#### alone being rich in neverending mercies 
+#### alone being rich in never-ending mercies 
 
 #### alone who gives grace upon much needed grace 
 
