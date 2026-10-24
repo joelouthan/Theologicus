@@ -153,7 +153,11 @@ It's all πορνεία. It's all sexual immorality. It is all a sin in the eyes
 >John 3:36 The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 #### Torment is real 
 
+Matthew 8:10-13 Hearing this, Jesus was amazed and said to those following him, “Truly I tell you, I have not found anyone in Israel with so great a faith. I tell you that many will come from east and west to share the banquet with Abraham, Isaac, and Jacob in the kingdom of heaven. But the sons of the kingdom will be thrown into the outer darkness where there will be weeping and gnashing of teeth.” Then Jesus told the centurion, “Go. As you have believed, let it be done for you.” And his servant was healed that very moment.
 
+Matthew 13:41-43 The Son of Man will send out his angels, and they will gather from his kingdom all who cause sin and those guilty of lawlessness. They will throw them into the blazing furnace where there will be weeping and gnashing of teeth. Then the righteous will shine like the sun in their Father’s kingdom. Let anyone who has ears listen.
+
+>Matthew 13:47-50 “Again, the kingdom of heaven is like a large net thrown into the sea. It collected every kind of fish, and when it was full, they dragged it ashore, sat down, and gathered the good fish into containers, but threw out the worthless ones. So it will be at the end of the age. The angels will go out, separate the evil people from the righteous, and throw them into the blazing furnace, where there will be weeping and gnashing of teeth.
 
 #### This is not the torturous work of the devil, nor the mere consequences of our sins but this is the holy wrath of God 
 
