@@ -1,4 +1,4 @@
-# 📖 Mark 7:1-30
+# Mark 7:1-30
 
 ## The Text
 
