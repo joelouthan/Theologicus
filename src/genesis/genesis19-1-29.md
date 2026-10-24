@@ -115,7 +115,7 @@ What did God say would happen if we disobey him? We will surely die. Make no mis
 They were meant to live forever. Because of their sin, they perished.
 ### We shall perish because we are disobedient -- by choice and by birth 
 
-Not too recently, there are many began debating 
+Not too recently, many began debating, for what sin or sins did God destroy Sodom and Gomorrah? Growing up, especially in response to today's culture, from the Sexual Revolution on  
 
 ><sup>4</sup> Before they went to bed, the men of the city of Sodom, both young and old, the whole population, surrounded the house. 
 >
