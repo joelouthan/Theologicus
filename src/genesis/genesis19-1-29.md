@@ -86,7 +86,9 @@ Whether we, as mankind, believe or do not believe that God is Creator, matters n
 Since he is Creator, he has certain inalienable, inviolable rights that belong to being Creator. If you created something, say an invention or a piece of technology, you have certain rights over your creation that can never be taken away from you. What is fascinating is that recent reports of AI say, "Its becoming too dangerous." First, as Dr. Ian Malcolm once famously said, "Our scientists were so preoccupied with whether or not they could, they didn't stop to think if they should." Second, unlike the dinosaurs from Jurassic Park, to stop AI from becoming too dangerous, all anybody has to do is walk up and unplug it. But no one is going to do that because of money. But I digress.
 ### Second, God rules and reigns over everything 
 
-Nonetheless, God is Creator over all creation and therefore his rights as Creator are that he alone gets to rule and reign over all creation. That is his right as Creator.
+Nonetheless, God is Creator over all creation, and therefore his rights as Creator are that he alone gets to rule and reign over all creation. That is his right as Creator.
+
+>Romans 9:19-21 You will say to me, therefore, “Why then does he still find fault? For who resists his will? ” On the contrary, who are you, a human being, to talk back to God? Will what is formed say to the one who formed it, “Why did you make me like this? ” Or has the potter no right over the clay, to make from the same lump one piece of pottery for honor and another for dishonor?
 
 ### Third, God is in the heavens, and he does as he pleases 
 
