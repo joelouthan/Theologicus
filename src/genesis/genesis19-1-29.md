@@ -123,7 +123,9 @@ Not too recently, many began debating, for what sin or sins did God destroy Sodo
 
 Obviously, we needed to know the exact reason why God was so heaven-bent on eradicating these two cities off the face of the earth, this would be good reasons.
 
-And this is the charge of our modern culture. You can't say that. You can't say, "God destroyed two s"
+And this is the charge of our modern culture. You can't say that. You can't say, "God destroyed two cities because of homosexuality." Why? Because we, as mankind, have judged him in the wrong and he cannot do that.
+
+But we just learned that he does as 
 
 >Ezekiel 16:49 Now this was the iniquity of your sister Sodom: She and her daughters had pride, plenty of food, and comfortable security, but didn’t support the poor and needy.
 
