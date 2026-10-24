@@ -97,7 +97,9 @@ We think that, because we have free will, we might fool ourselves into thinking 
 
 Put it this way -- he is holy, good, perfect, sinless, and righteous, and he is free to do whatever he pleases.
 
-The folly of man -- we want absolute freedom, too. "Give me that, God! I want what you have but I don't you lording over me." Mankind, because we are born of Adam, with sinful hearts running away from God, want absolute freedom to sin. But there is no freedom in sin -- that only leads to death and the warth
+The folly of man -- we want absolute freedom, too. "Give me that, God! I want what you have but I don't you lording over me." Mankind, because we are born of Adam, with sinful hearts running away from God, wants absolute freedom to sin. But there is no freedom in sin -- that only leads to death and the wrath of God. True freedom can be found only in Christ our Lord.
+
+
 
 ### Fourth, God alone is holy, good, righteous, and just 
 
