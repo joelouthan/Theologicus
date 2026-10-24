@@ -90,7 +90,9 @@ Nonetheless, God is Creator over all creation, and therefore his rights as Creat
 
 >Romans 9:19-21 You will say to me, therefore, “Why then does he still find fault? For who resists his will?” On the contrary, who are you, a human being, to talk back to God? Will what is formed say to the one who formed it, “Why did you make me like this?" Or has the potter no right over the clay, to make from the same lump one piece of pottery for honor and another for dishonor?
 
-We, as his creation, only have the rights given to us by Creator
+As his creation, we have only the rights given to us by Creator God and nothing more.
+
+We think that, because we have free will, we might fool ourselves into thinking we have absolute freedom. God al
 ### Third, God is in the heavens, and he does as he pleases 
 
 ### Fourth, God alone is holy, good, righteous, and just 
