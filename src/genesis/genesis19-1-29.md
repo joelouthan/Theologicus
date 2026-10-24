@@ -83,7 +83,9 @@ The world questions whether or not God has the right to judge and execute us. Wh
 
 Whether we, as mankind, believe or do not believe that God is Creator, matters not -- God is still Creator over all of creation.
 
-Since he is Creator, he has certain inalienable, inviolable rights that belong to being Creator. If you created something, say an invention or a piece of technology, you have certain rights over your creation that can never be taken away from you. What is fascinating is that recent reports of AI say, "Its becoming too dangerous." First, as Dr. Ian Malcolm once famously said, "Our scientists were so preoccupied with whether or not they could, they didn't stop to think if they should." Second, not unlike the dinosaurs from Jurassic Park, in order to stop AI from becoming two dang
+Since he is Creator, he has certain inalienable, inviolable rights that belong to being Creator. If you created something, say an invention or a piece of technology, you have certain rights over your creation that can never be taken away from you. What is fascinating is that recent reports of AI say, "Its becoming too dangerous." First, as Dr. Ian Malcolm once famously said, "Our scientists were so preoccupied with whether or not they could, they didn't stop to think if they should." Second, unlike the dinosaurs from Jurassic Park, to stop AI from becoming too dangerous, all anybody has to do is walk up and unplug it. But no one is going to do that because of money. But I digress.
+
+Nonetheless, God is Cre
 
 ### Second, God rules and reigns over everything 
 
