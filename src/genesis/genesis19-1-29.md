@@ -105,9 +105,12 @@ The folly of man -- we want absolute freedom, too. "Give me that, God! I want wh
 
 This is what we call the covenant of works.
 
-God established this with Adam in the garden, "Do these things a"
+God established this with Adam in the garden, "Do these things and you will live."
 
+Adam failed to meet those demands.
 ### We have failed to meet his demands 
+
+What did God say would happen if we disobey him? We will surely die. Make no mistake -- Adam & Eve did not dro 
 
 ### We shall perish because we are disobedient -- by choice and by birth 
 
