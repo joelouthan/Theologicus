@@ -1,9 +1,9 @@
 <img class="intro-right" src="../images/art-creation.png">
 
-# Genesis 19:1-29 The Gospel Wrath
-
-## The Text
-
+# Genesis 19:1-29 The Gospel Wrath 
+ 
+## The Text 
+ 
 >Genesis 19:1–29  
 ><sup>1</sup> The two angels entered Sodom in the evening as Lot was sitting in Sodom’s gateway. When Lot saw them, he got up to meet them. He bowed with his face to the ground 
 >
@@ -65,47 +65,47 @@
 
 The world questions whether or not God has the right to judge and execute us. What have we done to deserve this wrath? Your God has no right to touch me! Your God has no right to take my life or the life of my loved one. He must be evil and cruel not only to allow evil to take place here, but also to exercise judgment over us.
 
-## Our God
-
+## Our God 
+ 
 ### God is Creator over everything 
+ 
 
-
-### God rules and reigns over everything
-
-### God is in the heavens and he does as he pleases
-
-### God alone is holy, good, righteous, and just
-
-### God makes demands on his creation -- it is right
-
-### We have failed to meet his demands
-
-### We shall perish because we are disobedient -- by choice and by birth
-
+### God rules and reigns over everything 
+ 
+### God is in the heavens and he does as he pleases 
+ 
+### God alone is holy, good, righteous, and just 
+ 
+### God makes demands on his creation -- it is right 
+ 
+### We have failed to meet his demands 
+ 
+### We shall perish because we are disobedient -- by choice and by birth 
+ 
 Ezekiel 16:49 Now this was the iniquity of your sister Sodom: She and her daughters had pride, plenty of food, and comfortable security, but didn’t support the poor and needy.
 
-#### Hell is real
-
-#### Torment is real
-
-#### This is not the torturous work of the devil, nor the mere consequences of our sins but this is the holy wrath of God
-
-#### That wrath is forever
-
-## His Gospel
-
-### But God
-
-#### alone being rich in neverending mercies
-
-#### alone who gives grace upon much needed grace
-
-#### alone whose steadfast love that never stops because it never began
-
-## Our Response
-
-### Who is like our God?
-
-### And who can compare to him?
-
-### He alone is worthy
+#### Hell is real 
+ 
+#### Torment is real 
+ 
+#### This is not the torturous work of the devil, nor the mere consequences of our sins but this is the holy wrath of God 
+ 
+#### That wrath is forever 
+ 
+## His Gospel 
+ 
+### But God 
+ 
+#### alone being rich in neverending mercies 
+ 
+#### alone who gives grace upon much needed grace 
+ 
+#### alone whose steadfast love that never stops because it never began 
+ 
+## Our Response 
+ 
+### Who is like our God? 
+ 
+### And who can compare to him? 
+ 
+### He alone is worthy 
