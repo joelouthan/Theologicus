@@ -99,11 +99,13 @@ Put it this way -- he is holy, good, perfect, sinless, and righteous, and he is 
 
 The folly of man -- we want absolute freedom, too. "Give me that, God! I want what you have but I don't you lording over me." Mankind, because we are born of Adam, with sinful hearts running away from God, wants absolute freedom to sin. But there is no freedom in sin -- that only leads to death and the wrath of God. True freedom can be found only in Christ our Lord.
 
+>John 8:34-36 Jesus responded, “Truly I tell you, everyone who commits sin is a slave of sin. A slave does not remain in the household forever, but a son does remain forever. So if the Son sets you free, you really will be free.
 
+### Lastly, God makes demands on his creation -- it is his right as Creator 
 
-### Fourth, God alone is holy, good, righteous, and just 
+This is what we call the covenant of works.
 
-### Fifth, God makes demands on his creation -- it is his right as Creator 
+God established this with Adam in the garden, "Do these things a"
 
 ### We have failed to meet his demands 
 
