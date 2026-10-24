@@ -143,9 +143,12 @@ God says, "D. All of the above."
 
 They did not help the poor and needy, although they had plenty. They were doing abominable acts before him. So he removed them when he saw this.
 
-Make no mistake -- I am emphasizing "sexual immortality" more so than homosexuality. Why? I don't want the hearer to be lulled into a stupor thinking that his *porneia* heterosexual acts gets ignored by our holy God while *porneia*
+Make no mistake -- I am emphasizing "sexual immortality" more so than homosexuality. Why? I don't want the hearer to be lulled into a stupor thinking that his πορνεία heterosexual acts gets ignored by our holy God while πορνεία homosexual acts get the just wrath of the Lord.
 
+It's all πορνεία. It's all sexual immorality. It is all a sin in the eyes of God.
 #### Hell is real 
+
+
 
 #### Torment is real 
 
