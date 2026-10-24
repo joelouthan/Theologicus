@@ -69,7 +69,15 @@ The world questions whether or not God has the right to judge and execute us. Wh
 
 >John 1:2–3 He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created.
 
+>Hebrews 1:2 In these last days, he has spoken to us by his Son. God has appointed him heir of all things and made the universe through him.
 
+>Job 26:13 By his breath the heavens gained their beauty; his hand pierced the fleeing serpent.
+
+>Romans 1:20 For his invisible attributes, that is, his eternal power and divine nature, have been clearly seen since the creation of the world, being understood through what he has made. As a result, people are without excuse.
+
+>Colossians 1:16 For everything was created by him, in heaven and on earth, the visible and the invisible, whether thrones or dominions or rulers or authorities— all things have been created through him and for him.
+
+>Genesis 1:31 God saw all that he had made, and it was very good indeed. Evening came and then morning: the sixth day.
 
 ### First, God is Creator over everything 
 
