@@ -121,7 +121,9 @@ Not too recently, many began debating, for what sin or sins did God destroy Sodo
 >
 ><sup>5</sup> They called out to Lot and said, “Where are the men who came to you tonight? Send them out to us so we can have sex with them!” 
 
-Obviously, we needed to know the exact reason why God w
+Obviously, we needed to know the exact reason why God was so heaven-bent on eradicating these two cities off the face of the earth, this would be good reasons.
+
+And this is the charge of our modern culture. You can't say that. You can't say, "God destroyed two s"
 
 >Ezekiel 16:49 Now this was the iniquity of your sister Sodom: She and her daughters had pride, plenty of food, and comfortable security, but didn’t support the poor and needy.
 
