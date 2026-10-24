@@ -67,15 +67,19 @@ The world questions whether or not God has the right to judge and execute us. Wh
 
 ## This is Our God 
 
+>John 1:2–3 He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created.
+
+
+
 ### First, God is Creator over everything 
 
-### God rules and reigns over everything 
+### Second, God rules and reigns over everything 
 
-### God is in the heavens, and he does as he pleases 
+### Third, God is in the heavens, and he does as he pleases 
 
-### God alone is holy, good, righteous, and just 
+### Fourth, God alone is holy, good, righteous, and just 
 
-### God makes demands on his creation -- it is right 
+### Fifth, God makes demands on his creation -- it is his right as Creator 
 
 ### We have failed to meet his demands 
 
