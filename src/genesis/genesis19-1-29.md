@@ -81,7 +81,9 @@ The world questions whether or not God has the right to judge and execute us. Wh
 
 >Genesis 1:31 God saw all that he had made, and it was very good indeed. Evening came and then morning: the sixth day.
 
-If we, as mankind, do not believe that God is Creator
+Whether we, as mankind, believe or do not believe that God is Creator, matters not -- God is still Creator over all of creation.
+
+Since he is Creator, he has certain inalienable 
 
 ### Second, God rules and reigns over everything 
 
