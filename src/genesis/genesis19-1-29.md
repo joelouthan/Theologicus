@@ -148,9 +148,12 @@ Make no mistake -- I am emphasizing "sexual immortality" more so than homosexual
 It's all πορνεία. It's all sexual immorality. It is all a sin in the eyes of God.
 #### Hell is real 
 
-Colossians 3:5-10 Therefore, put to death what belongs to your earthly nature: sexual immorality, impurity, lust, evil desire, and greed, which is idolatry. Because of these, God’s wrath is coming upon the disobedient, and you once walked in these things when you were living in them. But now, put away all the following: anger, wrath, malice, slander, and filthy language from your mouth. Do not lie to one another, since you have put off the old self with its practices and have put on the new self. You are being renewed in knowledge according to the image of your Creator.
+>Colossians 3:5-6 Therefore, put to death what belongs to your earthly nature: sexual immorality, impurity, lust, evil desire, and greed, which is idolatry. Because of these, God’s wrath is coming upon the disobedient,
 
+>John 3:36 The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
 #### Torment is real 
+
+
 
 #### This is not the torturous work of the devil, nor the mere consequences of our sins but this is the holy wrath of God 
 
