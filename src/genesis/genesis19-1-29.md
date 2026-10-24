@@ -67,7 +67,7 @@ The world questions whether or not God has the right to judge and execute us. Wh
 
 ## Our God
 
-### God is Creator over everything
+### God is Creator over everything 
 
 
 ### God rules and reigns over everything
