@@ -141,7 +141,9 @@ But then Jewish teachers would say, "Wait a minute, it wasn't because of sexual 
 
 God says, "D. All of the above."
 
-They were doing abominable 
+They did not help the poor and needy, although they had plenty. They were doing abominable acts before him. So he removed them when he saw this.
+
+Make no mistake -- I am i
 
 #### Hell is real 
 
