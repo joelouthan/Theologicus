@@ -95,6 +95,14 @@ As his creation, we have only the rights given to us by Creator God and nothing 
 We think that, because we have free will, we might fool ourselves into thinking we have absolute freedom. God alone has that absolute freedom.
 ### Third, God is in the heavens, and he does as he pleases 
 
+>Psalms 115:1-3 Not to us, LORD, not to us,
+but to your name give glory
+because of your faithful love, because of your truth.
+Why should the nations say,
+“Where is their God? ”
+Our God is in heaven
+and does whatever he pleases.
+
 Put it this way -- he is holy, good, perfect, sinless, and righteous, and he is free to do whatever he pleases.
 
 The folly of man -- we want absolute freedom, too. "Give me that, God! I want what you have but I don't you lording over me." Mankind, because we are born of Adam, with sinful hearts running away from God, wants absolute freedom to sin. But there is no freedom in sin -- that only leads to death and the wrath of God. True freedom can be found only in Christ our Lord.
@@ -125,7 +133,7 @@ Obviously, we needed to know the exact reason why God was so heaven-bent on erad
 
 And this is the charge of our modern culture. You can't say that. You can't say, "God destroyed two cities because of homosexuality." Why? Because we, as mankind, have judged him in the wrong and he cannot do that.
 
-But we just learned that he does as 
+But we just learned in Psalm 115, that he does he
 
 >Ezekiel 16:49 Now this was the iniquity of your sister Sodom: She and her daughters had pride, plenty of food, and comfortable security, but didn’t support the poor and needy.
 
