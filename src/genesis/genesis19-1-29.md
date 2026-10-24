@@ -115,7 +115,13 @@ What did God say would happen if we disobey him? We will surely die. Make no mis
 They were meant to live forever. Because of their sin, they perished.
 ### We shall perish because we are disobedient -- by choice and by birth 
 
-Ezekiel 16:49 Now this was the iniquity of your sister Sodom: She and her daughters had pride, plenty of food, and comfortable security, but didn’t support the poor and needy.
+Not too recently, there are many began debating 
+
+><sup>4</sup> Before they went to bed, the men of the city of Sodom, both young and old, the whole population, surrounded the house. 
+>
+><sup>5</sup> They called out to Lot and said, “Where are the men who came to you tonight? Send them out to us so we can have sex with them!” 
+
+>Ezekiel 16:49 Now this was the iniquity of your sister Sodom: She and her daughters had pride, plenty of food, and comfortable security, but didn’t support the poor and needy.
 
 #### Hell is real 
 
