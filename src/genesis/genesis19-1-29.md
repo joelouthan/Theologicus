@@ -189,7 +189,9 @@ You and I were born in disgrace, sinning against God right from the start. But l
 
 >“ ‘For this is what the Lord GOD says: I will deal with you according to what you have done, since you have despised the oath by breaking the covenant. But I will remember the covenant I made with you in the days of your youth, and I will establish a permanent covenant with you. Then you will remember your ways and be ashamed when you receive your older and younger sisters. I will give them to you as daughters, but not because of your covenant. I will establish my covenant with you, and you will know that I am the LORD, so that when I make atonement for all you have done, you will remember and be ashamed, and never open your mouth again because of your disgrace. This is the declaration of the Lord GOD.’ ”
 
-It is not us who fixes our relationship with God but rather it has to be God who fixes our relat
+It is not we who fix our relationship with God; rather, it is God who fixes our relationship with him.
+
+And he has -- he has sent his only begotten Son, Jesus Christ, who has saved us from our sins.
 ## Our Response 
 
 ### Who is like our God? 
