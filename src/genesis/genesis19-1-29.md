@@ -65,7 +65,9 @@
 
 The world questions whether or not God has the right to judge and execute us. What have we done to deserve this wrath? Your God has no right to touch me! Your God has no right to take my life or the life of my loved one. He must be evil and cruel, not only to allow evil to take place here, but also to judge us.
 
-## This is Our God 
+## This is Our God - He Alone is Creator
+
+### God is Creator over everything 
 
 >John 1:2–3 He was with God in the beginning. All things were created through him, and apart from him not one thing was created that has been created.
 
@@ -79,7 +81,7 @@ The world questions whether or not God has the right to judge and execute us. Wh
 
 >Genesis 1:31 God saw all that he had made, and it was very good indeed. Evening came and then morning: the sixth day.
 
-### First, God is Creator over everything 
+If we, as mankind, do not believe that God is Creator
 
 ### Second, God rules and reigns over everything 
 
