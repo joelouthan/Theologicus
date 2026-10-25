@@ -29,7 +29,7 @@ The law of God is clear on such matters. He has made his commands clear. But thi
 
 No one in their right mind would justify this sort of depravity using the Bible. "Lot and his daughters" or "Jacob and his daughter-in-law" or "the family of David" or even Paul rebuke in his letter to the church in Corinth: "Hey, DO NOT sleep with your stepmom -- just don't"
 
-Just because God records a sin does not mean he allows the sin. Take, for instance, polygamy. God commands marriage to be one man and one woman. Some heroes of the faith, Abraham, David, or Solomon, to name a few, had multiple wives, but that does not justify their actions. Read those passages with spiritual eyes. What I see and read is that we have men of God who were born of Adam, born again of God, but still sinned against God. Each godly man you read about was doing godly things when they had their first wife: Abraham & Sarah, David & Michal, or Solomon & Pharaoh's daughter (theoretically).
+Just because God records a sin does not mean he allows the sin. Take, for instance, polygamy. God commands marriage to be one man and one woman. Some heroes of the faith, Abraham, David, or Solomon, to name a few, had multiple wives, but that does not justify their actions. Read those passages with spiritual eyes. What I see and read is that we have men of God who were born of Adam and at the same time, born again of God, but still sinned against God. Each godly man you read about was doing godly things when they had their first wife: Abraham & Sarah, David & Michal, or Solomon & Pharaoh's daughter (*theoretically*, see 1 Kings 3:1).
 
 I want to make this explicitly clear so that no one can misquote me or take me out of context. 
 
