@@ -1,5 +1,7 @@
 # Mark 7:1-30
 
+<p style="font-size: 1.6rem; margin-top: 0px "><i>A Sermon</i><p>
+
 ## The Text
 
 > **Mark 7:1–30 (CSB)**
