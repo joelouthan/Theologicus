@@ -27,9 +27,9 @@
 
 The law of God is clear on such matters. He has made his commands clear. But this will not be the first time in the bible we will hear of such perversion, nor the last.
 
-No one in their right mind would justify this sort of depravity using the Bible. "Lot and his daughters" or "Jacob and his daughter-in-law" or even Paul rebuke in his letter to the church in Corinth, "Hey, DO NOT sleep with your stepmom -- just don't"
+No one in their right mind would justify this sort of depravity using the Bible. "Lot and his daughters" or "Jacob and his daughter-in-law" or even Paul rebuke in his letter to the church in Corinth: "Hey, DO NOT sleep with your stepmom -- just don't"
 
-(Often I tell my congregation, "I am not a prophet but," I will then predict what's going to happen based on my understanding of the Scriptures, philosophy, and our modern world. This is one of those times. I am not a prophet but mark my words -- the current world, here in America, due to so many people sitting under their own spiritual authro)
+(Often I tell my congregation, "I am not a prophet but," I will then predict what's going to happen based on my understanding of the Scriptures, philosophy, and our modern world. This is one of those times. I am not a prophet, but mark my words -- the current world, here in America, due to so many people sitting under their own spiritual authority, is going to come to the conclusion that polygamy is allowed by the One Holy God. Don't say you read the Bible and say something so foolish )
 
 ### The most depraved 
 
