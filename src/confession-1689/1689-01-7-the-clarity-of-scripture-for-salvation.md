@@ -97,7 +97,9 @@ We assume that we are mature and that can we demystified the mysteries of God. I
 
 Learned, unlearned. Some schooling, no schooling. Can read, can't read. 99% of the people in the Bible could not read nor write. But they could receive the word of God. They could sit under the preaching of the word by the priest or the preacher. They could have someone translate if they were deaf.
 
-And what God has made crystal, undeniably, basic, rudimentary, elementary, abundantly clear -- the perspicuity o: that God saves sinners through His Son, Jesus Christ, who is God, our Lord and King, who rules and reigns forever and ever.
+And what God has made crystal, undeniably, basic, rudimentary, elementary, abundantly clear -- the perspicuity of Scripture concerning the gospel of Christ: that God saves sinners through His Son, Jesus Christ, who is God, our Lord and King, who rules and reigns forever and ever.
+
+It is clear and distinct. Never confusion.
 ### in a due use of the ordinary means, may attain unto a sufficient understanding of them.
 
 Go back and read Luke 23 again:
