@@ -1,3 +1,5 @@
+<img class="intro-right" src="../images/art-mark.jpg">
+
 # Mark 7:31-8:6
 
 <p style="font-size: 1.6rem; margin-top: 0px "><i>A Sermon</i><p>
