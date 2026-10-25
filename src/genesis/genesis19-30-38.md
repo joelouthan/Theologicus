@@ -35,6 +35,7 @@ I want to make this explicitly clear so that no one can misquote me or take me o
 
 (Often I tell my congregation, "I am not a prophet but," I will then predict what's going to happen based on my understanding of the Scriptures, philosophy, and our modern world. This is one of those times. I am not a prophet, but mark my words -- the current world, here in America, due to so many people sitting under their own spiritual authority, is going to come to the conclusion that polygamy is allowed by the One Holy God. And it will be your own people- Evangelicals. Don't say you read the Bible and then say something so foolish that it's clear you don't understand or read it. But I digress.)
 
+TODO
 ### The most depraved 
 
 ### The most wicked 
