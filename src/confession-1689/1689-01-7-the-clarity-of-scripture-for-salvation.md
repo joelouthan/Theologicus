@@ -99,6 +99,7 @@ Learned, unlearned. Some schooling, no schooling. Can read, can't read. 99% of t
 
 And what God has made crystal, undeniably, basic, rudimentary, elementary, abundantly clear: that God saves sinners through His Son, Jesus Christ, who is God, our Lord and King, who rules and reigns forever and ever.
 
+Thi
 ### in a due use of the ordinary means, may attain unto a sufficient understanding of them.
 
 Go back and read Luke 23 again:
