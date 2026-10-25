@@ -9,9 +9,9 @@
 
 # Zephaniah 3
 
-## The Text
+<p style="font-size: 1.6rem; margin-top: 0px "><i>A Sermon</i><p>
 
-Zephaniah 3
+## The Text
 
 **1** Woe to the city that is rebellious and defiled, the oppressive city!
 

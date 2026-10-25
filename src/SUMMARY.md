@@ -725,7 +725,7 @@
 - [Nahum]()
 - [Habakkuk]()
 - [Zephaniah](zephaniah/index.md)
-  - [Zephaniah 3](zephaniah/sermon-zephaniah03.md)
+  - [Zephaniah 3](zephaniah/zephaniah03-sermon.md)
 - [Haggai]()
 - [Zechariah]()
 - [Malachi]()
