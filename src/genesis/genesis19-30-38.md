@@ -25,7 +25,9 @@
 
 ## Our God
 
-The law of God is clear on such matters. He has made his commands clear. But this will not be the first time in the bible we will hear of such perv
+The law of God is clear on such matters. He has made his commands clear. But this will not be the first time in the bible we will hear of such perversion, nor the last.
+
+No one in their right mind would justify this sort of depravity using the Bible. "Lot and his daughters" or "Jacob and his daughter-in-law" or even Paul rebuke 
 
 ### The most depraved 
 
