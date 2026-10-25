@@ -21,4 +21,12 @@
 >
 ><sup>38</sup> The younger also gave birth to a son, and she named him Ben-ammi. He is the father of the Ammonites of today.
 
+## Pray
+
+## Our God
+
 >John 1:10-13 He was in the world, and the world was created through him, and yet the world did not recognize him. He came to his own, and his own people did not receive him. But to all who did receive him, he gave them the right to be children of God, to those who believe in his name, who were born, not of natural descent, or of the will of the flesh, or of the will of man, but of God.
+## His Gospel
+
+## Our Response
+
