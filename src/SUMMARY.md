@@ -1118,7 +1118,7 @@
   - [Luke 24 Christ Lives](luke/luke24.md)
   - [Bibliography](luke/bibliography.md)
 - [John](john/index.md)
-  - [John 11:1-44, A Sermon](john/john11-01-44-sermon.md)
+  - [Sermon: John 11:1-44](john/john11-01-44-sermon.md)
 - [Acts]()
 - [Romans](romans/index.md)
   - [Romans 1:1 God Alone Saves](romans/romans01-01-.md)
