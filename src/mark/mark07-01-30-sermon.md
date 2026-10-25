@@ -4,8 +4,6 @@
 
 ## The Text
 
-> **Mark 7:1–30 (CSB)**
-
 > **1** The Pharisees and some of the scribes who had come from Jerusalem gathered around him.
 > **2** They observed that some of his disciples were eating bread with unclean—that is, unwashed—hands.
 > **3** (For the Pharisees and all the Jews do not eat unless they give their hands a ceremonial washing, keeping the tradition of the elders.

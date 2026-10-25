@@ -1,8 +1,8 @@
-# Mark 7:31-8:26
+# Mark 7:31-8:6
+
+<p style="font-size: 1.6rem; margin-top: 0px "><i>A Sermon</i><p>
 
 ## The Text
-
-> **Mark 7:31–8:26**
 
 > **31** Again, leaving the region of Tyre, he went by way of Sidon to the Sea of Galilee, through the region of the Decapolis.
 > **32** They brought to him a deaf man who had difficulty speaking and begged Jesus to lay his hand on him.
