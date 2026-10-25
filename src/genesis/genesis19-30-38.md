@@ -25,6 +25,8 @@
 
 ## Our God
 
+The law of God is clear on such matters. He has made his commands clear. But this will not be the first time in the bible we will hear of such perv
+
 ### The most depraved 
 
 ### The most wicked 
