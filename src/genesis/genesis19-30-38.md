@@ -20,3 +20,4 @@
 ><sup>37</sup> The firstborn gave birth to a son and named him Moab. He is the father of the Moabites of today. 
 >
 ><sup>38</sup> The younger also gave birth to a son, and she named him Ben-ammi. He is the father of the Ammonites of today.
+
