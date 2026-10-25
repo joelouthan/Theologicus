@@ -6,7 +6,6 @@
 
 ## The Text
 
->John 11  
 ><sup>1</sup> Now a man was sick—Lazarus from Bethany, the village of Mary and her sister Martha. 
 >
 ><sup>2</sup> Mary was the one who anointed the Lord with perfume and wiped his feet with her hair, and it was her brother Lazarus who was sick. 

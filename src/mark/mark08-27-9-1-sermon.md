@@ -1,8 +1,10 @@
-# 📖 Mark 8:27-9:1
+<img class="intro-right" src="../images/art-mark.jpg">
+
+# Mark 8:27-9:1
+
+<p style="font-size: 1.6rem; margin-top: 0px "><i>A Sermon</i><p>
 
 ## The Text
-
-> **Mark 8:27–9:1**
 
 > **27** Jesus went out with his disciples to the villages of Caesarea Philippi. And on the road he asked his disciples, "Who do people say that I am?"  
 > **28** They answered him, "John the Baptist; others, Elijah; still others, one of the prophets."  

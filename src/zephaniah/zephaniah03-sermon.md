@@ -7,11 +7,11 @@
 }
 </style>
 
-# 📖 Zephaniah 3
+# Zephaniah 3
+
+<p style="font-size: 1.6rem; margin-top: 0px "><i>A Sermon</i><p>
 
 ## The Text
-
-Zephaniah 3
 
 **1** Woe to the city that is rebellious and defiled, the oppressive city!
 
