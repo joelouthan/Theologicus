@@ -29,7 +29,7 @@ The law of God is clear on such matters. He has made his commands clear. But thi
 
 No one in their right mind would justify this sort of depravity using the Bible. "Lot and his daughters" or "Jacob and his daughter-in-law" or even Paul rebuke in his letter to the church in Corinth, "Hey, DO NOT sleep with your stepmom -- just don't"
 
-(Often I tell my congregation, "I am not a prophet but)
+(Often I tell my congregation, "I am not a prophet but," I will then predict what's going to happen based on my understanding of the Scriptures, philosophy, and our modern world. This is )
 
 ### The most depraved 
 
