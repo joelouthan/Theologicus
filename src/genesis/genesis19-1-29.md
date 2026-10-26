@@ -92,7 +92,7 @@ Nonetheless, God is Creator over all creation, and therefore his rights as Creat
 
 As his creation, we have only the rights given to us by Creator God and nothing more.
 
-!
+![]()
 
 We think that, because we have free will, we might fool ourselves into thinking we have absolute freedom. God alone has that absolute freedom.
 ### Third, God is in the heavens, and he does as he pleases 
