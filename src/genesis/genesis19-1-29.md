@@ -94,7 +94,7 @@ As his creation, we have only the rights given to us by Creator God and nothing 
 
 <figure style="text-align: center;">
     <img src="sproul-consent.jpg" style="display: block; float: none; margin: auto; width: 400px;" alt="">
-    <figcaption style="font-style: italic; text-align: center;"></figcaption>
+    <figcaption style="font-style: italic; text-align: center;">"God doesn't need our consent </figcaption>
 </figure>
 
 We think that, because we have free will, we might fool ourselves into thinking we have absolute freedom. God alone has that absolute freedom.
