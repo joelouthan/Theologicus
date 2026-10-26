@@ -84,7 +84,6 @@ The world questions whether or not God has the right to judge and execute us. Wh
 Whether we, as mankind, believe or do not believe that God is Creator matters not -- God is still Creator over all of creation.
 
 Since he is Creator, he has certain inalienable, inviolable rights that belong to being Creator. If you created something, say an invention or a piece of technology, you have certain rights over your creation that can never be taken away from you. What is fascinating is that recent reports of AI say, "Its becoming too dangerous." First, as Dr. Ian Malcolm once famously said, "Our scientists were so preoccupied with whether or not they could, they didn't stop to think if they should." Second, unlike the dinosaurs from Jurassic Park, to stop AI from becoming too dangerous, all anybody has to do is walk up and unplug it. But no one is going to do that because of money. But I digress.
-
 ### Second, God rules and reigns over everything 
 
 Nonetheless, God is Creator over all creation, and therefore his rights as Creator are that he alone gets to rule and reign over all creation. That is his right as Creator.
@@ -94,12 +93,11 @@ Nonetheless, God is Creator over all creation, and therefore his rights as Creat
 As his creation, we have only the rights given to us by Creator God and nothing more.
 
 <figure style="text-align: center;">
-    <img src="kkk-jesus-saves.jpg" style="display: block; float: none; margin: auto; width: 400px;" alt="Ku Klux Klan in a church sanctuary with a banner in the background that reads Jesus Saves">
+    <img src="sproul-consent.jpg" style="display: block; float: none; margin: auto; width: 400px;" alt="">
     <figcaption style="font-style: italic; text-align: center;">Total Depravity and Wickedness on Display, Romans 1:18-32</figcaption>
 </figure>
 
 We think that, because we have free will, we might fool ourselves into thinking we have absolute freedom. God alone has that absolute freedom.
-
 ### Third, God is in the heavens, and he does as he pleases 
 
 >Psalms 115:1-3 Not to us, LORD, not to us,
