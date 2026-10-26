@@ -93,7 +93,10 @@ Nonetheless, God is Creator over all creation, and therefore his rights as Creat
 
 As his creation, we have only the rights given to us by Creator God and nothing more.
 
-![](images/sproul-consent.jpg)
+<figure style="text-align: center;">
+    <img src="kkk-jesus-saves.jpg" style="display: block; float: none; margin: auto; width: 400px;" alt="Ku Klux Klan in a church sanctuary with a banner in the background that reads Jesus Saves">
+    <figcaption style="font-style: italic; text-align: center;">Total Depravity and Wickedness on Display, Romans 1:18-32</figcaption>
+</figure>
 
 We think that, because we have free will, we might fool ourselves into thinking we have absolute freedom. God alone has that absolute freedom.
 
