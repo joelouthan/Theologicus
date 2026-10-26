@@ -52,6 +52,7 @@
 {{#include biblio-cmt-samuel.md}}
 
 {{#include biblio-cmt-kings.md}}
+
 {{#include biblio-cmt-chronicles.md}}
 
 {{#include biblio-cmt-ezra.md}}

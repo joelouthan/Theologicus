@@ -165,10 +165,12 @@ Remembrance
 </div>
 
 Everything you have done
+
 * in my life
 * and the life of your people
 
 Help me
+
 * to remember you
 * when I am weak
 * and when I would perish
@@ -176,12 +178,14 @@ Help me
 * of the perishable.
 
 You have come to save me
+
 * and when I wander
 * and lost again
 * you will save me
 * yet again.
 
 Write your precious Scripture
+
 * upon my heart
 * so I might not sin
 * against you

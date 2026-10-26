@@ -47,6 +47,7 @@ Grace
 </div>
 
 Just as you looked upon Noah
+
 * saw his wickedness
 * foolishness
 * worthlessness
@@ -60,6 +61,7 @@ Just as you looked upon Noah
 * against your holiness
 
 But just as you looked upon Noah
+
 * and gave him grace
 * you looked upon my estate
 * and gave me grace
@@ -70,12 +72,14 @@ But just as you looked upon Noah
 * and saved me.
 
 There will be one day
+
 * I will stand in front of your precious Son
 * and the account of my sins will be listed off
 * and others' sins will not compare to my own
 * because I am the chief of sinners
 
 Call my sins out
+
 * every last one of them
 * because even it was one sin or a billionth sin
 * I will still need Your only begotten Son
@@ -85,9 +89,11 @@ Call my sins out
 * to remove my transgressions as far as the east is from the west
 
 I am in desperate need
+
 * of the grace that only Christ can give.
 
 Name my sins
+
 * so even my wickedness
 * will glorify His name
 * because salvation belongs to the Lord

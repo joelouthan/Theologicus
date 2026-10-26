@@ -20,12 +20,14 @@ God of my little belief
 </div>
 
 Oh how many times, O Lord,
+
 * have I whispered nothings
 * gave half-hearted thanks
 * prayed and did not believe
 * spoke and did not think it was real.
 
 When I was an ungodly husband
+
 * and my weak non-prayers were unanswered
 * When I was a sinful subject
 * and any other king would ignore me
@@ -36,6 +38,7 @@ When I was an ungodly husband
 But that is not you.
 
 You are the King who sends his heralds
+
 * to tell the nations
 * about the good news
 * that the God of the universe
@@ -51,6 +54,7 @@ You are the King who sends his heralds
 * like me.
 
 You rescued me
+
 * you called on me
 * I call on you.
 * You turn your ear to me
@@ -60,4 +64,5 @@ You rescued me
 * becasue you love me.
 
 Be exalted, O Lord.
+
 Be exalted higher and higher.

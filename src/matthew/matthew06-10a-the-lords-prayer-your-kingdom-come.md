@@ -7,6 +7,7 @@
 ## The Text
 
 ## The Devotion
+
 ## Pray Then Like This
 
 >Matthew 6:10a Your kingdom come
@@ -79,6 +80,7 @@
 >we are counted as sheep to be slaughtered.
 >
 >No, in all these things we are more than conquerors through him who loved us. For I am persuaded that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor any other created thing will be able to separate us from the love of God that is in Christ Jesus our Lord.
+
 ## The Prayer
 
 <div style="font-variant: small-caps;">

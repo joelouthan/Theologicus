@@ -21,6 +21,7 @@ The Only Holder of My Heart
 </div>
 
 I have one prayer:
+
 * give me your heart.
 * for mine is frail and weak
 * and corrupted with sin.
@@ -30,6 +31,7 @@ I have one prayer:
 * and seeks to only destroy me.
 
 If I had your heart,
+
 * surely I will live
 * surely I will be in your grace
 * surely I will give others your grace
@@ -38,6 +40,7 @@ If I had your heart,
 * and your desire was to save them
 
 Grant me a new heart, O Lord
+
 * then my desires will not be for this world
 * but for they will be for you alone.
 

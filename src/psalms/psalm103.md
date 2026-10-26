@@ -274,38 +274,47 @@ forever.
 I cannot believe that you would be so mindful of me.
 
 You have seen me in the fallen state  
+
 * and you took pity on me.
 
 You know that I could not save myself 
+
 * and I was good as dead.
 
 I was once foolish and led astray  
+
 * enslaved by my sin and my desires.
 
 But you sent your Son  
+
 * to come rescue me  
 * to save me from death  
 * to capture me  
 * and make me yours.
 
 You are the lover of my soul  
+
 * and the king of my heart.
 
 You are my portion and my rock  
+
 * forever.
 
 I make no claim to myself  
+
 * I am yours.
 
 Be glorified today.
 
 My sins have been massive  
+
 * there is none that have out-sinned me  
 * for anger, I took joy in rage  
 * for lust, I have consumed all perversion  
 * for lying, every word out of my mouth was deceit.
 
 But worst of all  
+
 * I pretend to be nice and kind  
 * but inside, I was the opposite  
 * and thought I had everyone fooled  
@@ -316,10 +325,12 @@ But worst of all
 * and have nothing to do with me.
 
 And I have lost friends  
+
 * and loved ones  
 * because of who I really was.
 
 But you knew me  
+
 * you saw straight through me  
 * and in my cold heart  
 * was the root of evil  
@@ -327,6 +338,7 @@ But you knew me
 * always.
 
 But you love me  
+
 * and you excavated my old heart  
 * and gave me yours  
 * sealed me with your Spirit  
@@ -336,6 +348,7 @@ But you love me
 * and unmute my tongue.
 
 And the infection  
+
 * the cancer  
 * the disease  
 * that was eating my soul?
@@ -344,6 +357,7 @@ And the infection
 * and made me a completely new person.
 
 For all of my  
+
 * troubling sin  
 * wicked perversion  
 * grotesque behavior  
@@ -354,22 +368,26 @@ For all of my
 * I should have been counted with the worthless.
 
 I should have  
+
 * because everything about me  
 * was at war with you.
 
 But you have been my God  
+
 * before I was even a thought in my mother's womb  
 * you have molded time and space  
 * and your Son entered into creation  
 * to save a wretched outcast like me.
 
 You have delivered me from sin  
+
 * and you have removed my transgressions  
 * but you have not gone back in time  
 * and removed the hurt I have caused  
 * and the hurt and pain that I have endured.
 
 You alone  
+
 * have made it worthwhile  
 * the evil I have felt and dealt  
 * you have turned it into good  
@@ -378,15 +396,18 @@ You alone
 * for good.
 
 I praise you  
+
 * because you alone  
 * have loved me.
 
 You have made me a blessed man  
+
 * I am wealthy than the wealthiest combined  
 * I am stronger than a thousand strongmen  
 * I am wiser than Solomon.
 
 Because I have you  
+
 * you are my King Jesus  
 * you are my everything  
 * everything in this life  
@@ -403,18 +424,21 @@ Because I have you
 * because you give without hesitation.
 
 In you, my Christ  
+
 * my Father has given me so much  
 * that heaven and earth  
 * could give me 
 * no more.
 
 No matter what sin  
+
 * and evil is against me  
 * you are always  
 * my Lord and my God  
 * forever.
 
 There is no wickedness left  
+
 * on this world  
 * by mankind  
 * that can rail against me  
@@ -422,11 +446,13 @@ There is no wickedness left
 * forever.
 
 But it is not the trespasses of the world  
+
 * that will cause me to fall away  
 * it is my own depravity  
 * that will cause me to wander.
 
 But you have given me  
+
 * your Son's righteousness  
 * and now  
 * you are my hope and stay.
@@ -436,10 +462,12 @@ But you have given me
 * forever.
 
 Be exalted, O Lord  
+
 * in my life  
 * today.
 
 There was a time  
+
 * when I thought I knew of your word  
 * because I glanced through the pages  
 * or I took a couple weeks of intently reading  
@@ -447,10 +475,12 @@ There was a time
 * an expert on what you have said.
 
 But I was foolish  
+
 * and always disobedient  
 * to what you have told me to do.
 
 But if my eyes were opened  
+
 * and my ears were unstopped  
 * and my heart was soft  
 * and my mind was renewed  
@@ -458,12 +488,14 @@ But if my eyes were opened
 * and your Spirit was in me.
 
 Then I would have heard one word  
+
 * from your lips  
 * and been transformed  
 * and been made whole  
 * and would have believed.
 
 And I would have known  
+
 * your sweetest mercies  
 * your whelming grace  
 * your unending love  
@@ -472,12 +504,14 @@ And I would have known
 * for my wrongdoings.
 
 But now I know  
+
 * and you are  
 * and I am yours  
 * and you are mine  
 * forever.
 
 I bear witness  
+
 * with my entire life  
 * with my heart  
 * that you are this kind  
@@ -487,16 +521,19 @@ I bear witness
 * to a wretch like me.
 
 Look at my sins!
+
 * they are too numerous to count  
 * they are too vile to mention  
 * they are too great to be forgiven  
 * they are cause for your great wrath.
 
 I was the chief of sinners  
+
 * and done more evil in your sight  
 * than anybody could imagine.
 
 But you came to me  
+
 * you shown mercy to me  
 * and you lifted me up  
 * out of death  
@@ -508,14 +545,17 @@ But you came to me
 * forever.
 
 You have always been kind  
+
 * and compassionate  
 * and merciful  
 * and good to me.
 
 I praise you  
+
 * you are my God.
 
 I have spent my entire life  
+
 * warring against you  
 * fighting you  
 * sinning against you  
@@ -525,24 +565,28 @@ I have spent my entire life
 * to the core.
 
 With all of my life  
+
 * I have sinned against you  
 * lied to my fellow man  
 * lusted after women  
 * and anger towards children.
 
 I was an walking abomination  
+
 * and a living idol maker  
 * and a friend to Satan  
 * and a servant to the world  
 * and a slave to my own desires.
 
 I was a blasphemer  
+
 * persecutor  
 * arrogant  
 * violent man  
 * towards you.
 
 I was foolish  
+
 * disobedient  
 * deceived  
 * enslaved by various passions and pleasures  
@@ -551,6 +595,7 @@ I was foolish
 * detesting every one else.
 
 I was dead in my trespasses and sins  
+
 * and walked according to the ways of this world  
 * and was ruled by the ruler of the power of the air  
 * my spirit working in the disobedience  
@@ -561,15 +606,18 @@ I was dead in my trespasses and sins
 * a child of wrath.
 
 I have made it my livelihood  
+
 * to resist your grace.
 
 But what was your response?
 
 You did not destroy me  
+
 * you did not cast me to hell  
 * you did not leave me to my own corruption.
 
 Instead  
+
 * you were kind to me  
 * you sent your Son  
 * my Savior  
@@ -588,6 +636,7 @@ Instead
 * you gave me eternal life.
 
 Instead  
+
 * you strengthen me  
 * you consider me faithful  
 * you appoint me to the ministry  
@@ -607,6 +656,7 @@ Instead
 * for eternal life.
 
 Instead  
+
 * you were rich in mercy to me  
 * you were great in love to me  
 * you made me alive with Christ  
@@ -625,11 +675,13 @@ Instead
 * your workmanship.
 
 Instead  
+
 * you shown me the path of life  
 * you gave me the fullness of joy  
 * you gave me pleasures forevermore.
 
 Because you have given  
+
 * your only begotten Son  
 * Jesus Christ  
 * my Lord  
@@ -637,6 +689,7 @@ Because you have given
 * who is God.
 
 This is why  
+
 * I will proclaim  
 * I will sing  
 * I will praise  
@@ -653,15 +706,18 @@ This is why
 * forever and ever.
 
 My sins  
+
 * deserve the worst of your wrath  
 * the deepest hells  
 * the worst consequences.
 
 And I had suffered 
+
 * through my own sins  
 * here on my earth.
 
 In your great holiness  
+
 * you could have left me to rot  
 * you could have hardened my heart  
 * fashioned me into a vessel of wrath  
@@ -672,9 +728,11 @@ In your great holiness
 * and hated me forever.
 
 I was the worst sinner  
+
 * the chief of treason.
 
 In no ways  
+
 * did I do one thing  
 * to get you to notice me  
 * to get you to love me  
@@ -683,6 +741,7 @@ In no ways
 * to grant me mercy.
 
 But  
+
 * because you are rich in mercy  
 * you lavish me with grace upon grace  
 * and you love me  
@@ -695,16 +754,19 @@ But
 * forever and ever.
 
 Who is like, Lord?
+
 * And who can compare to you?
 * You alone are worthy.
 
 You are high  
+
 * far above the earth  
 * you alone are exalted  
 * far above  
 * all of my idols.
 
 But infinite distance  
+
 * that you are from me  
 * because of my sin  
 * and wickedness  
@@ -719,11 +781,13 @@ But infinite distance
 * and do evil consistently.
 
 But that infinite measurement  
+
 * is the exact amount  
 * of your faithful love  
 * towards me.
 
 How do I know?
+
 * You sent your Son  
 * and he traveled the distance  
 * and he bridges the gap  
@@ -734,6 +798,7 @@ How do I know?
 * forever.
 
 My Lord  
+
 * you are high  
 * above all the earth  
 * you are exalted  
@@ -745,6 +810,7 @@ I will exalt you
 I will love you.
 
 And with everything  
+
 * within me  
 * I will praise  
 * your glorious name  
@@ -771,6 +837,7 @@ I will always praise your glorious name!
 I have one thing to say.
 
 I see my love and my affections  
+
 * swell for you  
 * and all I want more 
 * than anything  
@@ -778,12 +845,14 @@ I see my love and my affections
 * and be with you.
 
 This  
+
 * that you have done in me  
 * could only be you  
 * thank you  
 * my God.
 
 For all of my sins  
+
 * and my wickedness  
 * and my evil  
 * my pride  
@@ -823,6 +892,7 @@ For all of my sins
 My ultimate failings.
 
 You know this about me  
+
 * and yet you love me  
 * and you sent your Son  
 * to live and die for me  
@@ -830,6 +900,7 @@ You know this about me
 * forever.
 
 In my life  
+
 * be glorified  
 * today.
 
@@ -844,23 +915,30 @@ Come get me soon.
 I love you.
 
 Once invisible now revealed  
+
 * from faith to faith.
 * 
+
 And when you appeared  
+
 * you saved me.
 
 You plucked me out of time and death  
  And entered me into your precious joy.
+
 * 
+
 Forever and ever.
 
 I have never kept your covenant  
+
 * I have never observed your precepts  
 * I have tried and failed  
 * I struggle and continue to fail  
 * I have fallen all the way short of your glory.
 
 But this covenant you have made  
+
 * you have made with not with me  
 * but for me  
 * and you made this promise  
@@ -871,6 +949,7 @@ But this covenant you have made
 * forever past and forever future.
 
 You keep us  
+
 * because he alone has fulfilled the covenant  
 * he alone has kept the precepts  
 * and I am in him  
@@ -880,11 +959,13 @@ You keep us
 Blessed be your holy name forever and ever.
 
 For all of my days  
+
 * I will bless your name  
 * Lord God my Father  
 * from everlasting to everlasting.
 
 Yours alone  
+
 * is the greatness  
 * and the power  
 * and the glory  
@@ -897,11 +978,13 @@ Yours alone
 * is yours.
 
 Yours is the kingdom  
+
 * and you are exalted  
 * far above  
 * all other gods.
 
 Whatever provision  
+
 * and riches  
 * and honor  
 * and glory  
@@ -911,6 +994,7 @@ Whatever provision
 * from you alone.
 
 Any ounce of power  
+
 * and strength  
 * and might  
 * and grace  
@@ -920,23 +1004,27 @@ Any ounce of power
 * and give strength to all.
 
 Because you are God alone  
+
 * I thank you  
 * and I praise your  
 * glorious name  
 * forever.
 
 Who am I  
+
 * and what are these people  
 * who think we can give something to you  
 * when you do not need anything  
 * and you are not served by our hands and strength.
 
 For everything  
+
 * comes from you alone  
 * and we are only giving  
 * what you have given us.
 
 We pilgrims  
+
 * and aliens  
 * sojourning  
 * and wandering  
@@ -948,6 +1036,7 @@ We pilgrims
 * without hope.
 
 I know you  
+
 * you have seen me  
 * from eternity past  
 * and found me wanting  
@@ -964,6 +1053,7 @@ I know you
 * with you.
 
 Lord God  
+
 * of Abraham, Isaac, and Israel,  
 * my fathers,   
 * make your home in me  
@@ -973,6 +1063,7 @@ Lord God
 * all the way home.
 
 For yours alone  
+
 * is the kingdom  
 * and the power  
 * and the glory  

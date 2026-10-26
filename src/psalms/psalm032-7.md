@@ -20,6 +20,7 @@ To the Rock of Ages
 </div>
 
 The world
+
 * and the Prince of the Air
 * and his demons
 * have left me
@@ -30,12 +31,14 @@ The world
 * to let my soul fall into hell.
 
 They care not for my soul,
+
 * it does not bother them
 * if I live or if I die
 * It is better for them
 * if I was to be destroyed.
 
 But when the waves were about to swallow me whole
+
 * you have come along
 * an bedrock island
 * raised up
@@ -47,4 +50,5 @@ But when the waves were about to swallow me whole
 * and you with me.
 
 You alone are my strength and shield
+
 * I will worship and rest in you.

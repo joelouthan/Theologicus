@@ -43,6 +43,7 @@ Only Giver of Life
 </div>
 
 When you found me
+
 * I was a swollen corpse
 * at the bottom of the ocean
 * I was a dried up river
@@ -51,6 +52,7 @@ When you found me
 * in a icy wasteland
 
 I was completely dead
+
 * I had no life to call upon you
 * I had no heart to beat towards you
 * My hands and feet were death
@@ -61,6 +63,7 @@ I was completely dead
 Surely I was left for dead
 
 But you saw me
+
 * and not only had pity on me
 * but more so
 * you gave me favor
@@ -81,6 +84,7 @@ But you saw me
 * you have glorified me
 
 You are my Lord and my God
+
 * there is none like you
 
 Amen and amen

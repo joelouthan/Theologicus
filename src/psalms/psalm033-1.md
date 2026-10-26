@@ -20,6 +20,7 @@ The Lyrics of the Sweetest Songs
 </div>
 
 With my voice
+
 * with every breath
 * I will shout out
 * I will cry out
@@ -27,6 +28,7 @@ With my voice
 * I will dance with joy
 
 Because you alone are
+
 * good
 * worthy
 * beautiful
@@ -39,5 +41,6 @@ Because you alone are
 * all of my gods
 
 I will worship you
+
 * forever I will worship
 * there is none like you

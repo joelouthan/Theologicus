@@ -57,17 +57,20 @@ Conqueror
 </div>
 
 Whatever life and death and grief and sadness and sin
+
 * presses down my life
 * grinds my bone into dust
 * breaks my heart into a billion pieces
 * and drags my soul into hell
 
 You are my God
+
 * and my Lord
 * and my King
 * and my Great Love.
 
 And you have not forgotten me
+
 * no forsaken me
 * you have loved me since forever
 * and you will love me forever
@@ -76,6 +79,7 @@ And you have not forgotten me
 * in my hour of desperate need.
 
 Because of what you have done
+
 * because of your work on your cross
 * you saved me
 * moreso, you conquered my true enemies
@@ -86,11 +90,13 @@ Because of what you have done
 * death.
 
 I don't to have to hate anyone who does me harm
+
 * I pray that you would save them to the utmost
 * and that they will know your great love for them
 * for all of their days.
 
 You are my Great Conqueror
+
 * and your conquest is finish.
 * Allow me to herald your great gospel
 * "Repent, for the kingdom of God is here!"

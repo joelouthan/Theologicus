@@ -33,6 +33,7 @@ My Blessing & Keeping
 </div>
 
 You are my great God
+
 * who sought in your good pleasure
 * to create me
 * to be on this earth
@@ -46,15 +47,16 @@ You are my great God
 * to bless me.
 
 I am so immensely blessed
+
 * from your own hand
 * and I have everything
 * because I have your only begotten Son
 * my only, only Lord Jesus Christ.
 
 I love you
+
 * and all that is in me
 * I will bless your holy name
 * forevermore.
 
 Amen.
-

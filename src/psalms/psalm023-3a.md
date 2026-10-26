@@ -26,6 +26,7 @@ I cannot live without you.
 Apart from you, the hole in my inner being remained infinitely empty.
 
 Without you, I strived
+
 * and pushed
 * and pulled
 * and made idols
@@ -34,6 +35,7 @@ Without you, I strived
 But all of it comes up empty.
 
 But you, O Lord, not only fills my heart to the brim but gives my soul b
+
 * and new life.
 
 Now, I run after you.
@@ -41,14 +43,17 @@ Now, I run after you.
 Now I walk with you.
 
 Now you are with me
+
 * and I am with you forever.
 
 Lord, give me the fullness of your Spirit so I might walk in your statues
+
 * and obey your commands.
 
 More than that, that I would have the strength to do you what you have called me to do.
 
 For my joy
+
 * and your glory.
 
 Forevermore.

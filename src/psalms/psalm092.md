@@ -51,16 +51,19 @@ Faithfulness
 </div>
 
 I worship you
+
 * Almighty God
 * there is none like you.
 
 Who is like you, O Lord
+
 * who has spare my life
 * who has saved my soul
 * who has made your home in me
 * who is the lover of my heart?
 
 There is none
+
 * because you have never left nor betrayed
 * despite my wickedness and folly
 * you have been for me
@@ -68,6 +71,7 @@ There is none
 * always to bring me back to you!
 
 With my mouth
+
 * I certainly will sing
 * I will give testimony
 * I will build my life giving you thanks
@@ -77,6 +81,7 @@ With my mouth
 * that my heart desires.
 
 I love you
+
 * and all that is within me
 * I will bless your holy name.
 

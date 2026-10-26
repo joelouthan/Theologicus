@@ -7,6 +7,7 @@
 ## The Text
 
 ## The Devotion
+
 ## Pray Then Like This
 
 >Matthew 6:9c your name be honored as holy
@@ -87,61 +88,97 @@ You are holy.
 You are far above, far from all of my sin, and the sins of the world.
 
 You shine the brightest.
+
   You are the most glorious.
+
   Your holiness is a fire unquenched. 
+
   Your holiness rejects and vomits out all of my trespasses.
 
 Our sins,
+
   our trespasses,
+
   our wickedness,
+
   our transgressions
+
   and our iniquities keep us infinitely far for You.
 
 Before You,
+
   we are complete strangers.
 
 Before You,
+
   we are children who sit under Your just and necessary wrath.
 
 Before You,
+
   we are dead.
 
 Yet,
+
   oh how good and wonderful 
+
   that You sent Your Son
+
   across that infinite separation
+
   through the shattered cosmos
+
   and into our broken lives as Jesus Christ,
+
   Son of the Living God 
+
   to be not only fully God 
+
   but also fully man.
 
 For it is Him who has made the way back to You!
 
 Now that we get to be with You,
+
   Your Son shows us how to pray 
+
   and Your Spirit prays with us. 
+
   Apart from Your sovereign grace, 
+
   the bloodshed and broken body of Your Son on that cross 
+
   and the power of Your Spirit, 
+
   not only did I not know You 
+
   but I actively waged war against Your holy name.
 
 But because Jesus Christ, 
+
 Your Son, and my Savior, 
+
 laid out the path to You, 
+
 I get to enjoy Your presence. 
+
 Because of Your Son’s life, death and resurrection,
+
 the absolute truth is that
+
 we get to fully enjoy You forever and ever.
 
 And because of Your Spirit’s awesome power,
+
   You claim us to be Yours forever.
 
 You have always known me 
+
   and You will always know me. 
+
   You will not forget me nor forsake me. 
+
   You have always loved me and you will always love me. 
+
   You are so good to me and you will not stop being good to me.
 
 How glorious is Your Name!

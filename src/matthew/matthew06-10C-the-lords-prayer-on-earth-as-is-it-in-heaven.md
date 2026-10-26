@@ -7,6 +7,7 @@
 ## The Text
 
 ## The Devotion
+
 ## Pray Then Like This
 
 >Matthew 6:10c on earth as it is in heaven
@@ -202,17 +203,25 @@ Lord
 We need to hear from you.
 
 Tell us your good news
+
   and give us you, O God
+
   so we can turn our hearts back to you.
 
 I have nothing on earth
+
   that satisfies eternity within me.
 
 My Christ,
+
   draw me close,
+
   keep me near,
+
   and give me grace
+
   to preach your good news
+
   for as long as I live.
 
 Amen

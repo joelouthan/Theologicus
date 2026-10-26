@@ -22,7 +22,6 @@ I am here to advise and encourage you saints to live by faith in the Son of God 
 
 >John 10:25–30 “I did tell you and you don’t believe,” Jesus answered them. “The works that I do in my Father’s name testify about me. But you don’t believe because you are not of my sheep. My sheep hear my voice, I know them, and they follow me. I give them eternal life, and they will never perish. No one will snatch them out of my hand. My Father, who has given them to me, is greater than all. No one is able to snatch them out of the Father’s hand. I and the Father are one.”
 
-
 ## The Gospel
 
 There are two distinctions: the unbeliever and the believer. The unbeliever does not believe because they do not follow Christ. “Well,” you might say, “if they could believe later on, would they then belong to Him?” Paul goes on to say in Romans 10:

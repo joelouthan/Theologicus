@@ -87,6 +87,7 @@ The books commonly called Apocrypha, not being of divine inspiration, are no par
 >Romans 3:2 Considerable in every way. First, they were entrusted with the very words of God.
 
 ### [1.4 The Authority of Holy Scripture](1689-01-4-the-authority-of-holy-scripture.md)
+
 The authority of the Holy Scripture, for which it ought to be believed, dependeth not upon the testimony of any man or church, but wholly upon God (who is truth itself), the author thereof; therefore it is to be received because it is the Word of God.
 
 >2 Peter 1:19–21  We also have the prophetic word strongly confirmed, and you will do well to pay attention to it, as to a lamp shining in a dark place, until the day dawns and the morning star rises in your hearts. Above all, you know this: No prophecy of Scripture comes from the prophet’s own interpretation, because no prophecy ever came by the will of man; instead, men spoke from God as they were carried along by the Holy Spirit.

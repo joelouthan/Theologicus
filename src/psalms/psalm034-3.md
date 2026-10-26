@@ -21,23 +21,28 @@ Deliverer from Death
 </div>
 
 People of God,
+
 * inhabitants of the world
 * dwellers in the city
 
 Turn your eyes upon God
+
 * look at his amazing love
 * His grace is for you!
 
 You do not have to die in your sin
+
 * He will rescue you!
 * He will pull you from hell
 
 You say, "I have no sin"
+
 * then you are condemned already
 * but those in Christ
 * there is no condemnation
 
 You say, "There is no hell"
+
 * but to those who do not
 * trust and obey the Son
 * the wrath of God remains upon you!
@@ -47,6 +52,7 @@ You say, "There is no hell"
 * that was properly owed to you.
 
 You say, "There is no God"
+
 * Do not be a hypocrite
 * Do not suppress
 * what you have seen
@@ -63,6 +69,7 @@ You say, "There is no God"
 * and what His Spirit will do.
 
 I pray
+
 * that you worship God 
 * with me
 * that you love God
@@ -71,6 +78,7 @@ I pray
 * and ask to be delivered
 
 Your circumstances might not change
+
 * your sins might catch up
 * you will still be affected by other's sins
 * But God will always be there
@@ -82,4 +90,5 @@ Your circumstances might not change
 * because the Spirit shall bear witness.
 
 Worship God!
+
 * He alone is worthy.

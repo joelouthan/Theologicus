@@ -31,6 +31,7 @@ Rescuer
 </div>
 
 How many times
+
 * do I fall back into the depths of the ocean
 * to drown in my own sin
 * to return back to my vomit
@@ -57,6 +58,7 @@ How many waves of sun?
 What is that number?
 
 Doesn't compare
+
 * to your unending love for me.
 
 Amen.

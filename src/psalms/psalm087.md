@@ -35,12 +35,14 @@ Dwelling
 </div>
 
 Where is my home
+
 * and my heart
 * and my love
 * and my belongings
 * and my rest?
 
 None other
+
 * than your Blessed Son
 * who is my King of kings
 * but who is my friend
@@ -48,12 +50,14 @@ None other
 * and my love and satisfaction.
 
 You have proven yourself over
+
 * time and time again
 * that you are mine
 * and I am yours
 * forevermore.
 
 And there is nothing
+
 * that can harm me
 * hurt me
 * damage me
@@ -61,6 +65,7 @@ And there is nothing
 * from your precious love.
 
 You are my God
+
 * and my Christ
 * my keeper
 * and my Lord
@@ -69,6 +74,7 @@ You are my God
 * all of my gods.
 
 I will exalt you
+
 * till my last heartbeat
 * till my dying breath
 * till my final thought

@@ -57,6 +57,7 @@ My Lord
 </div>
 
 I give you thanks
+
 * for saving your people
 * unto you
 * and giving the call
@@ -68,11 +69,13 @@ I give you thanks
 * all of our days.
 
 Continue to gather us
+
 * give us grace
 * to give you worship
 * and to love one another.
 
 I love you Lord
+
 * and I will bless your holy name
 * all because of what you have done
 * for us.

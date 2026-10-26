@@ -89,6 +89,7 @@ Lord
 </div>
 
 You have been  
+
 * throughout my life  
 * my only source  
 * only provision  
@@ -97,11 +98,13 @@ You have been
 * and my desires
 
 I know  
+
 * that I need many things  
 * in order to survive  
 * till the next day
 
 But you O Lord  
+
 * have provided  
 * what I truly need  
 * is you  
@@ -116,6 +119,7 @@ But you O Lord
 * for all times
 
 I love you, Lord  
+
 * and all that is within me  
 * I will be bless your holy name
 

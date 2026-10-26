@@ -37,6 +37,7 @@ My Home
 </div>
 
 Lord, I know
+
 * that we are strangers in this world,
 * exiles
 * aliens
@@ -45,6 +46,7 @@ Lord, I know
 * but we live in this world.
 
 We point all creatures
+
 * to raise there eyes
 * and see your Son
 * Jesus Christ

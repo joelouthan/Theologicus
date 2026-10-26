@@ -47,6 +47,7 @@ The King of my Soul,
 </div>
 
 In fury  
+
 * wrath  
 * injustice  
 * vengeance  
@@ -58,6 +59,7 @@ In fury
 * in my own self-righteousness.
 
 I share  
+
 * posts  
 * memes  
 * quotes  
@@ -73,6 +75,7 @@ I share
 * to you.
 
 My God,
+
 * make me ready  
 * for what you are about to do  
 * make me ready  
@@ -85,6 +88,7 @@ My God,
 * so that I can be with you.
 
 Every person  
+
 * that I have ever come across  
 * save them  
 * save them now  
@@ -98,6 +102,7 @@ Every person
 * who alone is mighty to save.
 
 Save them Lord  
+
 * Save them to the utmost  
 * Save them now  
 * Take us home  
@@ -106,9 +111,11 @@ Save them Lord
 * compares to you.
 
 We need you  
+
 * desperately  
 * right now.
 
 Come Lord Jesus  
+
 * Come quickly  
 * Amen and amen.

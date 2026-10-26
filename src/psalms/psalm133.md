@@ -27,6 +27,7 @@ My Eldest Brother
 </div>
 
 Thank you for gathering us
+
 * into your family
 * into your church
 * so that we can live together
@@ -34,6 +35,7 @@ Thank you for gathering us
 * and love one another.
 
 I remember moving to a foreign land
+
 * knowing no one
 * and being all alone
 * my prayers ahead of time
@@ -46,6 +48,7 @@ I remember moving to a foreign land
 * for me and my family.
 
 You were so quick to answer
+
 * and respond and provide
 * I love you with all of my heart
 * and I am so grateful

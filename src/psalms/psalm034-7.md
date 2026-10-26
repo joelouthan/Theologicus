@@ -21,9 +21,11 @@ My Awe and Wonder
 </div>
 
 We know that 
+
 sins crouched for us.
 
 We know that the devil
+
 * sets his snares for our souls.
 We know that the world
 * beckons our hearts towards death.
@@ -31,9 +33,11 @@ But you alone are
 * worthy to be praised
 
 You alone are
+
 * holy and holy and holy
 
 You alone are
+
 * righteous
 * for there is none like you
 
@@ -54,15 +58,18 @@ I will trust in your Son
 Because you have loved me
 
 Because your Son
+
 * lived and died for me
 
 Because your Spirit
+
 * bears witness with my spirit
 * that I am a son of God.
 
 That you dwell wholly within me.
 
 And with you in me
+
 * I will bless your holy name forever.
 
 Amen.

@@ -26,6 +26,7 @@
 - Think of a time this week where God has provided for you. Give him praise for he is good.
 - How have you been verbally blessed by others? Has it ever happened outside of church?
 - Take the time to trace your life and see how God has been at work so that "you might seek God, and perhaps you might reach out and find him, though he is not far from each one of us."
+
 ## The Introduction
 
 ><sup>1</sup> Now Naomi had a relative on her husband’s side. He was a prominent man of noble character from Elimelech’s family. His name was Boaz.

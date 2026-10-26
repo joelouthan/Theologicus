@@ -129,23 +129,39 @@ And the same from the Athanasian Creed:
  is both God and human, equally.
 
 He is God from the essence of the Father,
+
  begotten before time;
+
  and he is human from the essence of his mother,
+
  born in time;
+
  completely God, completely human,
+
  with a rational soul and human flesh;
+
  equal to the Father as regards divinity,
+
  less than the Father as regards humanity.
 
 Although he is God and human,
+
  yet Christ is not two, but one.
+
  He is one, however,
+
  not by his divinity being turned into flesh,
+
  but by God's taking humanity to himself.
+
  He is one,
+
  certainly not by the blending of his essence,
+
  but by the unity of his person.
+
  For just as one human is both rational soul and flesh,
+
  so too the one Christ is both God and human.
 
 The fight was long won by the grace of God. But we must be vigilant and fight the good fight of faith. We must be ready to give an answer for the hope that is within us. We must be ready to defend the faith once for all delivered to the saints.

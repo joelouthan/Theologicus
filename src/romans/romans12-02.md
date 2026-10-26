@@ -27,6 +27,7 @@ For some of us who grew up this way, we memorized the Ten Commandments. I do not
 Within the law of God, he has a list of dos and donts. Within the Ten Commandments, the list of donts outnumbers the dos. Do observe the Sabbath and keep it holy. Obey your parents.
 
 Look at the donts:
+
 - Do not worship other gods
 - Do not make an idol
 - Do not take the Lord's name in vain

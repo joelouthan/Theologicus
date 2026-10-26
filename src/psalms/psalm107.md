@@ -105,6 +105,7 @@ Lord
 </div>
 
 You are my forever  
+
 * Jesus  
 * Lamb of God  
 * and only your name  
@@ -112,12 +113,14 @@ You are my forever
 * forever.
 
 You are my covenant  
+
 * my rescuer  
 * my redeemer  
 * my portion  
 * and my destiny.
 
 Who is like you  
+
 * O Lord  
 * that while my own sins  
 * and the sins of others  
@@ -128,10 +131,12 @@ Who is like you
 * to your heart?
 
 You have rescued me  
+
 * not just seven  
 * but beyond seventy times seven.
 
 Who is like you, O My God?  
+
 * I will worship you  
 * for all of my days.
 * I will praise your holy name  

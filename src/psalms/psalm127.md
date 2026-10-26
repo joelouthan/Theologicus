@@ -31,15 +31,18 @@ My Provision and Sustainer
 </div>
 
 I dare not think
+
 * if I did not have you
 * where would I be?
 
 Surely, I would perish
+
 * I would not be fit for this earth
 * because I would be no good for this earth
 * my life would be expired.
 
 But since you are my Lord and my God
+
 * you sought fit
 * to redeem me
 * to save me
@@ -49,6 +52,7 @@ But since you are my Lord and my God
 * all of my days.
 
 So with all that is in me
+
 * and all of my days
 * I will bless your holy name
 * forever.

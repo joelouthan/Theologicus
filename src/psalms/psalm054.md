@@ -35,22 +35,26 @@ You Are My Deliverer
 </div>
 
 I have seen so many evils in my life
+
 * And I thought I had so many enemies
 * Because they have wounded me
 * And attempted to destroy me.
 
 I have come close to the edge of death
+
 * Because I was desperate for your love
 * And I cannot bear to live one more moment
 * Under persecution and torment.
 
 I was already weak.
+
 * The schemes of the devil?
 * They worked.
 * I was defeated.
 * And I was no more.
 
 But in whatever way
+
 * I cannot understand
 * You saved me
 * And you saved me time and time again
@@ -59,6 +63,7 @@ But in whatever way
 * You came and grabbed me and brough me close.
 
 What about that time
+
 * When you gave me your peace?
 * How did I react?
 * I fled full long into sin
@@ -84,6 +89,7 @@ Be my loving God.
 Have mercy on me.
 
 Thank you for saving me
+
 * And making me your son.
 
 Amen.

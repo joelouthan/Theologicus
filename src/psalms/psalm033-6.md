@@ -20,13 +20,16 @@ Creator and Redeemer
 </div>
 
 You are majestic
+
 * and altogether mighty.
 
 You alone brought something
+
 * out of nothing.
 * You alone can do that.
 
 When you created me,
+
 * you did so from what was created.
 * Out of dirt.
 
@@ -40,11 +43,13 @@ When you created me,
 * among many brethen.
 
 Because of my sin
+
 * I was destined to go back into dirt
 * apart from you
 * and under your wrath.
 
 Yet, in your great love,
+
 * you predestined me
 * not to dirt but to life
 * not apart but to fullness of joy

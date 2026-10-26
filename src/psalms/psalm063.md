@@ -43,6 +43,7 @@ You Are My God
 </div>
 
 My enemies feebly
+
 * failed to destroy me
 * They attacked me from all sides
 * They have punctured my heart 
@@ -51,6 +52,7 @@ My enemies feebly
 * my soul was gone.
 
 But I belong to you
+
 * you are my everlasting God
 * who have sent His Son
 * to live and die for me
@@ -58,6 +60,7 @@ But I belong to you
 * but have everlasting life.
 
 Your love
+
 * is what my life runs on.
 * Be my everything
 * and be with me forever.

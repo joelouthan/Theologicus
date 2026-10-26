@@ -37,6 +37,7 @@ My Conqueror,
 </div>
 
 I have no enemies
+
 * other than Satan
 * sin
 * death
@@ -44,6 +45,7 @@ I have no enemies
 * and hell.
 
 They have attacked me since my youth
+
 * and many times
 * it feels like 
 * they have conquered me
@@ -55,6 +57,7 @@ They have attacked me since my youth
 And they nearly did.
 
 But You, O Lord,
+
 * are always compassionate
 * and you took pity on me
 * and you saved me
@@ -63,6 +66,7 @@ But You, O Lord,
 * from the power of death.
 
 I will praise your name
+
 * Lord Jesus.
 
 Amen.

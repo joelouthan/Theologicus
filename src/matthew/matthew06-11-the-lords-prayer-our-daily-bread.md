@@ -7,6 +7,7 @@
 ## The Text
 
 ## The Devotion
+
 ## Pray Then Like This
 
 >Matthew 6:11 Give us today our daily bread.
@@ -98,6 +99,7 @@ But Christ already said that his word gets taken away, choked up, or burns in th
 >Jesus replied to them, “Didn’t I choose you, the Twelve? Yet one of you is a devil.” He was referring to Judas, Simon Iscariot’s son, one of the Twelve, because he was going to betray him.
 
 ### The Prayer
+
 &nbsp;
 
 <div style="font-variant: small-caps;">

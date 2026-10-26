@@ -18,7 +18,7 @@
 >The men who were traveling with him stood speechless, hearing the sound but seeing no one. Saul got up from the ground, and though his eyes were open, he could see nothing. So they took him by the hand and led him into Damascus. He was unable to see for three days and did not eat or drink.
 
 ### Saul’s Baptism
->
+
 >There was a disciple in Damascus named Ananias, and the Lord said to him in a vision, “Ananias.”
 >“Here I am, Lord,” he replied.
 >“Get up and go to the street called Straight,” the Lord said to him, “to the house of Judas, and ask for a man from Tarsus named Saul, since he is praying there. In a vision he has seen a man named Ananias coming in and placing his hands on him so that he may regain his sight.”
@@ -30,9 +30,9 @@
 >Ananias went and entered the house. He placed his hands on him and said, “Brother Saul, the Lord Jesus, who appeared to you on the road you were traveling, has sent me so that you may regain your sight and be filled with the Holy Spirit.”
 >
 >At once something like scales fell from his eyes, and he regained his sight. Then he got up and was baptized. And after taking some food, he regained his strength.
->
+
 ### Saul Proclaiming the Messiah
->
+
 >Saul was with the disciples in Damascus for some time. Immediately he began proclaiming Jesus in the synagogues: “He is the Son of God.”
 >
 >All who heard him were astounded and said, “Isn’t this the man in Jerusalem who was causing havoc for those who called on this name and came here for the purpose of taking them as prisoners to the chief priests?”
@@ -40,8 +40,6 @@
 >But Saul grew stronger and kept confounding the Jews who lived in Damascus by proving that Jesus is the Messiah.
 >
 >After many days had passed, the Jews conspired to kill him, but Saul learned of their plot. So they were watching the gates day and night intending to kill him, but his disciples took him by night and lowered him in a large basket through an opening in the wall.
-
-
 
 **Where do you see God in the text? What does the text say about God?**
 

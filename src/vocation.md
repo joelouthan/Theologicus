@@ -225,6 +225,9 @@ Agile, Atlassian, Scaled, Agile, Trello, Salesforce, Jira, Excel, Sheets, VS Cod
 ## Education
 
 Associate of Arts in Philosophy
+
 Dallas County Community College
+
 June 2011
+
 GPA 4.0

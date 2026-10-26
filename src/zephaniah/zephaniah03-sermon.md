@@ -186,19 +186,33 @@ God is vomiting out the poison in his land on his earth because he is the most H
 > **Rom. 3:10-18** as it is written:
 
 There is no one righteous, not even one.
+
 There is no one who understands;
+
 there is no one who seeks God.
+
 All have turned away;
+
 all alike have become worthless.
+
 There is no one who does what is good,
+
 not even one.
+
 Their throat is an open grave;
+
 they deceive with their tongues.
+
 Vipers' venom is under their lips.
+
 Their mouth is full of cursing and bitterness.
+
 Their feet are swift to shed blood;
+
 ruin and wretchedness are in their paths,
+
 and the path of peace they have not known.
+
 There is no fear of God before their eyes.
 
 > **Rom. 3:23** For all have sinned and fall short of the glory of God;
@@ -242,6 +256,7 @@ along with the priests;
 > **Zeph. 3:9** For I will then restore pure speech to the peoples so that all of them may call on the name of the Lord and serve him with a single purpose.
 
 Vengeance is mine, says the Lord
+
 Don't you know, that God will do whatever it takes, in order to conquer the our enemies of our sin, Satan, demons, hell and death -- in order to save us from our sins?
 
 Contrast v9 with Rom. 3:13
@@ -264,13 +279,21 @@ If the Lord our God has to separate you & cleanse you from your sin -- guarantee
 > **Is. 35:4-6** Say to the cowardly:
 
 "Be strong; do not fear!
+
 Here is your God; vengeance is coming.
+
 God's retribution is coming; he will save you."
+
 Then the eyes of the blind will be opened,
+
 and the ears of the deaf unstopped.
+
 Then the lame will leap like a deer,
+
 and the tongue of the mute will sing for joy,
+
 for water will gush in the wilderness,
+
 and streams in the desert;
 
 *Look at what God has done so that ...*

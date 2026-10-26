@@ -10,6 +10,7 @@
 # Praying Through: Psalm 86 Protector
 
 ## The Psalm
+
 >Psalm 86    
 > A prayer of David. 
 >
@@ -54,6 +55,7 @@ Protector
 </div>
 
 You have been my God
+
 * since my birth
 * you have protected me
 * from the attacks of the world
@@ -61,6 +63,7 @@ You have been my God
 * from the attacks of the enemy
 
 Moreso
+
 * you have been my shelter
 * when I had no roof
 * you have been my tower
@@ -73,6 +76,7 @@ Moreso
 * when my idols have destroyed me.
 
 In my life and love and heart and strength,
+
 * I will glorify you for all of my days
 * You are my sweetest King
 * and one day, I will rest in your throne room

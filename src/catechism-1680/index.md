@@ -12,6 +12,7 @@ Typesetting and cover design.
 
 Printed in the United States of America.  
 Reformed Baptist Faith & Family Ministry
+
 7346 S. Grant City Rd.  
 Knightstown, Indiana 46148  
 +1-317-542-3159  
@@ -28,6 +29,7 @@ I wish to express my gratitude toward a dear Christian brother and friend; pasto
 This catechism, much like the 1689 Baptist Confession and the 1693 Baptist Catechism demonstrates the congeniality that these Baptist Puritans shared with their reformed, protestant contemporaries in the Christian faith. By utilizing the Heidelberg Catechism, Collins remains within the stream of the reformed tradition while expressing his own conviction of believer’s baptism.
 
 It is our desire that this catechism along with the 1689 Baptist Confession of faith and the 1693 Baptist Catechism authored by Williams Collins (no relation to Hercules Collins) would once again be utilized in the evangelizing, teaching and training of the children in our churches and homes. That they would, as in the past, aid our churches in preserving those precious truths that are
+
 “most surely believed amongst us”.
 
 Parents and grandparents, gather the children in your life around, and together explore through the questions and answers offered in the Catechism. Read the proof texts and then add your own as the Spirit leads your time together. Allow me to offer a small bit of advice, be certain to record the date you read and discuss a question, also jot down any additional thoughts or scriptures each child may contribute. This will allow you to observe through the years how they have grown in their understanding of the material. When done daily, a solid and biblical foundation will begin to be established in the hearts and minds of your children. In time and according to God’s plans, they will be equipped to earnestly contend for the faith which was once delivered unto the saints.
@@ -45,9 +47,11 @@ Dearly Beloved,
 Forasmuch as there is but a small time allotted unto any of us in this World, and not knowing but my staff standeth next the door ready to depart, I am desirous in this respect so to bestow my precious and present time in my Lord's business, as I may not return to him with my talent wrapped up in a napkin, but may leave behind me some poor token and testimony of my love and duty towards Him, and his blessed spouse the Church.
 
 And forasmuch as the day we live in is very gloomy and dark, full of Error and Heresy, which spreads more and more
+
 (through the indefatigable endeavors of the maintainers of it) like an overflowing leprosy, and eateth as doth a canker.
 
 Also considering it is a day of great declension in love to God and one to another also, from those gospel truths, the least of which is more worth then our lives: all which may give God just cause to say to England's Professors, as once to Israel,
+
 “What iniquity have your fathers found in Me that they are gone away far from me? As if God should say, “Am I not the same as ever in Power, Goodness, Faithfulness? is not My Word and Ordinances the same, yea my Promises and Heaven the same now as ever?”
 
 Now that you may not be shaken, shattered and carried away with every wind and blast, every puff and breath of Error, and Heresy; also that you may be the better established, strengthened, and settled on that sure Rock and Foundation of Salvation, Christ's Merits, in opposition to the poor imperfect works of an impotent creature; also settled on the foundation of church-constitution, on which you are already built, through the grace of God which stirred you up to search the divine oracle, and Rule of Divine service, as Ezra and Nehemiah searched into the particular parts of God's worship, by which means they came to the practice of that almost lost ordinance of God, the Feast of Tabernacles, which for many years was not practiced after the due order, though a general notion was retained about it; I say, under these considerations, I have in charitable regard to your souls, presented you with this small (but I am bold to say) sound piece of divinity, which may not unsuitably be styled an abridgment, or epitome[^2] of law and gospel, suited to every ones capacity in God's house. Here is milk for babes, and meat for strong men. It may not unsuitably be compared to the waters of the sanctuary, where some may go up to the ankles, others to the
@@ -65,14 +69,17 @@ But I hope my zeal in this will not be misinterpreted by any that truly fear God
 Now albeit there are some differences between many godly divines and us in church constitution, yet inasmuch as those things are not the essence of Christianity, but that we do agree in the fundamental doctrine thereof, there is sufficient ground to lay aside all bitterness and prejudice, and labor to maintain a spirit of love each to other, knowing we shall never see all alike here. We find in the primitive times that the baptism of Christ was not universally know. Witness the ignorance of Apollos that eminent disciple and minister, which know only the baptism of John. And if God shall enlighten any into any truth, which they shall stifle for base and unwarrantable ends, know that it is God must judge, and not man. And wherein we cannot concur, let us leave that to the coming of Christ Jesus, as they did their difficult cases in the Church of old until there did arise a priest with Urim and Thummin, that might certainly inform them of the mind of God thereabout.
 
 I have proposed three creeds to your consideration,
+
 which ought thoroughly to be believed and embraced by all those that would be accounted Christians, viz. the Nicene Creed, Athanasian Creed, and the Creed commonly called the Apostles.
 
 The last of which contains the sum of the Gospel, which is industriously opened and explained. And I beseech you do not slight it because of its form, nor antiquity, nor because supposed to be composed by men; neither because some that hold it maintain some errors, or whose conversation may not be correspondent to such fundamental principles of salvation; but take this for a perpetual rule, that whatever is good in any, owned by any, whatever error or vice it may be mixed withal, the good must not be rejected for the error or vice sake, but owned,
+
 commended, and accepted. Here is also in the close of the Book a brief, but full exposition of that prayer Christ taught His disciples. Also, the Decalogue, or Ten Commandments unfolded.
 
 Now forasmuch as I have taken a great deal of pains in gathering these broken fragments together for your utility and profit, I hope you will take a little pains to read it, and more to live it; and I pray do it seriously and observingly. Reade it humbly and frequently, read it with prayer and meditation, then am I sure thou who art a true Christian wilt love it more & more.
 
 And as you love your own souls, love your children’s, and declare it in praying for them, as Job did for his, and instructing them as Abraham did his, also winning them to good by a good example. And that this book may be of advantage to youth as well as others, it is catechistically handled for their easier learning the principles of Christian religion, that so they being seasoned with the true articles of Christian Faith, may not so easily be tainted with the sentiments of men of corrupt minds in time of temptation. And it is heartily desired that parents,
+
 especially professing ones, were more concerned for the everlasting welfare of their children, as David was for Solomon, when he charged him near his death to keep the commandments and judgments of God above all. And if Parents would but conscientiously read those Divine oracles which hold forth their duty to their children, it would doubtless be to them of great advantage.
 
 As for this that I have presented to public view, I beg the reader’s kind indulgence as to the faults escaped therein. And for those whom the Lord hath committed to my charge, that the eternal God may be your refuge, and underneath you everlasting arms; that Grace may be opened to your hearts, and your hearts to grace; that the blessing of the God of Abraham, Isaac and Jacob may be upon you, and the eternal Spirit may be with you, shall be the prayer of your unworthy brother, but more unworthy pastor,
@@ -88,14 +95,23 @@ H.C.
 That I am not my own, [^1] but belong–body and soul, in life and in death [^2] to my faithful Savior Jesus Christ. [^3] He has fully paid for all my sins with his precious blood,[^4] and has set me free from the tyranny of the devil.[^5] He also watches over me in such a way [^6] that not a hair can fall from my head without the will of my Father in heaven[^7] in fact, all things must work together for my salvation.[^8] Because I belong to him, Christ, by his Holy Spirit, assures me of eternal life[^9] and makes me wholeheartedly willing and ready from now on to live for him.[^10]
 
 [^1] 1 Corinthians 6:19-20
+
 [^2] Romans 14:7-9
+
 [^3] 1 Corinthians 3:23 Titus 2:
+
 [^4] 1 Peter 1:18-19 1 John 1:7-9 1 John 2:
+
 [^5] John 8:34-36 Hebrews 2:14-15 1 John 3:1-11
+
 [^6] John 6:39-40 John 10:27-30 2 Thessalonians 3:3, 1 Peter 1:
+
 [^7] Matthew 10:29 Luke 21:16-18
+
 [^8] Romans 8:
+
 [^9] Romans 8:15-16 2 Corinthians 1:21-22 2 Corinthians 5:5 Ephesians 1:13-14
+
 [^10] Romans 8:1-17
 
 #### Question 2 What must you know to live and die in the joy of this comfort?
@@ -105,7 +121,9 @@ That I am not my own, [^1] but belong–body and soul, in life and in death [^2]
 Three things: first, how great my sin and misery are;[^1] second, how I am set free from all my sins and misery;[^2] third, how I am to thank God for such deliverance.[^3]
 
 [^1] Romans 3:9-10 1 John 1:
+
 [^2] John 17:3 Acts 4:
+
 [^3] Matthew 5:16 Romans 6:13 Ephesians 5:8-10; 2 Timothy 2:15 1 Peter 2:9-10
 
 ## Human Misery (Lessons 2 – 4)
@@ -127,6 +145,7 @@ The law of God tells me. [^1]
 Christ teaches us this in summary in Matthew 22:37-40 Love the Lord your God with all your heart and with all your soul and with all your mind and with all your strength.[^1] This is the first and greatest commandment. And the second is like it: Love your neighbor as yourself. [^2] All the Law and the Prophets hang on these two commandments.
 
 [^1] Deuteronomy 6:
+
 [^2] Leviticus 19:
 
 #### Question 5 Can you live up to all this perfectly?
@@ -136,6 +155,7 @@ Christ teaches us this in summary in Matthew 22:37-40 Love the Lord your God wit
 No. I have a natural tendency to hate God [^1] and my neighbor.[^2]
 
 [^1] Romans 3:9-20, 23 1 John 1:8, 10
+
 [^2] Genesis 6:5 Jeremiah 17:9 Romans 7:23-24 Romans 8:7 Ephesians 2:1-3 Titus 3:
 
 ### Lesson 3 (Q.6-8)
@@ -147,9 +167,13 @@ No. I have a natural tendency to hate God [^1] and my neighbor.[^2]
 No. God created them good [^1] and in his own image, [^2] that is, in true righteousness and holiness, [^3] so that they might truly know God their creator, [^4] love him with all their heart, and live with him in eternal happiness for his praise and glory. [^5]
 
 [^1] Genesis 1:
+
 [^2] Genesis 1:26-27
+
 [^3] Ephesians 4:
+
 [^4] Colossians 3:
+
 [^5] Psalm 8:1-9
 
 #### Question 7 Then where does this corrupt human nature come from?
@@ -159,7 +183,9 @@ No. God created them good [^1] and in his own image, [^2] that is, in true right
 From the fall and disobedience of our first parents, Adam and Eve, in Paradise.[^1] This fall has so poisoned our nature [^2] that we are born sinners–corrupt from conception on. [^3]
 
 [^1] Genesis 3:1-24
+
 [^2] Romans 5:12 Romans 5:18-19
+
 [^3] Psalm 51:
 
 #### Question 8 But are we so corrupt that we are totally unable to do any good and inclined toward all evil?
@@ -169,6 +195,7 @@ From the fall and disobedience of our first parents, Adam and Eve, in Paradise.[
 Yes,[^1] unless we are born again, by the Spirit of God. [^2]
 
 [^1] Genesis 6:5 Genesis 8:21 Job 14:4 Isaiah 53:
+
 [^2] John 3:3-5
 
 ### Lesson 4 (Q.9-11 )
@@ -178,11 +205,15 @@ Yes,[^1] unless we are born again, by the Spirit of God. [^2]
 **Answer:**
 
 No, God created humans with the ability to keep the law.[^1]
+
 They, however, tempted by the devil,[^2] in reckless disobedience,[^3] robbed themselves and all their descendants of these gifts.[^4]
 
 [^1] Gen. 1:31; Eph. 4:
+
 [^2] Gen. 3:13; John 8:
+
 [^3] Gen. 3:
+
 [^4] Rom. 5:12, 18, 19
 
 #### Question 10 Will God permit such disobedience and rebellion to go unpunished?
@@ -192,6 +223,7 @@ They, however, tempted by the devil,[^2] in reckless disobedience,[^3] robbed th
 Certainly not. He is terribly angry about the sin we are born with as well as the sins we personally commit. As a just judge he punishes them now and in eternity.[^1] He has declared: "Cursed is everyone who does not continue to do everything written in the Book of the Law.[^2]
 
 [^1] Ex. 34:7; Ps. 5:4-6; Nah. 1:2; Rom. 1:18; Eph. 5:6; Heb. 9:
+
 [^2] Gal. 3:10; Deut. 27:
 
 #### Question 11 But isn't God also merciful?
@@ -201,7 +233,9 @@ Certainly not. He is terribly angry about the sin we are born with as well as th
 God is certainly merciful, [^1] but he is also just.[^2] His justice demands that sin, committed against his supreme majesty, be punished with the supreme penalty--eternal punishment of body and soul.[^3]
 
 [^1] Ex. 34:6-7; Ps. 103:8-9
+
 [^2] Ex. 34:7; Deut. 7:9-11; Ps. 5:4-6; Heb. 10:30-31
+
 [^3] Matt. 25:35-46
 
 ## Deliverance (Lessons 5-8)
@@ -215,6 +249,7 @@ God is certainly merciful, [^1] but he is also just.[^2] His justice demands tha
 God requires that his justice be satisfied.[^1] Therefore the claims of his justice must be paid in full, either by ourselves or another. [^2]
 
 [^1] Ex. 23:7; Rom. 2:1-11
+
 [^2] Isa. 53:11; Rom. 8:3-4
 
 #### Question 13 Can we pay this debt ourselves?
@@ -232,6 +267,7 @@ Certainly not. Actually, we increase our guilt every day.[^1]
 No. To begin with, God will not punish another creature for what a human is guilty of.[^1] Besides, no mere creature can bear the weight of God's eternal anger against sin and release others from it.[^2]
 
 [^1] Ezek. 18:4, 20; Heb. 2:14-18
+
 [^2] Ps. 49:7-9; 130:3
 
 #### Question 15 What kind of mediator and deliverer should we look for then?
@@ -241,7 +277,9 @@ No. To begin with, God will not punish another creature for what a human is guil
 One who is truly human[^1] and truly righteous,[^2] yet more powerful than all creatures, that is, one who is also true God.[^3]
 
 [^1] Rom. 1:3; 1 Cor. 15:21; Heb. 2:17
+
 [^2] Isa. 53:9; 2 Cor. 5:21; Heb. 7:26
+
 [^3] Isa. 7:14; 9:6; Jer. 23:6; John 1:1
 
 ### Lesson 6 (Q. 16 -19)
@@ -253,6 +291,7 @@ One who is truly human[^1] and truly righteous,[^2] yet more powerful than all c
 God's justice demands that human nature, which has sinned, must pay for its sin;[^1] but a sinner could never pay for others.[^2]
 
 [^1] Rom. 5:12, 15; 1 Cor. 15:21; Heb. 2:14-16
+
 [^2] Heb. 7:26-27; 1 Pet. 3:18
 
 #### Question 17 Why must he also be true God?
@@ -270,6 +309,7 @@ So that, by the power of his divinity, he might bear the weight of God's anger i
 Our Lord Jesus Christ,[^1] who was given us to set us completely free and to make us right with God.[^2]
 
 [^1] Matt. 1:21-23; Luke 2:11; 1 Tim. 2:5
+
 [^2] 1 Cor. 1:30
 
 #### Question 19 How do you come to know this?
@@ -279,9 +319,13 @@ Our Lord Jesus Christ,[^1] who was given us to set us completely free and to mak
 The holy gospel tells me. God himself began to reveal the gospel already in Paradise;[^1] later, he proclaimed it by the holy patriarchs[^2] and prophets,[^3] and portrayed it by the sacrifices and other ceremonies of the law;[^4] finally, he fulfilled it through his own dear Son.[^5]
 
 [^1] Gen. 3:15
+
 [^2] Gen. 22:18; 49:10
+
 [^3] Isa. 53; Jer. 23:5-6; Mic. 7:18-20; Acts 10:43; Heb. 1:1-2
+
 [^4] Lev. 1-7; John 5:46; Heb. 10:1-10
+
 [^5] Rom. 10:4; Gal. 4:4-5; Col. 2:17
 
 ### Lesson 7 (Q. 20 -23)
@@ -299,14 +343,21 @@ No. Only those are saved who by true faith are grafted into Christ and accept al
 **Answer:**
 
 True faith is not only a knowledge and conviction that everything God reveals in his Word is true;[^1] it is also a deep-
+
 rooted assurance,[^2] created in me by the Holy Spirit[^3] through the gospel,[^4] that, out of sheer grace earned for us by Christ, not only others, but I too,[^6] have had my sins forgiven, have been made forever right with God, and have been granted salvation.[^7]
 
 [^1] John 17:3, 17; Heb. 11:1-3; James 2:19
+
 [^2] Rom. 4:18-21; 5:1; 10:10; Heb. 4:14-16
+
 [^3] Matt. 16:15-17; John 3:5; Acts 16:14
+
 [^4] Rom. 1:16; 10:17; 1 Cor. 1:21
+
 [^5] Rom. 3:21-26; Gal. 2:16; Eph. 2:8-10
+
 [^6] Gal. 2:20
+
 [^7] Rom. 1:17; Heb. 10:10
 
 #### Question 22 What then must a Christian believe?
@@ -338,6 +389,7 @@ Into three parts: God the Father and our creation; God the Son and our deliveran
 Because that is how God has revealed himself in his Word: these three distinct persons are one, true, eternal God.[^2]
 
 [^1] Deut. 6:4; 1 Cor. 8:4, 6
+
 [^2] Matt. 3:16-17; 28:18-19; Luke 4:18 (Isa. 61:1); John 14:26; 15:26; 2 Cor. 13:14; Gal. 4:6; Tit. 3:5-6
 
 ## God the Father (Lessons 9-10)
@@ -351,11 +403,17 @@ Because that is how God has revealed himself in his Word: these three distinct p
 That the eternal Father of our Lord Jesus Christ, who out of nothing created heaven and earth and everything in them,[^1] who still upholds and rules them by his eternal counsel and providence,[^2] is my God and Father because of Christ his Son.[^3] I trust him so much that I do not doubt he will provide whatever I need for body and soul,[^4] and he will turn to my good whatever adversity he sends me in this sad world.[^5] He is able to do this because he is almighty God;[^6] he desires to do this because he is a faithful Father.[^7]
 
 [^1] Gen. 1 & 2; Ex. 20:11; Ps. 33:6; Isa. 44:24; Acts 4:24; 14:15
+
 [^2] Ps. 104; Matt. 6:30; 10:29; Eph. 1:11
+
 [^3] John 1:12-13; Rom. 8:15-16; Gal. 4:4-7; Eph. 1:5
+
 [^4] Ps. 55:22; Matt. 6:25-26; Luke 12: 22 -31
+
 [^5] Rom. 8:28
+
 [^6] Gen. 18:14; Rom. 8:31-39
+
 [^7] Matt. 7:9-11
 
 ### Lesson 10 (Q. 27 -28)
@@ -367,9 +425,13 @@ That the eternal Father of our Lord Jesus Christ, who out of nothing created hea
 Providence is the almighty and ever present power of God [^1] by which he upholds, as with his hand, heaven and earth and all creatures,[^2] and so rules them that leaf and blade, rain and drought, fruitful and lean years, food and drink, health and sickness, prosperity and poverty—[^3] all things, in fact, come to us not by chance[^4] but from his fatherly hand.[^5]
 
 [^1] Jer. 23:23-24; Acts 17:24-28
+
 [^2] Heb. 1:3
+
 [^3] Jer. 5:24; Acts 14:15-17; John 9:3; Prov. 22:2
+
 [^4] Prov. 16:33
+
 [^5] Matt. 10:29
 
 #### Question 28 How does the knowledge of God's creation and providence help us?
@@ -379,8 +441,11 @@ Providence is the almighty and ever present power of God [^1] by which he uphold
 We can be patient when things go against us,[^1] thankful when things go well,[^2] and for the future we can have good confidence in our faithful God and Father that nothing will separate us from his love.[^3] All creatures are so completely in his hand that without his will they can neither move nor be moved.[^4]
 
 [^1] Job 1:21-22; James 1:3
+
 [^2] Deut. 8:10; 1 Thess. 5:18
+
 [^3] Ps. 55:22; Rom. 5:3-5; 8:38-39
+
 [^4] Job 1:12; 2:6; Prov. 21:1; Acts 17:24-28
 
 ## God the Son (Lessons 11 -19 )
@@ -394,6 +459,7 @@ We can be patient when things go against us,[^1] thankful when things go well,[^
 Because he saves us from our sins.[^1] Salvation cannot be found in anyone else; it is futile to look for any salvation elsewhere.[^2]
 
 [^1] Matt. 1:21; Heb. 7:25
+
 [^2] Isa. 43:11; John 15:5; Acts 4:11-12; 1 Tim. 2:5
 
 #### Question 30 Do those who look for their salvation and security in saints, in themselves, or elsewhere really believe in the only savior Jesus?
@@ -403,6 +469,7 @@ Because he saves us from our sins.[^1] Salvation cannot be found in anyone else;
 No. Although they boast of being his, by their deeds they deny the only savior and deliverer, Jesus.[^1] Either Jesus is not a perfect savior, or those who in true faith accept this savior have in him all they need for their salvation.[^2]
 
 [^1] 1 Cor. 1:12-13; Gal. 5:4
+
 [^2] Col. 1:19-20; 2:10; 1 John 1:7
 
 ### Lesson 12 (Q. 31 -32)
@@ -414,12 +481,19 @@ No. Although they boast of being his, by their deeds they deny the only savior a
 Because he has been ordained by God the Father and has been anointed with the Holy Spirit [^1] to be our chief prophet and teacher[^2] who perfectly reveals to us the secret counsel and will of God for our deliverance;[^3] our only high priest[^4] who has set us free by the one sacrifice of his body,[^5] and who continually pleads our cause with the Father;[^6] and our eternal king[^7] who governs us by his Word and Spirit, and who guards us and keeps us in the freedom he has won for us.[^8]
 
 [^1] Luke 3:21-22; 4:14-19; Isa. 61:1; Heb. 1:9; Ps. 45:7
+
 [^2] Acts 3:22; Deut. 18:15
+
 [^3] John 1:18; 15:15
+
 [^4] Heb. 7:17; Ps. 110:4
+
 [^5] Heb. 9:12; 10:11-14
+
 [^6] Rom. 8:34; Heb. 9:24
+
 [^7] Matt. 21:5; Zech. 9:9
+
 [^8] Matt. 28:18-20; John 10:28; Rev. 12:10-11
 
 #### Question 32 But why are you called a Christian?
@@ -429,10 +503,15 @@ Because he has been ordained by God the Father and has been anointed with the Ho
 Because by faith I am a member of Christ[^1] and so I share in his anointing.[^2] I am anointed to confess his name,[^3] to present myself to him as a living sacrifice of thanks,[^4] to strive with a good conscience against sin and the devil in this life,[^5] and afterward to reign with Christ over all creation for all eternity.[^6]
 
 [^1] 1 Cor. 12:12-27 Acts 3:22 (Deut. 18:15)
+
 [^2] Acts 2:17 (Joel 2:28); 1 John 2:27
+
 [^3] Matt. 10:32; Rom. 10:9-10; Heb. 13:15
+
 [^4] Rom. 12:1; 1 Pet. 2:5, 9
+
 [^5] Gal. 5:16-17; Eph. 6:11; 1 Tim. 1:18-19
+
 [^6] Matt. 25:34; 2 Tim. 2:12
 
 ### Lesson 13 (Q. 33 -34)
@@ -444,6 +523,7 @@ Because by faith I am a member of Christ[^1] and so I share in his anointing.[^2
 Because Christ alone is the eternal, natural Son of God.[^1] We, however, are adopted children of God--adopted by grace through Christ.[^2]
 
 [^1] John 1:1-3, 14, 18; Heb. 1
+
 [^2] John 1:12; Rom. 8:14-17; Eph. 1:5-6
 
 #### Question 34 Why do you call him "our Lord"?
@@ -451,10 +531,13 @@ Because Christ alone is the eternal, natural Son of God.[^1] We, however, are ad
 **Answer:**
 
 Because--not with gold or silver, but with his precious blood—
+
 [^1] he has set us free from sin and from the tyranny of the devil,[^2] and has bought us, body and soul, to be his very own.[^3]
 
 [^1] 1 Pet. 1:18-19
+
 [^2] Col. 1:13-14; Heb. 2:14-15
+
 [^3] 1 Cor. 6:20; 1 Tim. 2:5-6
 
 ### Lesson 14 (Q. 35 -36)
@@ -466,12 +549,17 @@ Because--not with gold or silver, but with his precious blood—
 That the eternal Son of God, who is and remains true and eternal God,[^1] took to himself, through the working of the Holy Spirit,[^2] from the flesh and blood of the virgin Mary,[^3] a truly human nature so that he might become David's true descendant,[^4] like his brothers in every way5 except for sin.[^5]
 
 [^1] John 1:1; 10:30-36; Acts 13:33 (Ps. 2:7); Col. 1:15-17; 1
+
 John 5:20
+
 [^2] Luke 1:35
+
 [^3] Matt. 1:18-23; John 1:14; Gal. 4:4; Heb. 2:14
+
 [^4] 2 Sam. 7:12-16; Ps. 132:11; Matt. 1:1; Rom. 1:3
 
 [^5] Phil. 2:7; Heb. 2:17
+
 [^6] Heb. 4:15; 7:26-27
 
 #### Question 36 How does the holy conception and birth of Christ benefit you?
@@ -481,6 +569,7 @@ John 5:20
 He is our mediator,[^1] and with his innocence and perfect holiness he removes from God's sight my sin--mine since I was conceived.[^2]
 
 [^1] 1 Tim. 2:5-6; Heb. 9:13-15
+
 [^2] Rom. 8:3-4; 2 Cor. 5:21; Gal. 4:4-5; 1 Pet. 1:18-19
 
 ### Lesson 15 (Q. 37 -39)
@@ -492,8 +581,11 @@ He is our mediator,[^1] and with his innocence and perfect holiness he removes f
 That during his whole life on earth, but especially at the end, Christ sustained in body and soul the anger of God against the sin of the whole human race.[^1] This he did in order that, by his suffering as the only atoning sacrifice,[^2] he might set us free, body and soul, from eternal condemnation,[^3] and gain for us God's grace, righteousness, and eternal life.[^4]
 
 [^1] Isa. 53; 1 Pet. 2:24; 3:18
+
 [^2] Rom. 3:25; Heb. 10:14; 1 John 2:2; 4:10
+
 [^3] Rom. 8:1-4; Gal. 3:13
+
 [^4] John 3:16; Rom. 3:24-26
 
 #### Question 38 Why did he suffer "under Pontius Pilate" as judge?
@@ -503,6 +595,7 @@ That during his whole life on earth, but especially at the end, Christ sustained
 So that he, though innocent, might be condemned by a civil judge, [^1] and so free us from the severe judgment of God that was to fall on us. [^2]
 
 [^1] Luke 23:13-24; John 19:4, 12-16
+
 [^2] Isa. 53:4-5; 2 Cor. 5:21; Gal. 3:13
 
 #### Question 39 Is it significant that he was "crucified" instead of dying some other way?
@@ -522,6 +615,7 @@ Yes. This death convinces me that he shouldered the curse which lay on me, since
 Because God's justice and truth demand it: [^1] only the death of God's Son could pay for our sin. [^2]
 
 [^1] Gen. 2:17
+
 [^2] Rom. 8:3-4; Phil. 2:8; Heb. 2:9
 
 #### Question 41 Why was he "buried"?
@@ -539,6 +633,7 @@ His burial testifies that he really died. [^1]
 Our death does not pay the debt of our sins.[^1] Rather, it puts an end to our sinning and is our entrance into eternal life. [^2]
 
 [^1] Ps. 49:7
+
 [^2] John 5:24; Phil. 1:21-23; 1 Thess. 5:9-10
 
 #### Question 43 What further advantage do we receive from Christ's sacrifice and death on the cross?
@@ -548,7 +643,9 @@ Our death does not pay the debt of our sins.[^1] Rather, it puts an end to our s
 Through Christ's death our old selves are crucified, put to death, and buried with him,[^1] so that the evil desires of the flesh may no longer rule us,[^2] but that instead we may dedicate ourselves as an offering of gratitude to him.[^3]
 
 [^1] Rom. 6:5-11; Col. 2:11-12
+
 [^2] Rom. 6:12-14
+
 [^3] Rom. 12:1; Eph. 5:1-2
 
 #### Question 44 Why does the creed add, "He descended to hell"?
@@ -566,10 +663,13 @@ To assure me in times of personal crisis and temptation that Christ my Lord, by 
 **Answer:**
 
 First, by his resurrection he has overcome death, so that he might make us share in the righteousness he won for us by his death.
+
 [^1] Second, by his power we too are already now resurrected to a new life.[^2] Third, Christ's resurrection is a guarantee of our glorious resurrection.[^3]
 
 [^1] Rom. 4:25; 1 Cor. 15:16-20; 1 Pet. 1:3-5
+
 [^2] Rom. 6:5-11; Eph. 2:4-6; Col. 3:1-4
+
 [^3] Rom. 8:11; 1 Cor. 15:12-23; Phil. 3:20-21
 
 ### Lesson 18 (Q. 46 -49)
@@ -581,7 +681,9 @@ First, by his resurrection he has overcome death, so that he might make us share
 That Christ, while his disciples watched, was lifted up from the earth to heaven [^1] and will be there for our good[^2] until he comes again to judge the living and the dead.[^3]
 
 [^1] Luke 24:50-51; Acts 1:9-11
+
 [^2] Rom. 8:34; Eph. 4:8-10; Heb. 7:23-25; 9:24
+
 [^3] Acts 1:11
 
 #### Question 47 But isn't Christ with us until the end of the world as he promised us?[^1]
@@ -591,7 +693,9 @@ That Christ, while his disciples watched, was lifted up from the earth to heaven
 Christ is truly human and truly God. In his human nature Christ is not now on earth;[^2] but in his divinity, majesty, grace, and Spirit he is not absent from us for a moment.[^3]
 
 [^1] Matt. 28:20
+
 [^2] Acts 1:9-11; 3:19-21
+
 [^3] Matt. 28:18-20; John 14:16-19
 
 #### Question 48 If his humanity is not present wherever his divinity is, then aren't the two natures of Christ separated from each other?
@@ -601,6 +705,7 @@ Christ is truly human and truly God. In his human nature Christ is not now on ea
 Certainly not. Since divinity is not limited and is present everywhere,[^1] it is evident that Christ's divinity is surely beyond the bounds of the humanity he has taken on, but at the same time his divinity is in and remains personally united to his humanity.[^2]
 
 [^1] Jer. 23:23-24; Acts 7:48-49 (Isa. 66:1)
+
 [^2] John 1:14; 3:13; Col. 2:9
 
 #### Question 49 How does Christ's ascension to heaven benefit us?
@@ -610,8 +715,11 @@ Certainly not. Since divinity is not limited and is present everywhere,[^1] it i
 First, he pleads our cause in heaven in the presence of his Father.[^1] Second, we have our own flesh in heaven--a guarantee that Christ our head will take us, his members, to himself in heaven.[^2] Third, he sends his Spirit to us on earth as a further guarantee.[^3] By the Spirit's power we make the goal of our lives, not earthly things, but the things above where Christ is, sitting at God's right hand.[^4]
 
 [^1] Jer. 23:23-24; Acts 7:48-49; Isa. 66:1
+
 [^2] John 14:2; 17:24; Eph. 2:4-6
+
 [^3] John 14:16; 2 Cor. 1:21-22; 5:5
+
 [^4] Col. 3:1-4
 
 ### Lesson 19 (Q. 50 -52)
@@ -623,6 +731,7 @@ First, he pleads our cause in heaven in the presence of his Father.[^1] Second, 
 Christ ascended to heaven, there to show that he is head of his church,[^1] and that the Father rules all things through him.[^2]
 
 [^1] Eph. 1:20-23; Col. 1:18
+
 [^2] Matt. 28:18; John 5:22-23
 
 #### Question 51 How does this glory of Christ our head benefit us?
@@ -632,6 +741,7 @@ Christ ascended to heaven, there to show that he is head of his church,[^1] and 
 First, through his Holy Spirit he pours out his gifts from heaven upon us his members. [^1] Second, by his power he defends us and keeps us safe from all enemies. [^2]
 
 [^1] Acts 2:33; Eph. 4:7-12
+
 [^2] Ps. 110:1-2; John 10:27-30; Rev. 19:11-16
 
 #### Question 52 How does Christ's return "to judge the living and the dead"
@@ -643,6 +753,7 @@ comfort you?
 In all my distress and persecution I turn my eyes to the heavens and confidently await as judge the very One who has already stood trial in my place before God and so has removed the whole curse from me. [^1] All his enemies and mine he will condemn to everlasting punishment: but me and all his chosen ones he will take along with him into the joy and the glory of heaven. [^2]
 
 [^1] Luke 21:28; Rom. 8:22-25; Phil. 3:20-21; Tit. 2:13-14
+
 [^2] Matt. 25:31-46; 2 Thess. 1:6-10
 
 ### Lesson 19 (Q. 50 -52)
@@ -654,6 +765,7 @@ In all my distress and persecution I turn my eyes to the heavens and confidently
 Christ ascended to heaven, there to show that he is head of his church,[^1] and that the Father rules all things through him.[^2]
 
 [^1] Eph. 1:20-23; Col. 1:18
+
 [^2] Matt. 28:18; John 5:22-23
 
 ## God the Holy Spirit (Lessons 20 -24 )
@@ -665,13 +777,19 @@ Christ ascended to heaven, there to show that he is head of his church,[^1] and 
 **Answer:**
 
 First, he, as well as the Father and the Son, is eternal God.[^1]
+
 Second, he has been given to me personally,[^2] so that, by true faith, he makes me share in Christ and all his blessings,[^3]
+
 comforts me,[^4] and remains with me forever.[^5]
 
 [^1] Gen. 1:1-2; Matt. 28:19; Acts 5:3-4
+
 [^2] 1 Cor. 6:19; 2 Cor. 1:21-22; Gal. 4:6
+
 [^3] Gal. 3:14
+
 [^4] John 15:26; Acts 9:31
+
 [^5] John 14:16-17; 1 Pet. 4:14
 
 ### Lesson 21 (Q. 54 -56)
@@ -683,13 +801,21 @@ comforts me,[^4] and remains with me forever.[^5]
 I believe that the Son of God through his Spirit and Word,[^1] out of the entire human race,[^2] from the beginning of the world to its end,[^3] gathers, protects, and preserves for himself a
 
 community chosen for eternal life[^4] and united in true faith.[^5]
+
 And of this community I am[^6] and always will be[^7] a living member.
+
 [^1] John 10:14-16; Acts 20:28; Rom. 10:14-17; Col. 1:18
+
 [^2] Gen. 26:3b-4; Rev. 5:9
+
 [^3] Isa. 59:21; 1 Cor. 11:26
+
 [^4] Matt. 16:18; John 10:28-30; Rom. 8:28-30; Eph. 1:3-14
+
 [^5] Acts 2:42-47; Eph. 4:1-6
+
 [^6] 1 John 3:14, 19-21
+
 [^7] John 10:27-28; 1 Cor. 1:4-9; 1 Pet. 1:3-5
 
 #### Question 55 What do you understand by "the communion of saints"?
@@ -699,6 +825,7 @@ And of this community I am[^6] and always will be[^7] a living member.
 First, that believers one and all, as members of this community, share in Christ and in all his treasures and gifts.[^1] Second, that each member should consider it a duty to use these gifts readily and cheerfully for the service and enrichment of the other members.[^2]
 
 [^1] Rom. 8:32; 1 Cor. 6:17; 12:4-7, 12-13; 1 John 1:3
+
 [^2] Rom. 12:4-8; 1 Cor. 12:20-27; 13:1-7; Phil. 2:4-8
 
 #### Question 56 What do you believe concerning "the forgiveness of sins"?
@@ -708,7 +835,9 @@ First, that believers one and all, as members of this community, share in Christ
 I believe that God, because of Christ's atonement, will never hold against me any of my sins[^1] nor my sinful nature which I need to struggle against all my life.[^2] Rather, in his grace God grants me the righteousness of Christ to free me forever from judgment.[^3]
 
 [^1] Ps. 103:3-4, 10, 12; Mic. 7:18-19; 2 Cor. 5:18-21; 1 John 1:7; 2:2
+
 [^2] Rom. 7:21-25
+
 [^3] John 3:17-18; Rom. 8:1-2
 
 ### Lesson 22 (Q. 57 -58)
@@ -720,6 +849,7 @@ I believe that God, because of Christ's atonement, will never hold against me an
 Not only my soul will be taken immediately after this life to Christ its head,[^1] but even my very flesh, raised by the power of Christ, will be reunited with my soul and made like Christ's glorious body.[^2]
 
 [^1] Luke 23:43; Phil. 1:21-23; John 10:14-16; Acts 20:28; Rom 10:14-17; Col. 1:18
+
 [^2] 1 Cor. 15:20, 42-46, 54; Phil. 3:21; 1 John 3:2
 
 #### Question 58 How does the article concerning "life everlasting" comfort you?
@@ -729,6 +859,7 @@ Not only my soul will be taken immediately after this life to Christ its head,[^
 Even as I already now experience in my heart the beginning of eternal joy, [^1] so after this life I will have perfect blessedness such as no eye has seen, no ear has heard, no human heart has ever imagined: a blessedness in which to praise God eternally.[^2]
 
 [^1] Rom. 14:17
+
 [^2] John 17:3; 1 Cor. 2:9
 
 **Answer:**
@@ -752,16 +883,25 @@ In Christ I am right with God and heir to life everlasting. [^1]
 **Answer:**
 
 Only by true faith in Jesus Christ.[^1] Even though my conscience accuses me of having grievously sinned against all God's commandments and of never having kept any of them,[^2]
+
 and even though I am still inclined toward all evil,[^3]
+
 nevertheless, without my deserving it at all,[^4] out of sheer grace,[^5] God grants and credits to me the perfect satisfaction, righteousness, and holiness of Christ,[^6] as if I had never sinned nor been a sinner, as if I had been as perfectly obedient as Christ was obedient for me.[^7] All I need to do is to accept this gift of God with a believing heart.[^8]
 
 [^1] Rom. 3:21-28; Gal. 2:16; Eph. 2:8-9; Phil 3:8-11
+
 [^2] Rom. 3:9-10
+
 [^3] Rom. 7:23
+
 [^4] Tit. 3:4-5
+
 [^5] Rom. 3:24; Eph. 2:8
+
 [^6] Rom. 4:3-5 (Gen. 15:6); 2 Cor. 5:17-19; 1 John 2:1-2
+
 [^7] Rom. 4:24-25; 2 Cor. 5:21
+
 [^8] John 3:18; Acts 16:30-31
 
 #### Question 61 Why do you say that by faith alone you are right with God?
@@ -773,6 +913,7 @@ It is not because of any value my faith has that God is pleased with me. Only Ch
 make me right with God.[^1] And I can receive this righteousness and make it mine in no other way than by faith alone.[^2]
 
 [^1] 1 Cor. 1:30-31
+
 [^2] Rom. 10:10; 1 John 5:10-12
 
 ### Lesson 24 (Q. 62 -64)
@@ -784,6 +925,7 @@ make me right with God.[^1] And I can receive this righteousness and make it min
 Because the righteousness which can pass God's scrutiny must be entirely perfect and must in every way measure up to the divine law. [^1] Even the very best we do in this life is imperfect and stained with sin. [^2]
 
 [^1] Rom. 3:20; Gal. 3:10; Deut. 27:26
+
 [^2] Isa. 64: 6
 
 #### Question 63 How can you say that the good we do doesn't earn anything when God promises to reward it in this life and the next? [^1]
@@ -793,6 +935,7 @@ Because the righteousness which can pass God's scrutiny must be entirely perfect
 This reward is not earned; it is a gift of grace. [^2]
 
 [^1] Matt. 5:12; Heb. 11:6
+
 [^2] Luke 17:10; 2 Tim. 4:7-8
 
 #### Question 64 But doesn't this teaching make people indifferent and wicked?
@@ -814,7 +957,9 @@ The Sacraments Lesson 25
 The Holy Spirit produces it in our hearts [^1] by the preaching of the holy gospel, [^2] and confirms it through our use of the holy sacraments.[^3]
 
 [^1] John 3:5; 1 Cor. 2:10-14; Eph. 2:8
+
 [^2] Rom. 10:17; 1 Pet. 1:23-25
+
 [^3] Matt. 28:19-20; 1 Cor. 10:16
 
 #### Question 66 What are sacraments?
@@ -824,6 +969,7 @@ The Holy Spirit produces it in our hearts [^1] by the preaching of the holy gosp
 Sacraments are holy signs and seals for us to see. They were instituted by God so that by our use of them he might make us understand more clearly the promise of the gospel, and might put his seal on that promise. [^1] And this is God's gospel promise: to forgive our sins and give us eternal life by grace alone because of Christ's one sacrifice finished on the cross. [^2]
 
 [^1] Gen. 17:11; Deut. 30:6; Rom. 4:11
+
 [^2] Matt. 26:27-28; Acts 2:38; Heb. 10:10
 
 #### Question 67 Are both the word and the sacraments then intended to focus our faith on the sacrifice of Jesus Christ on the cross as the only ground of our salvation?
@@ -909,8 +1055,11 @@ First, a spiritual, which consisted in God's promising to be a God to4 Abraham, 
 not descended6 from Abraham, but through Jesus Christ, the Gentiles, the uncircumcised who believed, [^6] should have their faith counted for righteousness, as Abraham's was before he was circumcised. [^7]
 
 [^4] Gen. 17.19, 21. Gen. 21.10. Gal. 4.30
+
 [^5] Acts 2:39. Rom. 9.7-8
+
 [^6] Gal. 3:16, 28-29
+
 [^7] Rom. 4: 9 -14
 
 Second, this promise consisted of temporal good: so God promised Abraham's Seed should enjoy the land of Canaan, and have plenty of outward blessings, [^8] and sealed this promise by circumcision. It was also a distinguishing character of the Jews being God's people from all the Nations of the Gentiles, who were not yet the spiritual descendants of Abraham: but when the Gentiles came to believe, and by faith became the people of God as well as the Jews, [^9] then Circumcision, that distinguishing mark, ceased. The character of being the children of God now is faith in Christ and circumcision of the Heart. Whatever reason may be given for the Infants of Believers to be Baptized first, as their being the children of believers; or secondly, their being in the Covenant; or thirdly, that the infant descendants of Abraham a believer, were circumcised; all this you see avails nothing: for circumcision was limited to the family of Abraham and all others, though believers, were excluded. It was also limited to a particular day, the eighth day, and what ever reason might be given, it was not to be done before or after. It was limited to male and did not include female; if Baptism came in the place of circumcision, and is the seal of the Covenant under the Gospel as circumcision was under the Law, none but the males must be
@@ -918,7 +1067,9 @@ Second, this promise consisted of temporal good: so God promised Abraham's Seed 
 baptized, because none but the Males were Circumcised. But as the Law regulated circumcision, now the Gospel regulates Baptism, and it depends purely upon the will of the Law-giver, at what periods of time, upon what Persons and terms Baptism is to be administered. We will do well, then, to heed what is declared in Scripture. [^10]
 
 [^8] Gen.12;6-7; 13.15-17; 15: 16 ,18; 17:8-11
+
 [^9] John 1:12; Rom. 2:28-29; Phil. 3:3; Gal. 3:26-28
+
 [^10] Acts 3:22
 
 ### Lesson 27 (Q. 75 -77)
@@ -930,6 +1081,7 @@ baptized, because none but the Males were Circumcised. But as the Law regulated 
 In this way: Christ instituted this outward washing [^1] and with it gave the promise that, as surely as water washes away the dirt from the body, so certainly his blood and his Spirit wash away my soul's impurity, in other words, all my sins. [^2]
 
 [^1] Acts 2:38
+
 [^2] Matt. 3:11; Rom. 6:3-10; 1 Pet. 3:21
 
 #### Question 76 What does it mean to be washed with Christ's blood and Spirit?
@@ -939,6 +1091,7 @@ In this way: Christ instituted this outward washing [^1] and with it gave the pr
 To be washed with Christ's blood means that God, by grace, has forgiven my sins because of Christ's blood poured out for me in his sacrifice on the cross.[^1] To be washed with Christ's Spirit means that the Holy Spirit has renewed me and set me apart to be a member of Christ so that more and more I become dead to sin and increasingly live a holy and blameless life. [^2]
 
 [^1] Zech. 13:1; Eph. 1:7-8; Heb. 12:24; 1 Pet. 1:2; Rev. 1:5
+
 [^2] Ezek. 36:25-27; John 3:5-8; Rom. 6:4; 1 Cor. 6:11; Col 2:11-12
 
 #### Question 77 Where does Christ promise that we are washed with his blood and Spirit as surely as we are washed with the water of baptism?
@@ -950,7 +1103,9 @@ In the institution of baptism where he says: "Therefore go and make disciples of
 [^1] Matt. 28:19
 
 [^2] Mark 16:16
+
 [^3] Titus 3:5
+
 [^4] Acts 22:16
 
 ### Lesson 28 (Q. 78 -79)
@@ -970,6 +1125,7 @@ No, only Jesus Christ's blood and the Holy Spirit cleanse us from all sins. [^1]
 God has good reason for these words. He wants to teach us that the blood and Spirit of Christ wash away our sins just as water washes away dirt from our bodies. [^1] But more important, he wants to assure us, by this divine pledge and sign, that the washing away of our sins spiritually is as real as physical washing with water. [^2]
 
 [^1] Matt. 3:11; 1 Pet. 3:21; 1 John 1:7
+
 [^2] Acts 2:38; Rom. 6:3-4; Gal. 3:27
 
 ## Of the Lord’s Supper (Lessons 29 -32)
@@ -989,12 +1145,17 @@ In this way: Christ has commanded me and all believers to eat this broken bread 
 **Answer:**
 
 It means to accept with a believing heart the entire suffering and death of Christ and by believing to receive forgiveness of sins and eternal life. [^1] But it means more. Through the Holy Spirit, who lives both in Christ and in us, we are united more and more to Christ's blessed body. [^2] And so, although he is in heaven [^3]
+
 and we are on earth, we are flesh of his flesh and bone of his bone. [^4] And we forever live on and are governed by one Spirit, as members of our body are by one soul. [^5]
 
 [^1] John 6:35, 40, 50-54
+
 [^2] John 6:55-56; 1 Cor. 12:13
+
 [^3] Acts 1:9-11; 1 Cor. 11:26; Col. 3:1
+
 [^4] 1 Cor. 6:15-17; Eph. 5:29-30; 1 John 4:13
+
 [^5] John 6:56-58; 15:1-6; Eph. 4:15-16; 1 John 3:24
 
 #### Question 82 Where does Christ promise to nourish and refresh believers with his body and blood as surely as they eat this broken bread and drink this cup?
@@ -1004,10 +1165,13 @@ and we are on earth, we are flesh of his flesh and bone of his bone. [^4] And we
 In the institution of the Lord's Supper: "The Lord Jesus, on the night he was betrayed, took bread, and when he had given
 
 thanks, he broke it and said, 'This is my body, which is for you; do this in remembrance of me.' In the same way, after supper he took the cup, saying, 'This cup is the new covenant in my blood; do this, whenever you drink it, in remembrance of me.' For whenever you eat this bread and drink this cup, you proclaim the Lord's death until he comes."[^1]
+
 This promise is repeated by Paul in these words:
+
 "Is not the cup of thanksgiving for which we give thanks a participation in the blood of Christ? And is not the bread that we break a participation in the body of Christ? Because there is one loaf, we, who are many, are one body, for we all partake of the one loaf."[^2]
 
 [^1] 1 Cor. 11:23-26
+
 [^2] 1 Cor. 10:16-17
 
 ### Lesson 30 (Q. 83 -84)
@@ -1021,7 +1185,9 @@ No. Just as the water of baptism is not changed into Christ's blood and does not
 [^1] Eph. 5:26; Tit. 3:5
 
 [^2] Matt. 26:26-29
+
 [^3] 1 Cor. 10:16-17; 11:26-28
+
 [^4] Gen. 17:10-11; Ex. 12:11, 13; 1 Cor. 10:1-4
 
 #### Question 84 Why then does Christ call the bread his body and the cup his blood, or the new covenant in his blood? And Paul uses the words, a participation in Christ's body and blood.
@@ -1031,7 +1197,9 @@ No. Just as the water of baptism is not changed into Christ's blood and does not
 Christ has good reason for these words. He wants to teach us that as bread and wine nourish our temporal life, so too his crucified body and poured-out blood truly nourish our souls for eternal life. [^1] But more important, he wants to assure us, by this visible sign and pledge, that we, through the Holy Spirit's work, share in his true body and blood as surely as our mouths receive these holy signs in his remembrance, [^2] and that all of his suffering and obedience are as definitely ours as if we personally had suffered and paid for our sins. [^3]
 
 [^1] John 6:51, 55
+
 [^2] 1 Cor. 10:16-17; 11:26
+
 [^3] Rom. 6:5-11
 
 ### Lesson 31 (Q. 85 -88)
@@ -1041,9 +1209,13 @@ Christ has good reason for these words. He wants to teach us that as bread and w
 **Answer:**
 
 The Lord's Supper declares to us that our sins have been completely forgiven through the one sacrifice of Jesus Christ which he himself finished on the cross once for all. [^1] It also declares to us that the Holy Spirit grafts us into Christ, [^2] who with his very body is now in heaven at the right hand of the Father [^3] where he wants us to worship him. [^4] But the Mass teaches that the living and the dead do not have their sins forgiven through the suffering of Christ unless Christ is still offered for them daily by the priests. It also teaches that Christ is bodily present in the form of bread and wine where Christ is therefore to be worshiped. Thus the Mass is basically nothing but a denial of the one sacrifice and suffering of Jesus Christ and a condemnable idolatry.
+
 [^1] John 19:30; Heb. 7:27; 9:12, 25-26; 10:10-18
+
 [^2] 1 Cor. 6:17; 10:16-17
+
 [^3] Acts 7:55-56; Heb. 1:3; 8:1
+
 [^4] Matt. 6:20-21; John 4:21-24; Phil. 3:20; Col. 3:1-3
 
 #### Question 86 Who are to come to the Lord's table?
@@ -1099,6 +1271,7 @@ Those who, though called Christians, profess unchristian teachings or live unchr
 kingdom of Christ. [^1] Such persons, when promising and demonstrating genuine reform, are received again as members of Christ and of his church. [^2]
 
 [^1] Matt. 18:15-20; 1 Cor. 5:3-5, 11-13; 2 Thess. 3:14-15
+
 [^2] Luke 15:20-24; 2 Cor. 2:6-11
 
 ## Gratitude (Lessons 33 -45 )
@@ -1112,9 +1285,11 @@ kingdom of Christ. [^1] Such persons, when promising and demonstrating genuine r
 To be sure, Christ has redeemed us by his blood. But we do good because Christ by his Spirit is also renewing us to be like himself, so that in all our living we may show that we are thankful to God for all he has done for us,[^1] and so that he may be praised through us.[^2] And we do good so that we may be assured of our faith by its fruits,[^3] and so that by our godly living our neighbors may be won over to Christ. [^4]
 
 [^1] Rom. 6:13; 12:1-2; 1 Pet. 2:5-10
+
 [^2] Matt. 5:16; 1 Cor. 6:19-20
 
 [^3] Matt. 7:17-18; Gal. 5:22-24; 2 Pet. 1:10-11
+
 [^4] Matt. 5:14-16; Rom. 14:17-19; 1 Pet. 2:12; 3:1-2
 
 #### Question 93 Can those be saved who do not turn to God from their ungrateful and impenitent ways?
@@ -1150,6 +1325,7 @@ It is to be genuinely sorry for sin, to hate it more and more, and to run away f
 It is wholehearted joy in God through Christ[^1] and a delight to do every kind of good as God wants us to. [^2]
 
 [^1] Ps. 51:8, 12; Isa.57:15; Rom. 5:1; 14:17
+
 [^2] Rom. 6:10-11; Gal. 2:20
 
 #### Question 97 What do we do that is good?
@@ -1159,8 +1335,11 @@ It is wholehearted joy in God through Christ[^1] and a delight to do every kind 
 Only that which arises out of true faith, [^1] conforms to God's law,[^2] and is done for his glory;[^3] and not that which is based on what we think is right or on established human tradition.[^4]
 
 [^1] John 15:5; Heb. 11:6
+
 [^2] Lev. 18:4; 1 Sam. 15:22; Eph. 2:10
+
 [^3] 1 Cor. 10:31
+
 [^4] Deut. 12:32; Isa. 29:13; Ezek. 20:18-19; Matt. 15:7-9
 
 ### Lesson 35 (Q. 98 -105)
@@ -1214,16 +1393,27 @@ Thou shalt have no other Gods before me.
 That I, not wanting to endanger my very salvation, avoid and shun all idolatry,[^1] magic, superstitious rites,[^2] and prayer to saints or to other creatures.[^3] That I sincerely acknowledge the only true God,[^4] trust him alone,[^5] look to him for every good thing[^6] humbly[^7] and patiently,[^8] love him,[^9] fear him,[^10] and honor him [^11] with all my heart. In short, that I give up anything rather than go against his will in any way. [^12]
 
 [^1] 1 Cor. 6:9-10; 10:5-14; 1 John 5:21
+
 [^2] Lev. 19:31; Deut. 18:9-12
+
 [^3] Matt. 4:10; Rev. 19:10; 22:8-9
+
 [^4] John 17:3
+
 [^5] Jer. 17:5, 7
+
 [^6] Ps. 104:27-28; James 1:17
+
 [^7] 1 Pet. 5:5-6
+
 [^8] Col. 1:11; Heb. 10:36
+
 [^9] Matt. 22:37 (Deut. 6:5)
+
 [^10] Prov. 9:10; 1 Pet. 1:17
+
 [^11] Matt. 4:10 (Deut. 6:13)
+
 [^12] Matt. 5:29-30; 10:37-39
 
 #### Question 105 What is idolatry?
@@ -1249,6 +1439,7 @@ Thou shalt make to thee no graven Image, nor the likeness of anything which is i
 That we in no way make any image of God [^1] nor worship him in any other way than he has commanded in his Word. [^2]
 
 [^1] Deut. 4:15-19; Isa. 40:18-25; Acts 17:29; Rom. 1:22-23
+
 [^2] Lev. 10:1-7; 1 Sam. 15:22-23; John 4:23-24
 
 #### Question 108 May we then not make any image at all?
@@ -1256,6 +1447,7 @@ That we in no way make any image of God [^1] nor worship him in any other way th
 **Answer:**
 
 God neither ought and may not be visibly portrayed in any way.
+
 Although creatures may be portrayed, yet God forbids making or having such images if one's intention is to worship them or to serve God through them. [^1]
 
 [^1] Ex. 34:13-14, 17; 2 Kings 18:4-5
@@ -1267,6 +1459,7 @@ Although creatures may be portrayed, yet God forbids making or having such image
 No, we shouldn't try to be wiser than God. He wants his people instructed by the living preaching of his Word—[^1] not by idols that cannot even talk.2. [^1]
 
 [^1] Rom. 10:14-15, 17; 2 Tim. 3:16-17; 2 Pet. 1:19 5
+
 [^2] Jer. 10:8; Hab. 2:18-20
 
 ### Lesson 37 (Q. 110 -112)
@@ -1286,12 +1479,19 @@ That we neither blaspheme nor misuse the name of God by cursing, [^1] perjury, [
 and awe, [^5] so that we may properly confess him, [^6] pray to him,[^7] and praise him in everything we do and say. [^8]
 
 [^1] Lev. 24:10-17
+
 [^2] Lev. 19:12
+
 [^3] Matt. 5:37; James 5:12
+
 [^4] Lev. 5:1; Prov. 29:24
+
 [^5] Ps. 99:1-5; Jer. 4:2
+
 [^6] Matt. 10:32-33; Rom. 10:9-10
+
 [^7] Ps. 50:14-15; 1 Tim. 2:8
+
 [^8] Col. 3:17
 
 #### Question 112 Is blasphemy of God's name by swearing and cursing really such serious sin that God is angry also with those who do not do all they can to help prevent it and forbid it?
@@ -1301,6 +1501,7 @@ and awe, [^5] so that we may properly confess him, [^6] pray to him,[^7] and pra
 Yes, indeed. [^1] No sin is greater, no sin makes God more angry than blaspheming his name. That is why he commanded the death penalty for it. [^2]
 
 [^1] Lev. 5:1
+
 [^2] Lev. 24:10-17
 
 ### Lesson 38 (Q. 113 -114)
@@ -1312,6 +1513,7 @@ Yes, indeed. [^1] No sin is greater, no sin makes God more angry than blasphemin
 Yes, when the government demands it, or when necessity requires it, in order to maintain and promote truth and trustworthiness for God's glory and our neighbor's good. Such oaths are approved in God's Word [^1] and were rightly used by Old and New Testament believers. [^2]
 
 [^1] Deut. 6:13; 10:20; Jer. 4:1-2; Heb. 6:16
+
 [^2] Gen. 21:24; Josh. 9:15; 1 Kings 1:29-30; Rom. 1:9; 2 Cor. 1:23
 
 #### Question 114 May we swear by saints or other creatures?
@@ -1321,6 +1523,7 @@ Yes, when the government demands it, or when necessity requires it, in order to 
 No. A legitimate oath means calling upon God as the one who knows my heart to witness to my truthfulness and to punish me if I swear falsely. [^1] No creature is worthy of such honor. [^2]
 
 [^1] Rom. 9:1; 2 Cor. 1:23
+
 [^2] Matt. 5:34-37; 23:16-22; James 5:12
 
 ### Lesson 39 (Q. 115 -116)
@@ -1336,17 +1539,25 @@ Remember that thou keep holy the Sabbath Day: six Days should thou labor, and do
 **Answer:**
 
 First, that the gospel ministry and education for it be maintained,
+
 [^1] and that, especially on the festive day of rest, I regularly attend the assembly of God's people [^2] to learn what God's Word teaches, [^3] to participate in the sacraments,[^4] to pray to God publicly,[^5] and to bring Christian offerings for the poor.[^6]
+
 Second, that every day of my life I rest from my evil ways, let the Lord work in me through his Spirit, and so begin already in this life the eternal Sabbath.[^7]
 
 [^1] Deut. 6:4-9, 20-25; 1 Cor. 9:13-14; 2 Tim. 2:2; 3:13-
+
 17; Tit. 1:5
 
 [^2] Deut. 12:5-12; Ps. 40:9-10; 68:26; Acts 2:42-47; Heb. 10:23-25
+
 [^3] Rom. 10:14-17; 1 Cor. 14: 31 -32; 1 Tim. 4:13
+
 [^4] 1 Cor. 11:23-25
+
 [^5] Col. 3:16; 1 Tim. 2:1
+
 [^6] Ps. 50:14; 1 Cor. 16:2; 2 Cor. 8 & 9
+
 [^7] Isa. 66:23; Heb. 4:9-11
 
 ### Lesson 40 (Q. 117 -118)
@@ -1364,7 +1575,9 @@ Honor thy Father and Mother that thy days may be long in the Land which the Lord
 That I honor, love, and be loyal to my father and mother and all those in authority over me; that I obey and submit to them, as is proper, when they correct and punish me; [^1] and also that I be patient with their failings—[^2] for through them God chooses to rule us. [^3]
 
 [^1] Ex. 21:17; Prov. 1:8; 4:1; Rom. 13:1-2; Eph. 5:21-
+
 22; 6:1-9; Col. 3:18-4:1
+
 [^2] Prov. 20:20; 23:22; 1 Pet. 2:18
 
 [^3] Matt. 22:21; Rom. 13:1-8; Eph. 6:1-9; Col. 3:18-21
@@ -1382,11 +1595,15 @@ Thou shalt do no Murder.
 **Answer:**
 
 I am not to belittle, insult, hate, or kill my neighbor--not by my thoughts, my words, my look or gesture, and certainly not by actual deeds–and I am not to be party to this in others; [^1]
+
 rather, I am to put away all desire for revenge. [^2] I am not to harm or recklessly endanger myself either. [^3] Prevention of murder is also why government is armed with the sword. [^4]
 
 [^1] Gen. 9:6; Lev. 19:17-18; Matt. 5:21-22; 26:52
+
 [^2] Prov. 25:21-22; Matt. 18:35; Rom. 12:19; Eph. 4:26
+
 [^3] Matt. 4:7; 26:52; Rom. 13:11-14
+
 [^4] Gen. 9:6; Ex. 21:14; Rom. 13:4
 
 #### Question 121 Does this commandment refer only to killing?
@@ -1396,6 +1613,7 @@ rather, I am to put away all desire for revenge. [^2] I am not to harm or reckle
 By forbidding murder God teaches us that he hates the root of murder: envy, hatred, anger, vindictiveness. [^1] In God's sight all such are murder. [^2]
 
 [^1] Prov. 14:30; Rom. 1:29; 12:19; Gal. 5:19-21; 1 John 2:9-11
+
 [^2] 1 John 3:15
 
 #### Question 122 Is it enough then that we do not kill our neighbor in any such way?
@@ -1405,8 +1623,11 @@ By forbidding murder God teaches us that he hates the root of murder: envy, hatr
 No. By condemning envy, hatred, and anger God tells us to love our neighbors as ourselves, [^1] to be patient, peace-loving, gentle, merciful, and friendly to them, [^2] to protect them from harm as much as we can, and to do good even to our enemies.[^3]
 
 [^1] Matt. 7:12; 22:39; Rom. 12:10
+
 [^2] Matt. 5:3-12; Luke 6:36; Rom. 12:10, 18; Gal. 6:1-2; Eph. 4:2; Col. 3:12; 1 Pet. 3:8
+
 [^3] Ex. 23:4-5; Matt. 5:44-45; Rom. 12:20-21
+
 (Prov. 25:21-22)
 
 ### Lesson 42 (Q. 123 -125)
@@ -1424,7 +1645,9 @@ Thou shalt not commit Adultery.
 God condemns all unchastity.[^1] We should therefore thoroughly detest it [^2] and, married or single, live decent and chaste lives. [^3]
 
 [^1] Lev. 18:30; Eph. 5:3-5
+
 [^2] Jude 22-23
+
 [^3] 1 Cor. 7:1-9; 1 Thess. 4:3-8; Heb. 13:4
 
 #### Question 125 Does God, in this commandment, forbid only such scandalous sins as adultery?
@@ -1434,6 +1657,7 @@ God condemns all unchastity.[^1] We should therefore thoroughly detest it [^2] a
 We are temples of the Holy Spirit, body and soul, and God wants both to be kept clean and holy. That is why he forbids everything which incites unchastity, [^1] whether it be actions, looks, talk, thoughts, or desires. [^2]
 
 [^1] 1 Cor. 15:33; Eph. 5:18
+
 [^2] Matt. 5:27-29; 1 Cor. 6:18-20; Eph. 5:3-4
 
 ### Lesson 43 (Q. 126 -128)
@@ -1449,12 +1673,17 @@ Thou shalt not steal.
 **Answer:**
 
 He forbids not only outright theft and robbery, punishable by law.[^1] But in God's sight theft also includes cheating and swindling our neighbor by schemes made to appear legitimate,
+
 [^2] such as: inaccurate measurements of weight, size, or volume; fraudulent merchandising; counterfeit money; excessive interest; or any other means forbidden by God.[^3] In addition he forbids all greed[^4] and pointless squandering of his gifts.[^5]
 
 [^1] Ex. 22:1; 1 Cor. 5:9-10; 6:9-10
+
 [^2] Mic. 6:9-11; Luke 3:14; James 5:1-6
+
 [^3] Deut. 25:13-16; Ps. 15:5; Prov. 11:1; 12:22; Ezek 45:9-12; Luke 6:35
+
 [^4] Luke 12:15; Eph. 5:5
+
 [^5] Prov. 21:20; 23:20-21; Luke 16:10-13
 
 #### Question 128 What does God require of you in this commandment?
@@ -1478,13 +1707,17 @@ Thou shalt not bear false Witness against thy neighbor
 **Answer:**
 
 God's will is that I never give false testimony against anyone, twist no one's words, not gossip or slander, nor join in condemning anyone without a hearing or without a just cause.[^1]
+
 Rather, in court and everywhere else, I should avoid lying and deceit of every kind; these are devices the devil himself uses, and they would call down on me God's intense anger.[^2] I should love the truth, speak it candidly, and openly acknowledge it.[^3]
 
 And I should do what I can to guard and advance my neighbor's good name.[^4]
 
 [^1] Ps. 15; Prov. 19:5; Matt. 7:1; Luke 6:37; Rom. 1:28-32
+
 [^2] Lev. 19:11-12; Prov. 12:22; 13:5; John 8:44; Rev. 21:8
+
 [^3] 1 Cor. 13:6; Eph. 4:25
+
 [^4] 1 Pet. 3:8-9; 4:8
 
 ### Lesson 4 5 (Q. 131 -134)
@@ -1512,6 +1745,7 @@ That not even the slightest thought or desire contrary to any one of God's comma
 No. In this life even the holiest have only a small beginning of this obedience.[^1] Nevertheless, with all seriousness of purpose, they do begin to live according to all, not only some, of God's commandments. [^2]
 
 [^1] Eccles. 7:20; Rom. 7:14-15; 1 Cor. 13:9; 1 John 1:8-10
+
 [^2] Ps. 1:1-2; Rom. 7:22-25; Phil. 3:12-16
 
 #### Question 134 No one in this life can obey the Ten Commandments perfectly: why then does God want them preached so pointedly?
@@ -1521,6 +1755,7 @@ No. In this life even the holiest have only a small beginning of this obedience.
 First, so that the longer we live the more we may come to know our sinfulness and the more eagerly look to Christ for forgiveness of sins and righteousness. [^1] Second, so that, while praying to God for the grace of the Holy Spirit, we may never stop striving to be renewed more and more after God's image, until after this life we reach our goal: perfection. [^2]
 
 [^1] Ps. 32:5; Rom. 3:19-26; 7:7, 24-25; 1 John 1:9
+
 [^2] 1 Cor. 9:24; Phil. 3:12-14; 1 John 3:1-3
 
 ## Of Prayer (Lessons 46-53)
@@ -1534,6 +1769,7 @@ First, so that the longer we live the more we may come to know our sinfulness an
 Because prayer is the most important part of the thankfulness God requires of us. [^1] And also because God gives his grace and Holy Spirit only to those who pray continually and groan inwardly, asking God for these gifts and thanking him for them.[^2]
 
 [^1] Ps. 50:14-15; 116:12-19; 1 Thess. 5:16-18
+
 [^2] Matt. 7:7-8; Luke 11:9-13
 
 #### Question 136 How does God want us to pray so that he will listen to us?
@@ -1543,10 +1779,13 @@ Because prayer is the most important part of the thankfulness God requires of us
 First, we must pray from the heart to no other than the one true God, who has revealed himself in his Word, asking for everything he has commanded us to ask for.[^1] Second, we must acknowledge our need and misery, hiding nothing, and humble ourselves in his majestic presence. [^2] Third, we must rest on this unshakable foundation: even though we do not deserve it,
 
 God will surely listen to our prayer because of Christ our Lord.
+
 That is what he promised us in his Word. [^3]
 
 [^1] Ps. 145:18-20; John 4:22-24; Rom. 8:26-27; James 1:5; 1 John 5:14-15
+
 [^2] 2 Chron. 7:14; Ps. 2:11; 34:18; 62:8; Isa. 66:2; Rev. 4
+
 [^3] Dan. 9:17-19; Matt. 7:8; John 14:13-14; 16:23; Rom. 10:13; James 1:6
 
 #### Question 137 What did God command us to pray for?
@@ -1554,6 +1793,7 @@ That is what he promised us in his Word. [^3]
 **Answer:**
 
 Everything we need, spiritually and physically, [^1] as embraced in the prayer Christ our Lord himself taught us.
+
 [^1] James 1:17; Matt. 6:33
 
 #### Question 138 What is this prayer?
@@ -1595,6 +1835,7 @@ At the very beginning of our prayer Christ wants to kindle in us what is basic t
 These words teach us not to think of God's heavenly majesty as something earthly, [^1] and to expect everything for body and soul from his almighty power.[^2]
 
 [^1] Jer. 23:23-24; Acts 17:24-25
+
 [^2] Matt. 6:25-34; Rom. 8:31-32
 
 ### Lesson 4 8 (Q. 142)
@@ -1604,10 +1845,13 @@ These words teach us not to think of God's heavenly majesty as something earthly
 **Answer:**
 
 "Hallowed be your name" means, Help us to really know you, [^1]
+
 to bless, worship, and praise you for all your works and for all that shines forth from them: your almighty power, wisdom, kindness, justice, mercy, and truth.[^2] And it means, Help us to direct all our living--what we think, say, and do--so that your name will never be blasphemed because of us but always honored and praised. [^3]
 
 [^1] Jer. 9:23-24; 31:33-34; Matt. 16:17; John 17:3
+
 [^2] Ex. 34:5-8; Ps. 145; Jer. 32:16-20; Luke 1:46-55, 68 -75; Rom. 11:33-36
+
 [^3] Ps. 115:1; Matt. 5:16
 
 ### Lesson 4 9 (Q. 143)
@@ -1619,8 +1863,11 @@ to bless, worship, and praise you for all your works and for all that shines for
 "Your kingdom come" means, Rule us by your Word and Spirit in such a way that more and more we submit to you. [^1] Keep your church strong, and add to it. [^2] Destroy the devil's work; destroy every force which revolts against you and every conspiracy against your Word. [^3] Do this until your kingdom is so complete and perfect that in it you are all in all. [^4]
 
 [^1] Ps. 119:5, 105; 143:10; Matt. 6:33
+
 [^2] Ps. 122:6-9; Matt. 16:18; Acts 2:42-47
+
 [^3] Rom. 16:20; 1 John 3:8
+
 [^4] Rom. 8:22-23; 1 Cor. 15:28; Rev. 22:17, 20
 
 ### Lesson 50 (Q. 144)
@@ -1632,7 +1879,9 @@ to bless, worship, and praise you for all your works and for all that shines for
 "Your will be done on earth as it is in heaven" means, Help us and all people to reject our own wills and to obey your will without any back talk. Your will alone is good. [^1] Help us one and all to carry out the work we are called to,[^2] as willingly and faithfully as the angels in heaven. [^3]
 
 [^1] Matt. 7:21; 16:2 4 -26; Luke 22:42; Rom. 12:1-2; Tit 2:11-12
+
 [^2] 1 Cor. 7:17-24; Eph. 6:5-9
+
 [^3] Ps. 103:20-21
 
 ### Lesson 51 (Q. 145)
@@ -1642,11 +1891,15 @@ to bless, worship, and praise you for all your works and for all that shines for
 **Answer:**
 
 "Give us today our daily bread" means, Do take care of all our physical needs [^1] so that we come to know that you are the only source of everything good, [^2] and that neither our work and worry nor your gifts can do us any good without your blessing.
+
 [^3] And so help us to give up our trust in creatures and to put trust in you alone. [^4]
 
 [^1] Ps. 104:27-30; 145:15-16; Matt. 6:25-34
+
 [^2] Acts 14:17; 17:25; James 1:17
+
 [^3] Deut. 8:3; Ps. 37:16; 127:1-2; 1 Cor. 15:58
+
 [^4] Ps. 55:22; 62; 146; Jer. 17:5-8; Heb. 13:5-6
 
 ### Lesson 52 (Q. 146)
@@ -1656,9 +1909,11 @@ to bless, worship, and praise you for all your works and for all that shines for
 **Answer:**
 
 "Forgive us our debts, as we also have forgiven our debtors"
+
 means, Because of Christ's blood, do not hold against us, poor sinners that we are, any of the sins we do or the evil that constantly clings to us. [^1] Forgive us just as we are fully determined, as evidence of your grace in us, to forgive our neighbors. [^2]
 
 [^1] Ps. 51:1-7; 143:2; Rom. 8:1; 1 John 2:1-2
+
 [^2] Matt. 6:14-15; 18:21-35
 
 ### Lesson 53 (Q. 147 -149)
@@ -1670,10 +1925,15 @@ means, Because of Christ's blood, do not hold against us, poor sinners that we a
 "And lead us not into temptation, but deliver us from the evil one" means, By ourselves we are too weak to hold our own even for a moment.[^1] And our sworn enemies--the devil, [^2] the world, [^3] and our own flesh—[^4] never stop attacking us. And so, Lord, uphold us and make us strong with the strength of your Holy Spirit, so that we may not go down to defeat in this spiritual struggle,[^5] but may firmly resist our enemies until we finally win the complete victory. [^6]
 
 [^1] Ps. 103:14-16; John 15:1-5
+
 [^2] 2 Cor. 11:14; Eph. 6:10-13; 1 Pet. 5:8
+
 [^3] John 15:18-21
+
 [^4] Rom. 7:23; Gal. 5:17
+
 [^5] Matt. 10:19-20; 26:41; Mark 13:33; Rom. 5:3-5
+
 [^6] 1 Cor. 10:13; 1 Thess. 3:13; 5:23
 
 #### Question 148 What does your conclusion to this prayer mean?
@@ -1681,11 +1941,13 @@ means, Because of Christ's blood, do not hold against us, poor sinners that we a
 **Answer:**
 
 "For yours is the kingdom and the power and the glory forever"
+
 means, We have made all these requests of you because, as our all-powerful king, you not only want to, but are able to give us
 
 all that is good; [^1] and because your holy name, and not we ourselves, should receive all the praise, forever. [^2]
 
 [^1] Rom. 10:11-13; 2 Pet. 2:9
+
 [^2] Ps. 115:1; John 14:13
 
 #### Question 149 What does that little word "Amen" express?

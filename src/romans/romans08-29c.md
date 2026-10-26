@@ -12,7 +12,6 @@ When we speak of Romans 8, most Christians rightfully cling to the verse 1: **Th
 
 >Romans 7:24–25 What a wretched man I am! Who will rescue me from this body of death? Thanks be to God through Jesus Christ our Lord! So then, with my mind I myself am serving the law of God, but with my flesh, the law of sin.
 
-
 ## Our God
 
 Seem familiar? Don’t we hear the same desperation in anyone, who by the grace of God, see their own sins as an affront and treason against holy and loving God? It is the great cry of the tax collector, “standing far off, would not even lift up his eyes to heaven, but beat his breast, saying, ‘God, be merciful to me, a sinner!’” [^1]

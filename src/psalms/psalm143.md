@@ -45,15 +45,18 @@ My Only Answered Prayer
 </div>
 
 The world had left me for dead
+
 * discarded
 * thrown away.
 
 Satan had me in his teeth
+
 * and I was ravaged
 * beyond recognition
 * and beyond any reasonable healing
 
 Demons continuously pop shots
+
 * their arrows
 * tear my flesh
 * and my heart
@@ -69,6 +72,7 @@ I died.
 But in the midst of my wickedness, my sin, my worthlessness, my trespass, my evil--
 
 You saw me
+
 * all of my sin
 * all of it
 * the very base of my heart

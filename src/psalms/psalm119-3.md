@@ -20,6 +20,7 @@ My Living Word
 </div>
 
 But I have have done everything wrong  
+
 * where do I even begin  
 * I was born in sin  
 * I lived in filth  
@@ -31,11 +32,13 @@ But I have have done everything wrong
 * left me ashamed and confused.
 
 I continually sinned against you  
+
 * I would even blasphemed your name and take it for granted.
 
 How did you respond?
 
 You saved me  
+
 * from the bottomless depths of my wickedness  
 * from the weight of my wretchedness  
 * from the despair of my worthlessness  
@@ -43,6 +46,7 @@ You saved me
 * and you loved me.
 
 There is none like you  
+
 * you are the only Holy One of God.
 
 Amen.

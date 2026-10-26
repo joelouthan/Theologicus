@@ -10,6 +10,7 @@
 # Praying Through: Psalm 88 Salvation
 
 ## The Psalm
+
 >Psalm 88    
 > A song. A psalm of the sons of Korah. For the choir director: according to Mahalath Leannoth. A Maskil of Heman the Ezrahite. 
 >
@@ -56,6 +57,7 @@ Salvation
 </div>
 
 From the moment, I laid dead in the pit of hell
+
 * in the death of my own sin
 * in the torment of sins against me
 * in the agony of my trespasses
@@ -66,6 +68,7 @@ From the moment, I laid dead in the pit of hell
 * and I am dead.
 
 You gave me life
+
 * and your light shined into my soul
 * your actions wiped my wickedness away
 * your grace gave me hope
@@ -73,6 +76,7 @@ You gave me life
 * your life is my worship to you in heaven forever.
 
 You are the God
+
 * who instantly saves.
 
 Be glorified in my life today.

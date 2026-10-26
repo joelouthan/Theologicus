@@ -7,6 +7,7 @@
 ## The Text
 
 ## The Devotion
+
 ## Pray Then Like This
 
 >Matthew 6:10b Your will be done
@@ -47,32 +48,51 @@ My Father
   And I don't know much.
 
 But I know you are holy.
+
   you are my Father
+
   You know my needs
+
   Please provide for me.
 
 Your kingdom is here
+
   because of what your Son has done
+
   bring me into your presence
+
   because of what your Son has done
 
 Lord,
+
   I have spent my entire life
+
   doing what I want to do
+
   and when I come to you now
+
   I still want to do what I want to do
 
 But would you
+
   make me look like your Son
+
   just as you promised you would
+
   so that I can want what you want
+
   just as your Son did.
 
 For me to do anything you want
+
   I have to be filled with your Spirit
+
   give me your Son's Spirit
+
   the same one that raised Him from the dead
+
   and convicts me
+
   of everything your Son has commanded.
 
 Amen.

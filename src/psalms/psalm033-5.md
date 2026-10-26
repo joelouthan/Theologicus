@@ -20,6 +20,7 @@ My Eternal Righteousness
 </div>
 
 I have spent a lifetime
+
 * ignoring this precious truth
 * that you loved the world so much
 * that you sent your only begotten Son
@@ -32,21 +33,26 @@ I have spent a lifetime
 * sin.
 
 For those who want to live with you forever
+
 * we would only need to believe in you
 * trust in you
 * obey your word
 * and take you at your word.
 
 The earth if full of the steadfast love of the Lord
+
 * because You have sent your Son to us
 
 You love righteousness
+
 * because You have sent your Son to us
 
 You love justice
+
 * because You have sent your Son speedily to us
 
 Lord,
+
 * help me
 * to never cease wondering at who you are
 * to never wander from your right hand

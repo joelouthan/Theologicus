@@ -20,11 +20,13 @@ My Only Lord
 </div>
 
 Death, sin, hell, and Satan
+
 * I still fear them
 * I still alarmed at their presence
 * I am still scared
 
 Yet, I am reminded
+
 * that you came into our world
 * not full of power
 * but filled with vulnerability
@@ -35,12 +37,14 @@ Yet, I am reminded
 * of your Father's great sovereignty.
 
 And yet, I am further reminded
+
 * because you gave up your life
 * because you handed your body over to be crucified
 * you defeated my fears
 * you have conquered my actual enemies
 
 I fear no evil
+
 * I fear you
 * You are my King and my God
 * You alone have the power

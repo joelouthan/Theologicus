@@ -42,39 +42,60 @@
 You Are My Protector
 </div>
 
- 
-
 I have been surrounded by evil
+
 Left exposed
+
 And vulnerable
+
 To Satan and Demons
+
 Who feed upon my flesh
+
 And leave me to perish.
 
 My God
+
 How did you know
+
 Where I needed help
+
 How could you love 
+
 Someone like me
+
 I have been unloved and unwanted
+
 All of my life
+
 But you came along
+
 And brought me to you
+
 And kept me in your heart.
 
 I have fought with you
+
 But you stayed with me
+
 I have warred against you
+
 And you love me regardless
+
 I have ran away
+
 Yet you were there to rescue me
+
 All the days of my life.
 
 You have always been with me
+
 From my mother's womb
+
 Till I see you.
 
 You are forever
+
 My Lord and King.
 
 Amen.

@@ -93,10 +93,7 @@ Nonetheless, God is Creator over all creation, and therefore his rights as Creat
 
 As his creation, we have only the rights given to us by Creator God and nothing more.
 
-<figure style="text-align: center;">
-    <img src="sproul-consent.jpg" style="display: block; float: none; margin: auto; width: 400px;" alt="">
-    <figcaption style="font-style: italic; text-align: center;">"God doesn't need our consent in order to govern us. He made us.</figcaption>
-</figure>
+![](images/sproul-consent.jpg)
 
 We think that, because we have free will, we might fool ourselves into thinking we have absolute freedom. God alone has that absolute freedom.
 
@@ -123,11 +120,13 @@ This is what we call the covenant of works.
 God established this with Adam in the garden, "Do these things and you will live."
 
 Adam failed to meet those demands.
+
 ### We have failed to meet his demands 
 
 What did God say would happen if we disobey him? We will surely die. Make no mistake -- Adam & Eve did not drop dead on sight upon taking a mere delicious bite from the forbidden fruit from the forbidden tree. But the fact is they surely did die.
 
 They were meant to live forever. Because of their sin, they perished.
+
 ### We shall perish because we are disobedient -- by choice and by birth 
 
 Not too recently, many began debating, for what sin or sins did God destroy Sodom and Gomorrah? Growing up, especially in response to today's culture, from the Sexual Revolution onward, clearly it was the sin of sexual immorality -- specifically, homosexuality, which God calls "detestable", an abomination. (Leviticus 18:22) 
@@ -153,11 +152,13 @@ They did not help the poor and needy, although they had plenty. They were doing 
 Make no mistake -- I am emphasizing "sexual immortality" more so than homosexuality. Why? I don't want the hearer to be lulled into a stupor thinking that his πορνεία heterosexual acts gets ignored by our holy God while πορνεία homosexual acts get the just wrath of the Lord.
 
 It's all πορνεία. It's all sexual immorality. It is all a sin in the eyes of God.
+
 #### Hell is real 
 
 >Colossians 3:5-6 Therefore, put to death what belongs to your earthly nature: sexual immorality, impurity, lust, evil desire, and greed, which is idolatry. Because of these, God’s wrath is coming upon the disobedient,
 
 >John 3:36 The one who believes in the Son has eternal life, but the one who rejects the Son will not see life; instead, the wrath of God remains on him.
+
 #### Torment is real 
 
 >Matthew 8:10-13 Hearing this, Jesus was amazed and said to those following him, “Truly I tell you, I have not found anyone in Israel with so great a faith. I tell you that many will come from east and west to share the banquet with Abraham, Isaac, and Jacob in the kingdom of heaven. But the sons of the kingdom will be thrown into the outer darkness where there will be weeping and gnashing of teeth.” Then Jesus told the centurion, “Go. As you have believed, let it be done for you.” And his servant was healed that very moment.
@@ -199,6 +200,7 @@ You and I were born in disgrace, sinning against God right from the start. But l
 It is not we who fix our relationship with God; rather, it is God who fixes our relationship with him.
 
 And he has -- he has sent his only begotten Son, Jesus Christ, who has saved us from our sins.
+
 ## Our Response 
 
 ### Who is like our God? 

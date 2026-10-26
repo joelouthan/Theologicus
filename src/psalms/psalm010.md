@@ -57,11 +57,14 @@ O Lord,
 My sin wakes me up from my slumber.
 
 At my weakest, my iniquities flood my mind.
+
 * My mind is not sharp.
 * My soul is asleep.
 * In the pitch blackness of the night, I cannot see.
 * 
+
 Sin is like a ravenous, 
+
 * rabid dog who sits upon my chest, 
 * waiting to devour me. 
 * I can smell it’s breath. 
@@ -71,12 +74,14 @@ Sin is like a ravenous,
 My birth and my life before haunts me.
 
 But you, O Lord, are my Shepherd. 
+
 * You are my protector.
 * You are my defender.
 * You are my avenger.
 * You are my slayer.
 
 You, 
+
 * who was once slain for my sin, 
 * have already gloriously, 
 * majestically, 
@@ -86,6 +91,7 @@ You,
 * slay all of my sin.
 
 My King,
+
 * my wits are lost. 
 * My soul is dormant. 
 * My heart is nearly still. 
@@ -93,14 +99,17 @@ My King,
 * I do not have the presence of mind to call on you.
 
 My God, 
+
 * be my faithful protector—
 * continuously 
 * and forevermore.
 
 Every waking moment and every minute of sleep, 
+
 there is not a time when I don’t need you.
 
 I need you, God. 
+
 * Don’t leave me. 
 * Stay with me. 
 * Help me. 

@@ -31,11 +31,13 @@ Goodness
 </div>
 
 I will sing!
+
 * And I will shout!
 * I will praise the Lord of Hosts!
 * For he alone is worthy to be praised!
 
 He is my heart and my life
+
 * I will gladly lay down my life
 * because he has saved me from the depths of hell
 * because he has loved me from the beginning of time
@@ -43,6 +45,7 @@ He is my heart and my life
 * because I am his son and he is my Father
 
 So whatever I can do
+
 * however I can proclaim
 * however I can sing
 * however I can dance
@@ -55,18 +58,21 @@ So whatever I can do
 * have sought to destroy me and crushed me and keep me from my God
 
 But my God is stronger
+
 * of infinite might
 * he has nor will ever lose me
 * he has sent his only begotten Son
 * to destroy and vanquished the forces of evil
 
 Now my enemies are down
+
 * they have no power over me
 * for the Triune God lives in me
 * forever
 * I am his and he is mine
 
 He has loved me with an everlasting love
+
 * let me sing unto my God
 * let me gaze upon his beauty
 * let me write a trillion words

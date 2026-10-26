@@ -71,6 +71,7 @@ Lord
 I will always forget your love for me.
 
 But you will never stop loving me
+
 * because you never started loving me.
 
 Amen.

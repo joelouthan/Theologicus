@@ -92,7 +92,6 @@ Let us see how the wisdom of God was there in beginning. And despite our fallen 
 
 When God created mankind, that wisdom was meant for us to use. Because of the perfect relationship and community we once had, we would *truly* had untapped access to the wisdom of God. Now, despite our fallen world, his wisdom perseveres but we no longer have access to it *freely*. For us to know God, we will need God to open our eyes, ears, minds, and hearts in order to see him, hear him, know him, and love him.
 
-
 ## His Gospel
 
 Now, because we are born fallen away from God and therefore, infinitely apart from God, God had to do everything in order to bridge the gap between us and him.
@@ -136,7 +135,6 @@ We have all sinned and fallen short of the glory of God. (Romans 3:23) In order 
 >and he will carry their iniquities.
 
 >2 Corinthians 5:21 He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.
-
 
 ### In His Wisdom, He Willfully and Joyfully Obeyed Unto Death
 

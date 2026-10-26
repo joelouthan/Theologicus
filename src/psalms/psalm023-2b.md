@@ -20,7 +20,9 @@ My Lord
 </div>
 
 You are the fountain of true life.
+
 I am dead without you. 
+
 * It is not that 
 * I can find this water on my own.
 For I am lost
@@ -32,6 +34,7 @@ I have no wisdom,
 But you, O Lord, rescued me.
 
 You have brought me into your life 
+
 * and in your life alone, 
 * I am <em>fully</em> alive.
 My soul is no longer dried in sin 
@@ -40,5 +43,6 @@ My soul is no longer dried in sin
 * and filled with your forever grace.
 
 God, please keep me close 
+
 * so that I stay refreshed 
 * and satisfied in all of life.

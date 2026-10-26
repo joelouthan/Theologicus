@@ -63,6 +63,7 @@ My Only Blessing
 </div>
 
 If I had every single word
+
 * in every language
 * and I created
 * all other languages

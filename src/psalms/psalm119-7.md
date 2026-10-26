@@ -20,6 +20,7 @@ My Living Word
 </div>
 
 Now that you have given me your Son
+
 * your Spirit
 * your Word
 * your heart
@@ -30,6 +31,7 @@ Now that you have given me your Son
 * forever.
 
 On this day
+
 * be glorified.
 
 Amen.

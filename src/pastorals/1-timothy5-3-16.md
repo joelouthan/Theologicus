@@ -72,10 +72,10 @@ Yet in this case, we know in this particular passage, we know that to be true. A
 >Mark 3:33-35 He replied to them, “Who are my mother and my brothers?” 34 Looking at those sitting in a circle around him, he said, “Here are my mother and my brothers! 35 Whoever does the will of God is my brother and sister and mother.”
 
 We are to love each other. And within the body of believers, we are saved to one another as family because we are the fathers and mothers and brothers and sisters to one another. Crazy? Yes. Still being sanctified? Yes. Not perfect? Yes. Hard sometimes? Yes.
+
 Setup hard boundaries and sometimes love them from a far. But when ministry opportunities arises, pray to God and ask what is yours to do and then go and do if confirmed by the word of God.
 
 >Deuteronomy 10:17-21 For the LORD your God is the God of gods and Lord of lords, the great, mighty, and awe-inspiring God, showing no partiality and taking no bribe. 18 He executes justice for the fatherless and the widow, and loves the resident alien, giving him food and clothing. 19 You are also to love the resident alien, since you were resident aliens in the land of Egypt. 20 You are to fear the LORD your God and worship him. Remain faithful to him and take oaths in his name. 21 He is your praise and he is your God, who has done for you these great and awe-inspiring works your eyes have seen.
-
 
 And if you are curious what is the judgement and the response of God when you oppose his tender heart for those most vulnerable: not only the widow but orphan and the immigrant, go and read Psalm 94.
 

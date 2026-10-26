@@ -78,7 +78,6 @@ Now Paul takes that and says:
 
 Go to God--audaciously, boldly--and petition, prayer, intercede and give thanks for everyone--in the Greek, that means 'everyone'--and for kings and the even the presidents, judges, and senators that you hate. You are go to God and ask God to save them so that, in heaven, they will be side by side with you, worshipping our great God together. Wouldn't that be a splendid and wonderful thing?
 
-
 ### so that we may lead a tranquil and quiet life in all godliness and dignity
 
 You know what is the effect of intentionally praying, petitioning, interceding, and giving thanks for people who you think are your mortal enemies? Shocking enough, they stop being your enemies. You stop hating them. You start loving them. You start caring for them. You start giving to them and want nothing in return. You literally start killing them with kindness. Jesus praises the shrewdness and the craftiness of the dishonest manager in Luke 16. And Jesus wishes that the children of light were just as crafty as the children of the world in dealing with others and loving them. 

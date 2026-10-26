@@ -51,6 +51,7 @@ But You, O God, are endlessly faithful:
 * Faithful to send.
 
 My Commander of Hosts, help me in my moment of despair.
+
 * My feet, which are strapped with Your gospel of peace,
 * have been firmly planted into the Rock of Ages.
 * I will and cannot retreat. I shall not be moved.
@@ -58,8 +59,10 @@ My Commander of Hosts, help me in my moment of despair.
 You see, your victory is complete.
 
 Your finished work continues to grow in ranks by the indwelling of your Holy Spirit,
+
 * the swelling of our hearts and the changing of our minds.
 * 
+
 Your kingdom presses against the gates of hell.
 
 I can now hear the rivets popping from the weight of your awesome glory.

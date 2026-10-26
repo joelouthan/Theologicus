@@ -15,10 +15,10 @@
 
 ## The Prayer
 
-
-
 You are my Good Shepherd.
+
 You fled the ninety-nine
+
 *  in order to come rescue me,
 * when I could not possibly rescue myself.
 You saved me

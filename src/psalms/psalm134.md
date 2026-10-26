@@ -27,6 +27,7 @@ Only Worthy of Worship,
 </div>
 
 We shall gather together
+
 * by your accord
 * and sing praises to you
 * and hear your word
@@ -34,6 +35,7 @@ We shall gather together
 * and be blessed by you.
 
 You are our only God
+
 * our Savior
 * and my Lord
 * forever.

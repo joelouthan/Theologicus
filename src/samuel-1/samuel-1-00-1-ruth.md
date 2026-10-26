@@ -197,4 +197,3 @@ Only in his sovereignty can a Savior be given to save his people from their sins
 ><sup>30</sup> Their descendants will serve him; the next generation will be told about the Lord. 
 >
 ><sup>31</sup> They will come and declare his righteousness; to a people yet to be born they will declare what he has done.
-

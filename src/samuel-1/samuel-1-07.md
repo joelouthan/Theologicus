@@ -48,7 +48,6 @@
 >
 ><sup>17</sup> Then he would return to Ramah because his home was there, he judged Israel there, and he built an altar to the LORD there.
 
-
 ---
 
 ## The Study

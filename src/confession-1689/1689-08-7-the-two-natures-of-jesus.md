@@ -39,15 +39,23 @@ I have said often: ESS goes against the Creeds. In case you are not familiar, in
   is both God and human, equally.
 
   He is God from the essence of the Father,
+
   begotten before time;
+
   and he is human from the essence of his mother,
+
   born in time;
+
   completely God, completely human,
+
   with a rational soul and human flesh;
+
   equal to the Father as regards divinity,
+
   less than the Father as regards humanity.
 
   Although he is God and human,
+
   yet Christ is not two, but one.
 
 I would love to exposit the Athanasian Creed, but that is another book for another day. The point I am driving here is that we **do not** have to re-toil the work of the relationship between the Father and the Son because we have over 2,000 years of Historical Orthodox Christianity to draw from. And the ESS heresy is not Orthodox Christianity.

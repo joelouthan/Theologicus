@@ -35,6 +35,7 @@ Worthy is Your Grace
 </div>
 
 I will never stop
+
 * writing words
 * sing songs
 * mulling thoughts
@@ -53,6 +54,7 @@ I will never stop
 * all of everything.
 
 Your grace
+
 * is more than my pain
 * my despair
 * my deceit
@@ -65,6 +67,7 @@ Your grace
 * all the evil in this world.
 
 Your grace
+
 * was fulfilled
 * perfect
 * complete
@@ -80,17 +83,20 @@ Now I am yours
 Now you are mine
 
 Your presence is forever with me
+
 * and I am forever in your grasp
 * No one can ever remove me
 * nothing can ever separate us
 * nothing can come between us.
 
 Your grace
+
 * is worth more
 * than anything I ever had in this world
 * and the best of anything I have ever lost.
 
 You found me
+
 * and now I have everything
 * because I have you
 * You are my heart and my love and joy forever.

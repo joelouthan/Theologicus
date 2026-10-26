@@ -126,6 +126,7 @@ But parents with children at home, answer this question: who is in charge at hom
 And just to be crystal clear, if you think that this God's call upon your life to "rule your home with an iron fist", let me ask you this, "What if our Father ruled over you like that?" It would suck, wouldn't it?
 
 Our Father in heaven loves us, rejoices over us, provides for our every need and takes care of us. We know this for a fact because He sent his only begotten son to live and die for us so that we can be with him whose presence is the fullness of joy and at his right hand are pleasures forevermore. (Psalm 16:11)
+
 Don't be that parent! Be like your Father in heaven who is perfect. (Matthew 5:48)
 
 ><sup> 7 </sup>As an overseer of God’s household, he must be blameless, not arrogant, not hot-tempered, not an excessive drinker, not a bully, not greedy for money <sup> 8 </sup>but hospitable, loving what is good, sensible, righteous, holy, self-controlled, 

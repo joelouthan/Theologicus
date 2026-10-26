@@ -82,40 +82,40 @@ Nathan reported all these words and this entire vision to David.
 We are born covenant breakers
 
 #### Adam
- 	
+
 >Genesis 2 - do not eat from the tree of the knowledge of good and evil and you will live. If you sin, you will die.
- 	
+>
 >Genesis 3 - Adam ate the fruit and was instantly ashamed of his sin
- 	
+>
 >Genesis 3:15 God preaches the gospel to Satan and Adam and Eve
-		
+>
 >Genesis 3:15**
 >I will put hostility between you and the woman,  
 >and between your offspring and her offspring.  
 >He will strike your head,  
 >and you will strike his heel.
-		
+>
 >her offspring *its "offspring" not offsprings*
 
 #### NOAH
- 	
->Genesis 9 - I will never destroy the earth by water -- no matter how bad it gets. See, here is a rainbow to show you how serious I am.
- 	
->Genesis 9:17 God said to Noah, “This is the sign of the covenant that I have established between me and every creature on earth.”
- 	
-*three (3) verses later*
- 	
->Genesis 9:20-25 Noah, as a man of the soil, began by planting a vineyard. He drank some of the wine, became drunk, and uncovered himself inside his tent. Ham, the father of Canaan, saw his father naked and told his two brothers outside. Then Shem and Japheth took a cloak and placed it over both their shoulders, and walking backward, they covered their father’s nakedness. Their faces were turned away, and they did not see their father naked.
- 	
-When Noah awoke from his drinking and learned what his youngest son had done to him, he said:
-Canaan is cursed.
- 	
-He will be the lowest of slaves to his brothers.
- 	
-*Let me get this straight - Noah sinned in the eyes of God, and he blameshifts his son and grandson? The sons of Adam would NEVER act exactly their father, Adam? (see Genesis 3:12) (also sarcasm)*
-		
-Fun fact: Noah's hangover-y curse did not affect the lineage of Ham. So, whatever racist, Mormon-ic false teaching you have heard on the lineage of Canaan, go ahead and unlearn that.
 
+>Genesis 9 - I will never destroy the earth by water -- no matter how bad it gets. See, here is a rainbow to show you how serious I am.
+>
+>Genesis 9:17 God said to Noah, “This is the sign of the covenant that I have established between me and every creature on earth.”
+
+*three (3) verses later*
+
+>Genesis 9:20-25 Noah, as a man of the soil, began by planting a vineyard. He drank some of the wine, became drunk, and uncovered himself inside his tent. Ham, the father of Canaan, saw his father naked and told his two brothers outside. Then Shem and Japheth took a cloak and placed it over both their shoulders, and walking backward, they covered their father’s nakedness. Their faces were turned away, and they did not see their father naked.
+
+When Noah awoke from his drinking and learned what his youngest son had done to him, he said:
+
+Canaan is cursed.
+
+He will be the lowest of slaves to his brothers.
+
+*Let me get this straight - Noah sinned in the eyes of God, and he blameshifts his son and grandson? The sons of Adam would NEVER act exactly their father, Adam? (see Genesis 3:12) (also sarcasm)*
+
+Fun fact: Noah's hangover-y curse did not affect the lineage of Ham. So, whatever racist, Mormon-ic false teaching you have heard on the lineage of Canaan, go ahead and unlearn that.
 
 #### But what about Hezekiah in Isaiah 38, 2 Kings 20?
 

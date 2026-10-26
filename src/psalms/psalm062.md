@@ -45,6 +45,7 @@ You Are My Rest
 </div>
 
 Most of my life
+
 * I have fought against you
 * blasphemed your holy name
 * was slave to my own lusts
@@ -52,6 +53,7 @@ Most of my life
 * and including myself.
 
 But with all of my life
+
 * you set your affections upon me
 * loved me with love I have never known
 * gave me grace everywhere
@@ -59,6 +61,7 @@ But with all of my life
 * despite my anger and rage and sin against you
 
 I still cannot believe
+
 * that you would love me
 * at my very worst
 * in my darkest pain
@@ -68,6 +71,7 @@ I still cannot believe
 * and brought me to life.
 
 I need you, Lord
+
 * now more than anything.
 
 Be my love forever.

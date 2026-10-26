@@ -21,12 +21,14 @@ My Only Path
 </div>
 
 I search this earth
+
 * for something that is good and holy
 * none I can find
 * I see semblances
 * but none fulfilling
 
 But you lead me to your word
+
 * your word speaks of you
 * I see that you alone are good
 * holy
@@ -38,6 +40,7 @@ But you lead me to your word
 * we are so far from you
 
 I see my own heart
+
 * I am an infinite distance from your presence.
 
 Who would bridge this gap?
@@ -45,6 +48,7 @@ Who would bridge this gap?
 Is it I?
 
 Let me try my best
+
 * let me abstain from sin
 * let me not look at porn
 * let me not lust after someone eclipses
@@ -55,12 +59,16 @@ Let me try my best
 * let me do good.
 
 Oh but everything I do is infected with sin
+
 * I see it because I know it in my heart
 * 
+
 When I am helpful
+
 * I do so in order for people to like me
 
 When I am nice
+
 * I want people to think I am good
 * but if they could see my heart
 * if they could see the thoughts of my mind
@@ -68,6 +76,7 @@ When I am nice
 * they judge me wanting.
 
 But you saw the depths of my soul
+
 * even beyond what I can see
 * in the darkness and despair
 * you did not shudder 
@@ -82,6 +91,7 @@ But you saw the depths of my soul
 * forever.
 
 Keep me in palms of your hands
+
 * O Lord
 * I stand on the spoken word of your Son
 * that no one
@@ -95,6 +105,7 @@ Keep me in palms of your hands
 * you will never let me go.
 
 Keep me in your heart
+
 * speak into my soul
 * write your words in my heart
 * that I may never sin against you.

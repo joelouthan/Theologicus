@@ -55,6 +55,7 @@ You Are My Stronghold
 </div>
 
 I pray
+
 * that all of my sworn enemies
 * have sought to destroy me
 * kill me
@@ -70,12 +71,14 @@ I pray
 * by the power of your Spirit.
 
 I will say this once
+
 * because they are not my enemies
 * but prisoners of war
 * a war they cannot see
 * and death is already upon them.
 
 Be merciful to them, Lord,
+
 * answer my prayer
 * save them
 * so we can worship you
@@ -83,11 +86,13 @@ Be merciful to them, Lord,
 * for there is none like you.
 
 I would like to see their face
+
 * in the light of your love
 * in the light of grace
 * in the luxury of your mercy.
 
 I love you Lord
+
 * and I know you will save
 * your people
 * from their sins
@@ -95,5 +100,7 @@ I love you Lord
 * has done for us.
 
 Thank you.
+
 I praise you.
+
 Amen.

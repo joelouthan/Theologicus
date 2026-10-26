@@ -33,6 +33,7 @@ You Are My Mercy
 </div>
 
 My presence
+
 * My life
 * My words
 * My actions
@@ -40,6 +41,7 @@ My presence
 * "There is no God!"
 
 I sinned when I wanted
+
 * And never repented
 * No intention of
 * Because I thought I was be fulfilled
@@ -47,12 +49,14 @@ I sinned when I wanted
 * I thought lust was healing me.
 
 But my sins
+
 * Chew on my bones
 * And gnawed on my flesh
 * And I was immune to the pain
 * And could not see what it was doing.
 
 I was dead in my trespasses
+
 * and sins
 * Because I walked according
 * To the ways of this world,
@@ -64,6 +68,7 @@ I was dead in my trespasses
 * And sitting under your wrath.
 
 But you,
+
 * O God
 * Forever rich in mercy
 * Because of your great love for me
@@ -74,12 +79,14 @@ But you,
 I am saved by grace!
 
 You raised me up with Christ
+
 * So why?
 * So that you can display
 * Your immeasurable riches of your grace
 * Through the kindness of your Son
 
 I was saved by grace through faith
+
 * Nothing that I am
 * Nothing I have ever did
 * Nothing that I can ever do
@@ -87,12 +94,15 @@ I was saved by grace through faith
 * Because you gave me your Son
 
 I will boast in nothing less
+
 * Then Jesus' blood and righteousness.
 
 Everything that I am
+
 * I am your work and poem.
 
 Give me your Spirit
+
 * Write your word upon my heart
 * Dwell in my heart
 * And go and send me.

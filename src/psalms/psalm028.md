@@ -37,16 +37,20 @@
 <div style="font-variant: small-caps;">My Blessed Lord</div>
 
 How many times, my God,
+
 * must you rescue me?
 
 How many times, O Lord,
+
 * will you come running
 * when I call your name?
 
 But I am wicked and violent man,
+
 * and violence has me surrounded on all sides?
 
 But you, O my Lord, rescued me
+
 * saved me
 * because you loved me
 * from the very beginning.

@@ -13,7 +13,7 @@
 
 >>Psalm 125  
 ><sup></sup> A song of ascents. 
->
+>>
 ><sup>1</sup> Those who trust in the LORD are like Mount Zion. It cannot be shaken; it remains forever. 
 >
 ><sup>2</sup> The mountains surround Jerusalem and the LORD surrounds his people, both now and forever. 
@@ -31,26 +31,32 @@ My Most Precious Gift
 </div>
 
 The love you give
+
 * is steadfast
 * never ceases.
 
 The mercies you've shown
+
 * never come to an end.
 
 The grace you have for me
+
 * is layered
 * like an ocean
 * on a ocean.
 
 The faith you have gifted me
+
 * is the unbreakable chain
 * that connects to your Almight.
 
 THe Spirit that dwells in me
+
 * gives me trueness 
 * and fullness of life.
 
 The Son that I have
+
 * is mine
 * and I am his
 * forever.

@@ -67,10 +67,12 @@ My Redeemer
 </div>
 
 What terrible tragedies  
+
 * have plagued my life  
 * for all of my life?
 
 Why must I take the brunt  
+
 * of everyone's sins?
 * They have tortured me  
 * they have bruised me  
@@ -78,6 +80,7 @@ Why must I take the brunt
 * they have sought to kill me.
 
 But, you, my God  
+
 * have sustain my life thus far  
 * I am now on the other side of tragic events  
 * I am now on the other side of circumstances  
@@ -87,6 +90,7 @@ But, you, my God
 * and where you are for me.
 
 My God,
+
 * It is that Satan and his demons  
 * prisoners in their own sin and in the world  
 * hell and death  
@@ -96,17 +100,21 @@ My God,
 * and my life is in your hands.
 
 If I were to die here  
+
 * I will forever live with you  
 * and be with you.
 
 All of my days  
+
 * I will dwell in your house  
 * forever.
 
 It is there I will get to sing and worship and live and move  
+
 * with you forever.
 
 Do with me as you will  
+
 * for you are my precious Lord and God  
 * And I live to serve you alone.
 

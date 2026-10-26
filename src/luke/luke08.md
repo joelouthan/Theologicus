@@ -37,7 +37,7 @@ When the gospel is preached, does it accomplish what God wants it to do?
 >and hearing they may not understand.
 >
 > “This is the meaning of the parable: The seed is the word of God. The seed along the path are those who have heard and then the devil comes and takes away the word from their hearts, so that they may not believe and be saved. And the seed on the rock are those who, when they hear, receive the word with joy. Having no root, these believe for a while and fall away in a time of testing. As for the seed that fell among thorns, these are the ones who, when they have heard, go on their way and are choked with worries, riches, and pleasures of life, and produce no mature fruit. But the seed in the good ground—these are the ones who, having heard the word with an honest and good heart, hold on to it and by enduring, produce fruit.
- 
+
 What does God have to do in order for us to believe and trust in Him?
 
 >Ezekiel 36:25-27 I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.

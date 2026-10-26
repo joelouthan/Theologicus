@@ -39,6 +39,7 @@ My God
 </div>
 
 I love coming into your house
+
 * to praise you and lift your holy name up high
 * and to exalt you
 * with your people
@@ -46,6 +47,7 @@ I love coming into your house
 * for what you have done for us.
 
 We rejoice
+
 * because we have your precious Son
 * Jesus Christ our Lord
 * and we have him forever
@@ -53,6 +55,7 @@ We rejoice
 * and he is ours forever.
 
 We worship you now
+
 * and we will worship you
 * all the days of our lives.
 

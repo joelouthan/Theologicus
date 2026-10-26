@@ -55,7 +55,7 @@
 ### That means your old life is dead
 
 It is all of Romans 6.
- 
+
 * 1 - You don't get to sin all the more just because of grace
 * 2 - We are dead to sin
 * 3 - When we are baptized, we are baptized unto his death

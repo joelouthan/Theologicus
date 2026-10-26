@@ -47,6 +47,7 @@ Worthy is the Lamb
 </div>
 
 There is none like you
+
 * the Savior of my soul
 * the Love of my heart
 * the Giver of my salvation
@@ -59,4 +60,5 @@ There is none like you
 * the Love that steadfastly me so.
 
 I love you Lord
+
 * and I will forever praise your holy name.

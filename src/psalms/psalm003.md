@@ -37,6 +37,7 @@ My God,
 </div>
 
 In my finite perception, my circumstances would seem to say I am in despair. I feel that. I feel that onslaught. I feel that pressure.
+
 Many would say, ”Ah, your God has failed. Your God is not good. Your God does not deliver. Your God does not save.”
 
 They would be wrong on all accounts.
@@ -48,6 +49,7 @@ Your Son took all of my affliction and wrath and absorbed all the violence that 
 Salvation belongs to you, O Lord, for you are the mighty one to save.
 
 Be with me, Lord. I have no one else to turn to. You alone have the words to eternal life.
+
 By Your Son's beautiful name,
 
 Amen

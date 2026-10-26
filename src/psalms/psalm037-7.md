@@ -21,6 +21,7 @@ My One Rock
 </div>
 
 I examine my life
+
 * filled with despair
 * chaos
 * confusion
@@ -28,6 +29,7 @@ I examine my life
 * death.
 
 And your love
+
 * have pierced through it all
 * into my heart
 * and gave me life
@@ -46,6 +48,7 @@ And your love
 * when I was sin.
 
 Be my Rock of Ages
+
 * Be my source
 * Be the water to my thirst
 * nourishment to my hunger
@@ -53,6 +56,7 @@ Be my Rock of Ages
 * peace to my soul.
 
 I love you Lord
+
 * now and always
 
 Amen.

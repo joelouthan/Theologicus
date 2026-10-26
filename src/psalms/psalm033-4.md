@@ -20,6 +20,7 @@ The Absolute of All His Promises,
 </div>
 
 I remember when you fulfilled your word
+
 * in the gospel to Adam and Eve
 * in the promise to Noah and his family
 * in the covenant to Abraham
@@ -34,6 +35,7 @@ I remember when you fulfilled your word
 * in your ending with Malachi
 
 That you alone would
+
 * send a Savior
 * bring a Messiah
 * to crush the enemy
@@ -53,6 +55,7 @@ That you alone would
 * to pleasures forevermore
 
 That is Jesus Christ
+
 * the fulfiller of the law
 * the keeper of the promises
 * the worthy lamb that was slain
@@ -66,6 +69,7 @@ That is Jesus Christ
 * the love of my heart
 
 I am my Beloved
+
 and he is mine forever.
 
 Amen.

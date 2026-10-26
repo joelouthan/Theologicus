@@ -7,6 +7,7 @@
 ## The Text
 
 ## The Devotion
+
 ## Pray Then Like This
 
 >Matthew 6:13 And do not bring us into temptation, but deliver us from the evil one.
@@ -156,6 +157,7 @@ But has God was growing and maturing me to look more like his Son, the temptatio
 Never not once would I blame God for that. God was not tempted me. None of my sin is his fault. He was always with me. Never forsake me. Even spare my life over and over again and kept calling me to himself over and over again.
 
 ## The Prayer
+
 &nbsp;
 
 <div style="font-variant: small-caps;">

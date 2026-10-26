@@ -450,8 +450,11 @@ our Messiah
 our Servant  
 our Son of Man  
 our Predestiny
+
 our Calling
+
 our Justification
+
 our Glory  
 our Power  
 our Gospel  
@@ -506,6 +509,7 @@ exalt,
 proclaim,  
 honor,  
 dedicate,
+
 magnify,  
 lift up,   
 and love  
@@ -532,6 +536,7 @@ strength,
 mind,  
 heart,  
   will praise and bless your holy name
+
 forever
 
 Amen

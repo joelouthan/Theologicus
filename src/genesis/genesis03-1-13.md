@@ -49,6 +49,7 @@ Our counter to that: we are not good and we were born into sin. And from the sta
 Ah, easier said than done. Why is it so difficult to repent? Why can't we do so naturally?
 
 Let us get into the text and let us see God for who he really is.
+
 ### God is generous
 
 >3:1b He said to the woman, “Did God really say, ‘You can’t eat from any tree in the garden’?”

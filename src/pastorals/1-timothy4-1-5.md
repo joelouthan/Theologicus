@@ -54,6 +54,7 @@ Sounds insane, right? But most American Christians do it. I don't care what your
 >Romans 4:1-5 What then will we say that Abraham, our forefather according to the flesh, has found? If Abraham was justified by works, he has something to boast about—but not before God. For what does the Scripture say? Abraham believed God, and it was credited to him for righteousness. Now to the one who works, pay is not credited as a gift, but as something owed. But to the one who does not work, but believes on him who justifies the ungodly, his faith is credited for righteousness.
 
 In other words,...
+
 ### We do not put God in our debt
 
 And Paul is not even using that strong enough language.

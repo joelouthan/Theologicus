@@ -55,7 +55,6 @@ But a Christian nation American is not and cannot be? Why? The Bible never decla
 
 ><sup>2-4</sup> So then, the one who resists the authority is opposing God’s command, and those who oppose it will bring judgment on themselves. For rulers are not a terror to good conduct, but to bad. Do you want to be unafraid of the one in authority? Do what is good, and you will have its approval. For it is God’s servant for your good. But if you do wrong, be afraid, because it does not carry the sword for no reason. For it is God’s servant, an avenger that brings wrath on the one who does wrong. 
 
-
 ### Christ is King: Not To Obey Leaders is Bringing Judgment Upon Ourselves
 
 >Mark 10:42–43 Jesus called them over and said to them, “You know that those who are regarded as rulers of the Gentiles lord it over them, and those in high positions act as tyrants over them. But it is not so among you. On the contrary, whoever wants to become great among you will be your servant,

@@ -163,7 +163,9 @@ Read the following passage:
 Pop quiz: what is the gift of God to believers?
 
 A. Salvation
+
 B. Grace
+
 C. Faith
 
 Correct answer: D. All of the above.

@@ -124,7 +124,9 @@ God is going to resolved the problem of evil. And to say it correctly, because G
 God sent his only begotten Son--Jesus Christ our Lord.
 
 This is the decree of God: Jesus Christ His Son!
+
 ]
+
 Here are 
 
 ## What God Decrees: God Already Knew He was Going to Send His Son For Us
