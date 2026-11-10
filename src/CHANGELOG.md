@@ -4,13 +4,6 @@ All notable changes to this project will be documented in this file.
 
 The format is based on [Keep a Changelog](https://keepachangelog.com/en/1.0.0/), and this project adheres to [Semantic Versioning](https://semver.org/spec/v2.0.0.html).
 
-## 3.6.1 (2026 Nov 10) [Scriptural Index](scripture-index.md)
-
-- every Scripture reference across the book is collected into a single [Scripture Index](scripture-index.md), in canonical order, linking back to each page that cites it
-- generated with Obsidian + Claude and linked into mdBook via `SUMMARY.md`
-
-![Word Count](https://img.shields.io/badge/Word%20Count-711401-brightgreen)
-
 ## 3.6 (2025 Dec 13) [Christ Came to Save Sinners](doctrine-christ-saves/index.md)
 
 ![Word Count](https://img.shields.io/badge/Word%20Count-655875-brightgreen)
