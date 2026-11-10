@@ -5428,3 +5428,105 @@ Every passage of Scripture cited in this book, in canonical order, with the page
 - **Revelation 22:17** — [1680 An Orthodox Catechism: Being the Sum of Christian Religion, Contained in the Law and Gospel](catechism-1680/index.md) · [Mark 9:33-37 God Alone Receives All Who Would Come](mark/mark09-33-37.md)
 - **Revelation 22:20** — [index](confession-1689/index.md) · [Chapter 32 Of the Last Judgment](confession-1689/1689-32-0-index.md) · [32.3 The Quick & The Dead: Come Lord Jesus--Amen](confession-1689/1689-32-3-the-quick-and-the-dead-come-lord-jesus-amen.md) · [The Baptist Catechism 1693](catechism-1693/index.md) · [1680 An Orthodox Catechism: Being the Sum of Christian Religion, Contained in the Law and Gospel](catechism-1680/index.md) · [Praying Through: Psalm 150](psalms/psalm150.md) · [Mark 8:27-9:1](mark/mark08-27-9-1-sermon.md)
 - **Revelation 22:21** — [1689 Baptist Confession of Faith, Chapter 3.7 The Mercies of God](confession-1689/1689-03-7-the-mercies-of-God.md) · [The Baptist Catechism 1693](catechism-1693/index.md)
+
+## Coverage
+
+**810 of 1,189 chapters (68%)** are cited at least once. A chapter counts as cited if any reference touches it, even a single verse.
+
+### Never cited
+
+Ezra · Obadiah · Philemon · 2 John
+
+### Least covered
+
+| Book | Cited | Uncited chapters |
+| --- | --- | --- |
+| 2 Chronicles | 7/36 (19%) | 1–4, 8–12, 15–31, 34–36 |
+| 1 Chronicles | 7/29 (24%) | 1–15, 18–20, 23–26 |
+| Numbers | 10/36 (28%) | 1–5, 7–10, 13, 17–19, 22, 24–35 |
+| Joshua | 7/24 (29%) | 2–5, 8, 11–21, 23 |
+| Esther | 3/10 (30%) | 1–3, 6–9 |
+| Nehemiah | 4/13 (31%) | 1, 3–7, 10–12 |
+| 2 Kings | 8/25 (32%) | 1–2, 4, 6–7, 9, 11–17, 22–25 |
+| 2 Samuel | 8/24 (33%) | 2–6, 8, 10–11, 13–14, 16–20, 22 |
+| Joel | 1/3 (33%) | 1, 3 |
+| Amos | 3/9 (33%) | 1–4, 6–7 |
+
+### By book
+
+#### Old Testament
+
+| Book | Coverage | Cited | Pages | Uncited chapters |
+| --- | --- | --- | --- | --- |
+| Genesis | ▓▓▓▓▓▓▓▓▓▓ | 50/50 | 245 | ✓ all |
+| Exodus | ▓▓▓▓▓▓░░░░ | 22/40 | 51 | 1–2, 4–5, 9–11, 13, 18, 25–27, 30, 35–39 |
+| Leviticus | ▓▓▓▓▓▓▓░░░ | 18/27 | 27 | 3–4, 8, 12–15, 23, 27 |
+| Numbers | ▓▓▓░░░░░░░ | 10/36 | 19 | 1–5, 7–10, 13, 17–19, 22, 24–35 |
+| Deuteronomy | ▓▓▓▓▓▓▓░░░ | 24/34 | 57 | 1, 11, 13, 15–16, 19–20, 22, 31, 33 |
+| Joshua | ▓▓▓░░░░░░░ | 7/24 | 9 | 2–5, 8, 11–21, 23 |
+| Judges | ▓▓▓▓░░░░░░ | 9/21 | 7 | 3, 5, 7–12, 14–16, 18 |
+| Ruth | ▓▓▓▓▓▓▓▓▓▓ | 4/4 | 13 | ✓ all |
+| 1 Samuel | ▓▓▓▓░░░░░░ | 12/31 | 22 | 9–12, 14, 18–31 |
+| 2 Samuel | ▓▓▓░░░░░░░ | 8/24 | 27 | 2–6, 8, 10–11, 13–14, 16–20, 22 |
+| 1 Kings | ▓▓▓▓░░░░░░ | 9/22 | 14 | 2, 4–6, 9–16, 20 |
+| 2 Kings | ▓▓▓░░░░░░░ | 8/25 | 13 | 1–2, 4, 6–7, 9, 11–17, 22–25 |
+| 1 Chronicles | ▓▓░░░░░░░░ | 7/29 | 22 | 1–15, 18–20, 23–26 |
+| 2 Chronicles | ▓▓░░░░░░░░ | 7/36 | 10 | 1–4, 8–12, 15–31, 34–36 |
+| Ezra | ░░░░░░░░░░ | 0/10 | 0 | all |
+| Nehemiah | ▓▓▓░░░░░░░ | 4/13 | 12 | 1, 3–7, 10–12 |
+| Esther | ▓▓▓░░░░░░░ | 3/10 | 5 | 1–3, 6–9 |
+| Job | ▓▓▓▓▓░░░░░ | 23/42 | 34 | 3–6, 10, 12–13, 15–18, 20, 23, 27–30, 32–33 |
+| Psalms | ▓▓▓▓▓▓▓▓▓▓ | 150/150 | 535 | ✓ all |
+| Proverbs | ▓▓▓▓▓▓▓▓░░ | 25/31 | 46 | 5, 7, 10, 15, 17, 26 |
+| Ecclesiastes | ▓▓▓▓░░░░░░ | 5/12 | 32 | 2, 5–6, 8–11 |
+| Song of Solomon | ▓▓▓▓▓░░░░░ | 4/8 | 11 | 4, 6–8 |
+| Isaiah | ▓▓▓▓▓▓▓░░░ | 48/66 | 141 | 2–3, 15–23, 27, 30–31, 36, 47, 51–52 |
+| Jeremiah | ▓▓▓▓▓░░░░░ | 24/52 | 50 | 2, 6, 12, 15–16, 18–19, 21, 25–28, 34–35, 37–47, 49–50, 52 |
+| Lamentations | ▓▓▓▓▓▓░░░░ | 3/5 | 18 | 2, 4 |
+| Ezekiel | ▓▓▓▓▓▓▓▓░░ | 38/48 | 81 | 2, 4–6, 38, 40–42, 46–47 |
+| Daniel | ▓▓▓▓▓░░░░░ | 6/12 | 36 | 1, 5, 8, 10–12 |
+| Hosea | ▓▓▓▓░░░░░░ | 6/14 | 21 | 3, 5, 7–9, 11–12, 14 |
+| Joel | ▓▓▓░░░░░░░ | 1/3 | 6 | 1, 3 |
+| Amos | ▓▓▓░░░░░░░ | 3/9 | 6 | 1–4, 6–7 |
+| Obadiah | ░░░░░░░░░░ | 0/1 | 0 | all |
+| Jonah | ▓▓▓▓▓▓▓▓░░ | 3/4 | 4 | 1 |
+| Micah | ▓▓▓▓░░░░░░ | 3/7 | 9 | 1–4 |
+| Nahum | ▓▓▓░░░░░░░ | 1/3 | 4 | 2–3 |
+| Habakkuk | ▓▓▓░░░░░░░ | 1/3 | 8 | 1, 3 |
+| Zephaniah | ▓▓▓▓▓▓▓░░░ | 2/3 | 11 | 2 |
+| Haggai | ▓▓▓▓▓▓▓▓▓▓ | 2/2 | 1 | ✓ all |
+| Zechariah | ▓▓▓▓░░░░░░ | 5/14 | 11 | 1, 3–7, 10–11, 14 |
+| Malachi | ▓▓▓▓▓▓▓▓▓▓ | 4/4 | 15 | ✓ all |
+
+#### New Testament
+
+| Book | Coverage | Cited | Pages | Uncited chapters |
+| --- | --- | --- | --- | --- |
+| Matthew | ▓▓▓▓▓▓▓▓▓▓ | 28/28 | 528 | ✓ all |
+| Mark | ▓▓▓▓▓▓▓▓▓▓ | 16/16 | 195 | ✓ all |
+| Luke | ▓▓▓▓▓▓▓▓▓▓ | 24/24 | 188 | ✓ all |
+| John | ▓▓▓▓▓▓▓▓▓▓ | 20/21 | 334 | 2 |
+| Acts | ▓▓▓▓▓▓▓▓▓░ | 24/28 | 147 | 19, 21, 23, 25 |
+| Romans | ▓▓▓▓▓▓▓▓▓▓ | 16/16 | 385 | ✓ all |
+| 1 Corinthians | ▓▓▓▓▓▓▓▓▓▓ | 16/16 | 163 | ✓ all |
+| 2 Corinthians | ▓▓▓▓▓▓▓▓▓▓ | 13/13 | 137 | ✓ all |
+| Galatians | ▓▓▓▓▓▓▓▓▓▓ | 6/6 | 117 | ✓ all |
+| Ephesians | ▓▓▓▓▓▓▓▓▓▓ | 6/6 | 205 | ✓ all |
+| Philippians | ▓▓▓▓▓▓▓▓▓▓ | 4/4 | 68 | ✓ all |
+| Colossians | ▓▓▓▓▓▓▓▓▓▓ | 4/4 | 86 | ✓ all |
+| 1 Thessalonians | ▓▓▓▓▓▓▓▓▓▓ | 5/5 | 40 | ✓ all |
+| 2 Thessalonians | ▓▓▓▓▓▓▓▓▓▓ | 3/3 | 25 | ✓ all |
+| 1 Timothy | ▓▓▓▓▓▓▓▓▓▓ | 6/6 | 86 | ✓ all |
+| 2 Timothy | ▓▓▓▓▓▓▓▓▓▓ | 4/4 | 84 | ✓ all |
+| Titus | ▓▓▓▓▓▓▓▓▓▓ | 3/3 | 95 | ✓ all |
+| Philemon | ░░░░░░░░░░ | 0/1 | 0 | all |
+| Hebrews | ▓▓▓▓▓▓▓▓▓▓ | 13/13 | 184 | ✓ all |
+| James | ▓▓▓▓▓▓▓▓▓▓ | 5/5 | 74 | ✓ all |
+| 1 Peter | ▓▓▓▓▓▓▓▓▓▓ | 5/5 | 57 | ✓ all |
+| 2 Peter | ▓▓▓▓▓▓▓▓▓▓ | 3/3 | 41 | ✓ all |
+| 1 John | ▓▓▓▓▓▓▓▓▓▓ | 5/5 | 137 | ✓ all |
+| 2 John | ░░░░░░░░░░ | 0/1 | 0 | all |
+| 3 John | ▓▓▓▓▓▓▓▓▓▓ | 1/1 | 3 | ✓ all |
+| Jude | ▓▓▓▓▓▓▓▓▓▓ | 1/1 | 12 | ✓ all |
+| Revelation | ▓▓▓▓▓▓▓▓▓░ | 20/22 | 90 | 8, 16 |
+
