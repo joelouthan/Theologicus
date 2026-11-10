@@ -37,6 +37,7 @@ You Are My Strength
 </div>
 
 I will never forget
+
 * my deepest sins
 * my anguish
 * my torment
@@ -44,6 +45,7 @@ I will never forget
 * my own iniquity
 
 And you were so far
+
 * I thought I knew you
 * and I could not see your face
 * All that appeared to me
@@ -54,12 +56,14 @@ And you were so far
 * and wickedness.
 
 I did not knew you well enough
+
 * because your hand was always on my soul
 * your grace always surrounded me
 * your righteousness always clothed me
 * your peace was placed in my heart.
 
 My response
+
 * to your goodness
 * was the worst.
 * But when I was faithless
@@ -69,6 +73,7 @@ My response
 * over and over.
 
 You will never tire 
+
 * of rescuing me
 * I need your help
 * always I need you

@@ -55,12 +55,14 @@ Lord
 </div>
 
 I have cling mightily  
+
 * to my worthless idols  
 * to my wicked deeds  
 * to my selfish desires  
 * to my own righteousness
 
 And you  
+
 * you alone  
 * have rescued me  
 * from the pit I have dug  
@@ -69,6 +71,7 @@ And you
 * from the hell I have deserved
 
 In my little life  
+
 * be glorified  
 * I have nowhere else to turn  
 * you alone  

@@ -59,6 +59,7 @@ My Only Wonderfulness
 </div>
 
 You lifted up
+
 * and so far above
 * the infinite light
 * the eternal fire
@@ -68,6 +69,7 @@ You lifted up
 * and my worthless gods.
 
 You have saved me
+
 * now I get to obey you
 * now I get to walk in your ways
 * now I get to worship you
@@ -75,6 +77,7 @@ You have saved me
 * now I get to be with you forever.
 
 Be with my Lord
+
 * never leave me
 * never forsake me.
 

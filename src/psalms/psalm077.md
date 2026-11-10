@@ -63,12 +63,14 @@ Confidence
 Your promises are sure.
 
 You cannot reject me
+
 * you cannot withhold your grace from me
 * you cannot reject me
 * nor forsake me
 * you cannot stop loving me.
 
 Because you have promised
+
 * my acceptance
 * your grace
 * your calling
@@ -78,11 +80,13 @@ Because you have promised
 How do I know?
 
 Because I have your Son,
+
 * Jesus Christ
 * I always belong to my Beloved
 * and He is mine forever.
 
 Let me praise your holy name
+
 * let me worship you with everything in me
 * let me bless your wonderful name.
 

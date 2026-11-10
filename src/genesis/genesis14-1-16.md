@@ -51,6 +51,7 @@ Here is the gospel promise.
 ### God will rescue those whom he declares righteous
 
 **2 Peter 2:4-12** For if God didn’t spare the angels who sinned but cast them into hell and delivered them in chains of utter darkness to be kept for judgment; and if he didn’t spare the ancient world, but protected Noah, a preacher of righteousness, and seven others, when he brought the flood on the world of the ungodly; **and if he reduced the cities of Sodom and Gomorrah to ashes and condemned them to extinction, making them an example of what is coming to the ungodly; and if he rescued righteous Lot, distressed by the depraved behavior of the immoral (for as that righteous man lived among them day by day, his righteous soul was tormented by the lawless deeds he saw and heard)** — then the Lord knows how to rescue the godly from trials and to keep the unrighteous under punishment for the day of judgment, especially those who follow the polluting desires of the flesh and despise authority.
+
     Bold, arrogant people! They are not afraid to slander the glorious ones; however, angels, who are greater in might and power, do not bring a slanderous charge against them before the Lord. But these people, like irrational animals — creatures of instinct born to be caught and destroyed — slander what they do not understand, and in their destruction they too will be destroyed.
 
 *What one thing has Lot done that is righteous?*
@@ -96,34 +97,63 @@ It is God's kingdom that is right-side up.
 ### The nations foolishly rage war against God but God breaks and shatters them and gives them to his Son to be his inheritance, possession, and food stool forever
 
 **Psalms 2** Why do the nations rage
+
     and the peoples plot in vain?
+
     The kings of the earth take their stand,
+
     and the rulers conspire together
+
     against the LORD and his Anointed One:
+
     “Let’s tear off their chains
+
     and throw their ropes off of us.”
+
     The one enthroned in heaven laughs;
+
     The Lord ridicules them.
+
     **Then he speaks to them in his anger
+
     and terrifies them in his wrath:
+
     “I have installed my king
+
     on Zion, my holy mountain.”
+
     I will declare the LORD’s decree.
+
     He said to me, “You are my Son;
+
     today I have become your Father.
+
     Ask of me,
+
     and I will make the nations your inheritance
+
     and the ends of the earth your possession.
+
     You will break them with an iron scepter;
+
     you will shatter them like pottery.”**
+
     So now, kings, be wise;
+
     receive instruction, you judges of the earth.
+
     Serve the LORD with reverential awe
+
     and rejoice with trembling.
+
     Pay homage to the Son or he will be angry
+
     and you will perish in your rebellion,
+
     for his anger may ignite at any moment.
+
     *Look at this blessed gospel promise*
+
     All who take refuge in him are happy.
 
 **Ephesians 1:20-23** He exercised this power in Christ by raising him from the dead and seating him at his right hand in the heavens — far above every ruler and authority, power and dominion, and every title given, not only in this age but also in the one to come. And he subjected everything under his feet and appointed him as head over everything for the church, which is his body, the fullness of the one who fills all things in every way.
@@ -141,6 +171,7 @@ You did not reveal this to yourself but it is your Father in heaven that has rev
 ### All of the enemies have been conquered by the Worthy Lamb Who Was Slained
 
 **Revelation 19:1
+
 20:3** Then I saw heaven opened, and there was a white horse. Its rider is called Faithful and True, and with justice he judges and makes war. His eyes were like a fiery flame, and many crowns were on his head. He had a name written that no one knows except himself. He wore a robe dipped in blood, and his name is called the Word of God. The armies that were in heaven followed him on white horses, wearing pure white linen. A sharp sword came from his mouth, so that he might strike the nations with it. He will rule them with an iron rod. He will also trample the winepress of the fierce anger of God, the Almighty. And he has a name written on his robe and on his thigh: KING OF KINGS AND LORD OF LORDS.
 
 Then I saw an angel standing in the sun, and he called out in a loud voice, saying to all the birds flying high overhead, “Come, gather together for the great supper of God, so that you may eat the flesh of kings, the flesh of military commanders, the flesh of the mighty, the flesh of horses and of their riders, and the flesh of everyone, both free and slave, small and great.”
@@ -152,16 +183,25 @@ Then I saw an angel coming down from heaven holding the key to the abyss and a g
 ### We get to be with God forevermore
 
 **Revelation 21:3-8** Then I heard a loud voice from the throne: Look, God’s dwelling is with humanity, and he will live with them. They will be his peoples, and God himself will be with them and will be their God. He will wipe away every tear from their eyes. Death will be no more; grief, crying, and pain will be no more, because the previous things have passed away.
+
     Then the one seated on the throne said, “Look, I am making everything new.” He also said, “Write, because these words are faithful and true.” Then he said to me, “It is done! I am the Alpha and the Omega, the beginning and the end. I will freely give to the thirsty from the spring of the water of life. The one who conquers will inherit these things, and I will be his God, and he will be my son. But the cowards, faithless, detestable, murderers, sexually immoral, sorcerers, idolaters, and all liars — their share will be in the lake that burns with fire and sulfur, which is the second death.”
 
 **Psalms 17:15** But I will see your face in righteousness;
+
     when I awake, I will be satisfied with your presence.
 
 **Psalms 16:9-11** (ESV)
+
     Therefore my heart is glad, and my whole being rejoices;
+
     my flesh also dwells secure.
+
     For you will not abandon my soul to Sheol,
+
     or let your holy one see corruption.
+
     You make known to me the path of life;
+
     in your presence there is fullness of joy;
+
     at your right hand are pleasures forevermore.

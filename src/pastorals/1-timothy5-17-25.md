@@ -89,6 +89,7 @@ When you see sin, rebuke it. And I am not talking about social media. Be in a ch
 >5 Listen, my dear brothers and sisters: Didn’t God choose the poor in this world to be rich in faith and heirs of the kingdom that he has promised to those who love him? 6 Yet you have dishonored the poor. Don’t the rich oppress you and drag you into court? 7 Don’t they blaspheme the good name that was invoked over you?
 
 You know what favoritism is? It is two things:
+
 - fear of man over the fear of God, which is sin
 - not loving your neighbor as yourself, which is also sin
 

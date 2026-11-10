@@ -45,6 +45,7 @@ Righteous
 </div>
 
 When I joined the rest of the world  
+
 * to make war with you  
 * I sit tight  
 * under your mighty wraith  
@@ -53,6 +54,7 @@ When I joined the rest of the world
 * but wickedness and deceit towards you.
 
 What I could never foreknew  
+
 * is that before the mountains were formed  
 * and time and space were spoken into existence  
 * from everlasting to everlasting  
@@ -69,6 +71,7 @@ What I could never foreknew
 * forevermore.
 
 Do what you must  
+
 * to keep me close to you.
 * I never want to be apart from you  
 * because that is a hell  

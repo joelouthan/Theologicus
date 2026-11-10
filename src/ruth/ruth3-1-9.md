@@ -37,7 +37,7 @@
 - Christ is the Only One
 
 ## God
->
+
 ><sup>1</sup> Ruth’s mother-in-law Naomi said to her, “My daughter, shouldn’t I find rest for you, so that you will be taken care of?
 
 - Continuous work not sustainable
@@ -52,7 +52,6 @@
 >Psalm 16:11 You reveal the path of life to me;  
 >in your presence is abundant joy;  
 >at your right hand are eternal pleasures.
-
 
 <div style="page-break-after: always;"></div>
 >
@@ -93,7 +92,6 @@ Make no mistake--we are not to be idle. And yet, we do not have live in fear or 
 >
 > C.L. Bancroft. Before The Throne of God. 1863.
 
-
 <div style="page-break-after: always;"></div>
 >
 ><sup>4</sup> When he lies down, notice the place where he’s lying, go in and uncover his feet, and lie down. Then he will explain to you what you should do.”
@@ -131,7 +129,7 @@ For Christ to cover us: redemption from our sins.
 For Christ not to cover us: desolation because of our sins.
 
 ## The Gospel
->
+
 ><sup>5-6</sup> So Ruth said to her, “I will do everything you say.” She went down to the threshing floor and did everything her mother-in-law had charged her to do.
 
 ### God's Redeeming Work: Christ Gave Us Faith

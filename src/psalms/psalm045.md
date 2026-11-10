@@ -55,6 +55,7 @@ You Are My Bridegroom
 </div>
 
 And now
+
 * you are finished
 * my Lord
 * and now all the kingdoms
@@ -63,14 +64,17 @@ And now
 * belong to you alone.
 
 Yours is the kingdom
+
 * and you are exalted above all.
 
 Yours is the treasure
+
 * for you alone
 * are the rightful heir
 * to all of Creation.
 
 Be exalted, O God
+
 * I shall worship you
 * all of my days
 * there is none like you.

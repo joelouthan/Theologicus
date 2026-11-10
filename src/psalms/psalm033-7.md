@@ -18,20 +18,24 @@
 <div style="font-variant: small-caps;">God of the Cosmic</div>
 
 The galaxies fall right into the palm of your hand,
+
 * the universe are in your grasp
 * the stars are named by you
 * Jupiter is but a little toy to you
 * the sun is pinched between your finger and thumb
 
 We have been here for the length of the creation
+
 * and yet we do not know the depths of the oceans
 * we are powerless to gather up a ocean wave
 
 But you, my Lord,
+
 * gathered all the material plane
 * at your mere fingertips.
 
 And you alone, my Lord,
+
 * gathered my stony heart
 * tossed to the infinite east-west
 * Grabbed into your chest

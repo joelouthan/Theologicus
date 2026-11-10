@@ -20,6 +20,7 @@ My Living Word
 </div>
 
 Your Son has kept your statutes
+
 * He has saved me from my sin
 * You have given me your heart
 * The Spirit has dwells in me

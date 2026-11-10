@@ -18,32 +18,39 @@
 <div style="font-variant: small-caps;">My Dearest God</div>
 
 You were mindful of me,
+
 * before the foundations of the world
 * were formed by you.
 
 You did not merely saw,
+
 * but you knew me intimately
 * from the inside out.
 
 You knew that my heart
+
 * was desperately sick
 * filled with sin
 * and far from you.
 
 Yet, I was formed by your loving hands
+
 * inside my mother's womb.
 * You have been my Lord
 * since I have been at my mother's breast.
 
 I was a beast before you.
+
 * I defiled your holy name.
 * I made war with your throne.
 * I bastardized your saving grace.
 
 Nonetheless, you held me in your hands,
+
 * you alone rerouted my destiny.
 
 You've set your Son
+
 * to live
 * to die
 * to rise
@@ -55,6 +62,7 @@ You've set your Son
 * infinitely.
 
 Once I saw your glory
+
 * I would have been content
 * to be a day in your house
 * a post at your door
@@ -65,6 +73,7 @@ Once I saw your glory
 * you are God,
 
 But you were never content nor satisfied
+
 * unless I rest upon your chest
 * to rejoice in your glory
 * to dance in your joy
@@ -72,6 +81,7 @@ But you were never content nor satisfied
 * to live in your power.
 
 And so you brought me in,
+
 * gave me your Son's own robe
 * signet upon my finger
 * gospel upon my feet
@@ -82,6 +92,7 @@ And so you brought me in,
 * in your home.
 
 Because my God,
+
 * you are my home.
 * Where you lead me,
 * I will follow.

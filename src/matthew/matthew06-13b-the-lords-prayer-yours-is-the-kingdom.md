@@ -7,6 +7,7 @@
 ## The Text
 
 ## The Devotion
+
 ## Pray Then Like This
 
 >Matthew 6:13b (KJV) For thine is the kingdom, and the power, and the glory, for ever. Amen.

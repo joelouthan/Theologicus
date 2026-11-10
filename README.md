@@ -11,6 +11,7 @@ of my only, only Lord Jesus.
 
 ## releases
 
+- v3.6.1 (2026 Nov 10) [Scriptural Index](scripture-index.md)
 - v3.6 (2025 Dec 13) [Christ Came to Save Sinners](doctrine-christ-saves/index.html)
 - v3.5.1 (2025 May 16) Migrated "Resources" feature to [Bibliography](bibliography/index.md)
 - v3.5 (2025 Mar 5) [Praying Through Psalms](psalms/)
@@ -31,7 +32,7 @@ of my only, only Lord Jesus.
 
 ![Crates.io](https://img.shields.io/crates/v/mdbook)
 ![Crates.io](https://img.shields.io/crates/v/mdbook-toc)
-![Word Count](https://img.shields.io/badge/Word%20Count-663402-brightgreen)
+![Word Count](https://img.shields.io/badge/Word%20Count-711401-brightgreen)
 
 ## using
 

@@ -160,7 +160,9 @@
 - hard times and suffering are at hand
 - but the Almighty God will sovereignly bring us all the way home
 - and that path home is through none other than Christ alone
+
 - ---
+
 - **John 11:7–10** Then after that, he said to the disciples, “Let’s go to Judea again.”  “Rabbi,” the disciples told him, “just now the Jews tried to stone you, and you’re going there again?”  “Aren’t there twelve hours in a day?” **9 Jesus answered. “If anyone walks during the day, he doesn’t stumble, because he sees the light of this world.  But if anyone walks during the night, he does stumble, because the light is not in him.”**
 
 ### Christ is the path to life - Christ is Life
@@ -169,6 +171,7 @@
 - God has revealed that path
 - That path is Jesus Christ
 - Controversial but true
+
 > All paths lead to God
 > Yet only one path is protected by
 > the love and covenant blood
@@ -176,10 +179,13 @@
 > all other paths lead right into
 > the wrath of the Almighty Lord  Jesus Christ.
 >  - Sproul
+
 - What is the path? The path of life that only leads to abundant joy, pleasures evermore, and actual perfect satisfaction that is only in Christ Jesus **Psalm 17:15**
 - **1 John 1:6-8** **If we say, “We have fellowship with him,” and yet we walk in darkness, we are lying and are not practicing the truth. If we walk in the light as he himself is in the light, we have fellowship with one another, and the blood of Jesus his Son cleanses us from all sin.** If we say, “We have no sin,” we are deceiving ourselves, and the truth is not in us.
 - **Free offer of the gospel** - Christ has shone the light on the path
+
 - ---
+
 - **John 11:11–16** He said this, and then he told them, “Our friend Lazarus has fallen asleep, but I’m on my way to wake him up.”  Then the disciples said to him, “Lord, if he has fallen asleep, he will get well.”  Jesus, however, was speaking about his death, but they thought he was speaking about natural sleep.  So Jesus then told them plainly, 15 **“Lazarus has died.  I’m glad for you that I wasn’t there so that you may believe. But let’s go to him.”**  **Then Thomas (called “Twin”) said to his fellow disciples, “Let’s go too so that we may die with him.”**
 
 ### The Disciple Got "It" But Not All The Way
@@ -199,7 +205,9 @@
 - it is the unbreakable promise of God that he is conforming us to look like his Son
 - We are righteous and we will be righteous like his Son
 - all at the same time
+
 - ---
+
 - **John 11:17–27** When Jesus arrived, he found that Lazarus had already been in the tomb four days.  Bethany was near Jerusalem (less than two miles away).  Many of the Jews had come to Martha and Mary to comfort them about their brother.  As soon as Martha heard that Jesus was coming, she went to meet him, but Mary remained seated in the house.  **21 Then Martha said to Jesus, “Lord, if you had been here, my brother wouldn’t have died.  Yet even now I know that whatever you ask from God, God will give you.”  “Your brother will rise again,” Jesus told her.  Martha said to him, “I know that he will rise again in the resurrection at the last day.”  Jesus said to her, “I am the resurrection and the life. The one who believes in me, even if he dies, will live.  Everyone who lives and believes in me will never die. Do you believe this?”  “Yes, Lord,” she told him, “I believe you are the Messiah, the Son of God, who comes into the world.”**
 - **THE ONLY TAKEAWAY**: **I AM THE RESURRECTION AND THE LIFE. THE ONE WHO BELIEVES IN ME, EVEN IF HE DIES, WILL LIVE. AND EVERYONE WHO LIVES AND BELIEVES IN ME WILL NEVER DIE. DO YOU BELIEVE THIS? (JOHN 11:25-26)**
 

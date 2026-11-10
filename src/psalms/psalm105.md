@@ -109,12 +109,14 @@ Lord
 </div>
 
 I look upon your face  
+
 * I know that you are glorious  
 * and there is no end to your majesty  
 * and there is limit to your love  
 * for me.
 
 And from who you are  
+
 * you thought of me  
 * you loved me  
 * you made a promise to redeem me  
@@ -126,6 +128,7 @@ And from who you are
 * and you saved me.
 
 I will glorify your name  
+
 * in all of the earth.
 
 Amen.

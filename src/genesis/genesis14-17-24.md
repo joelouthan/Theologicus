@@ -20,6 +20,7 @@
 ><sup> 23 </sup> that I will not take a thread or sandal strap or anything that belongs to you, so you can never say, ‘I made Abram rich.’ 
 >
 ><sup> 24 </sup> I will take nothing except what the servants have eaten. But as for the share of the men who came with me—Aner, Eshcol, and Mamre—they can take their share.”
+
 ## Our God
 
 ### Who alone is our King of Righteousness?
@@ -129,7 +130,6 @@
 >
 >You are a priest forever  
 >according to the order of Melchizedek.
-
 
 #### This is unlike the Mormons claim
 

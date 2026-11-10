@@ -66,6 +66,7 @@ Look at God's heart towards us and some of the ways He is to His creation:
 Here's the good news: the good news of Christ brings us all the way home to the Father.
 
 Within the gospel, we must understand the truth that Jesus is the only way to fullness of life and eternal life.
+
 ### God loves us and in Christ alone, he is the only way to God
 
 >John 14:6-7 Jesus told him, “I am the way, the truth, and the life. No one comes to the Father except through me. If you know me, you will also know my Father. From now on you do know him and have seen him.”

@@ -84,4 +84,3 @@ God is the one who loved you first. God is the one who will bring you home. Chri
 Sanctification seems slow. Sin keeps creeping up. You are drowning in addiction and compulsion and passion. Look upon the Christ and be saved!
 
 >John 3:14-17 “Just as Moses lifted up the snake in the wilderness, so the Son of Man must be lifted up, so that everyone who believes in him may have eternal life. For God loved the world in this way: He gave his one and only Son, so that everyone who believes in him will not perish but have eternal life. For God did not send his Son into the world to condemn the world, but to save the world through him.
- 

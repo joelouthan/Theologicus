@@ -14,7 +14,6 @@
 
 **Those who do actually profess repentance towards God, faith in, and obedience to, our Lord Jesus Christ, are the only proper subjects of this ordinance.**
 
-
 ## The Confession
 
 >Mark 16:16 Whoever believes and is baptized will be saved, but whoever does not believe will be condemned.

@@ -45,11 +45,13 @@ Home
 </div>
 
 You are my joy
+
 * my haven
 * my safe place
 * my comfort in my desperate time of need.
 
 You are the only place
+
 * I can go to
 * when I am hurt
 * lonely
@@ -63,4 +65,5 @@ You are the only place
 * all the days of my life.
 
 You are my great God in heaven
+
 * I will forever praise your holy name.

@@ -41,6 +41,7 @@ You Are My Goodness
 </div>
 
 The worst
+
 * has absolutely befallen me
 * I have already tasted death
 * I have already lost everything
@@ -48,6 +49,7 @@ The worst
 * I have nothing
 
 But you appeared
+
 * and rescued me
 * one million and one times over
 * and you will forever do it again
@@ -57,11 +59,13 @@ But you appeared
 * all of my days.
 
 If I have you
+
 * and nothing on this earth
 * then I have everything
 * because nothing compares to you.
 
 Because you have sent your Son
+
 * for my sake
 * you have given me everything
 * and heaven and earth

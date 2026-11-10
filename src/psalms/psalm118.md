@@ -77,6 +77,7 @@ Lord
 </div>
 
 You alone are good  
+
 * lovely  
 * and pure  
 * fairest of all  

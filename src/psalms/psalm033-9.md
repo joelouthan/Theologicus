@@ -18,6 +18,7 @@
 <div style="font-variant: small-caps;">Lover of my soul</div>
 
 You are the only being
+
 * when you speak
 * things actually happen
 * When you promise
@@ -30,6 +31,7 @@ You are the only being
 All of your promises are yes and amen.
 
 So when I hear your voice,
+
 * when you beckon me from the depths of hades
 * when you spoke a new identity in me
 * when you called my name
@@ -38,6 +40,7 @@ So when I hear your voice,
 I was yours from the moment on.
 
 I have tried to flee
+
 * into my own sins
 * and back into hell.
 * But you are forever my rescuer
@@ -45,6 +48,7 @@ I have tried to flee
 * and deliverer.
 
 You have spoken my name
+
 * That means I am yours.
 * And that is unbreakable
 * and perfect.

@@ -43,13 +43,19 @@ You have helped me in the past and this time I still need you.
 I have dismissed all the lies around me.
 
 I still need you.
+
 I still need your love.
+
 I still need your mercy.
+
 I still need your grace.
 
 Give me your hand.
+
 I need to feel your embrace.
+
 I need to feel your warmth.
+
 I know you are always with me.
 
 Right now, I will lay in peace.

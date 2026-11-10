@@ -7,6 +7,7 @@
 ## The Text
 
 ## The Devotion
+
 ## Pray Then Like This
 
 >Matthew 6:9 Therefore, you should pray like this

@@ -57,22 +57,26 @@ And this I know, You have declared Your sweets words to be true (Psalm 119). You
 How can I begin to describe the feeling when your sweet words falls upon my ears, eyes, mind and heart?
 
 Psalm 19:7–10  
+
 * The instruction of the LORD is perfect,  
 * renewing one’s life;  
 * the testimony of the LORD is trustworthy,  
 * making the inexperienced wise.  
 
 The precepts of the LORD are right,  
+
 * making the heart glad;  
 * the command of the LORD is radiant,  
 * making the eyes light up.  
 
 The fear of the LORD is pure,  
+
 * enduring forever;  
 * the ordinances of the LORD are reliable  
 * and altogether righteous.  
 
 They are more desirable than gold—  
+
 * than an abundance of pure gold;  
 * and sweeter than honey  
 * dripping from a honeycomb.
@@ -101,7 +105,7 @@ I thank you for giving me strength.
 Thank you my Father God.  
 Thank you my Christ Jesus.  
 Thank you my Holy Spirit.  
-  
+
 You judged me faithful.  
 You appointed to Your service.  
 Despite my dishonoring and blaspheming,   
@@ -110,7 +114,7 @@ despite my persecution and hatred,
  of those who love you,  
 despite my perverted and violent opposition,  
  towards you,  
-  
+
 Still  
 I only received mercy  
 because I was lost  
@@ -122,7 +126,7 @@ I was ignorant
 I was evil  
 I was dead  
 and I was not looking and could not look for you whatsoever.  
-  
+
 But Your beautiful, sweet and tender   
 love, mercy and grace  
 overflowed for me  
@@ -135,7 +139,7 @@ that can only be by You,
 for You,   
 through You,  
 my Christ Jesus my Lord my Savior.  
-  
+
 These words  
 out of my heart  
 are true  
@@ -143,7 +147,7 @@ and with all of my hope and dreams
 and desires and wishes  
 I pray  
 that these words would be sweet to your ears.  
-  
+
 I know  
 that you came in this world  
 to rescue your people  
@@ -159,7 +163,7 @@ I am the foremost
 I am their chief  
 I am their victor  
 I am their champion of those who would face Your terrifying wrath!  
-  
+
 Yet,  
 in this reason  
 that Your grace abounds all the more  
@@ -169,12 +173,12 @@ that You
 my Lord and Savior  
 Jesus Christ  
 might display   
-  
+
 Your perfection, beauty, tenderness, quickness,  
 Your love, mercy, grace, patience  
 for all of those who You call Yours  
 and those would believe upon Your holy name for life forever.  
-  
+
 This is why I will sing  
 to the God of the everlasting to the everlasting  
 the Triune  
@@ -235,7 +239,7 @@ the Lord of all lords
 the Commander  
 the Ruler above all  
 the Name above all Names  
-  
+
 my Holiness  
 my Righteousness  
 my Justice  
@@ -258,11 +262,11 @@ my Beloved
 my Joy  
 my Song  
 my Love  
-  
+
 my Jesus Christ, King, Lord, Savior and Messiah  
 my Father, my Father, my Abba, my heart  
 my Holy Spirit, my comfort, my peace, my gift, my breath.  
-  
+
  So I will be so very careful to  
 worship,  
 sing,  
@@ -274,7 +278,7 @@ honor,
 dedicate,  
 and love   
 You alone.  
-  
+
 I pray this desperately and joyfully,  
  in the beautiful,   
 sweet,   
@@ -284,7 +288,7 @@ loveliest,
 most worthy,  
 dearest name of  
 Your Son.  
-  
+
 His name is  
 the Lord Jesus Christ.  
 

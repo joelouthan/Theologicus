@@ -23,4 +23,3 @@
 {{#include ../bibliography/biblio-sources.md}}
 
 {{#include ../bibliography/biblio-cmt.md}}
-

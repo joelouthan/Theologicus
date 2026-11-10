@@ -97,7 +97,6 @@ Which the plan was revealed all the way in revealing his Son, Jesus Christ. Turn
 
 The promise is this: Christ will save us from our sins forever.
 
-
 ### God Saves By His Will Alone: and the nature of the covenant of grace
 
 >Jeremiah 32:40 “I will make a permanent covenant with them: I will never turn away from doing good to them, and I will put fear of me in their hearts so they will never again turn away from me.

@@ -544,7 +544,6 @@ This is the rest that Christ has given to his people. We never have to earn his 
 
 >Psalm 103
 
->
 ><sup>1</sup> My soul, bless the LORD, and all that is within me, bless his holy name. 
 >
 ><sup>2</sup> My soul, bless the LORD, and do not forget all his benefits. 

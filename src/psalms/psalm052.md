@@ -39,15 +39,18 @@ You Are My Faithful Love
 </div>
 
 Everything that I have
+
 * And all that I got
 * It is in you.
 
 I have nowhere else to go
+
 * And no one else to turn to
 * You are my righteousness
 * In you, I will trust.
 
 I will bless your name forever 
+
 * I will worship your name on high
 * I will proclaim your word to everyone
 * I will preach your gospel to the end

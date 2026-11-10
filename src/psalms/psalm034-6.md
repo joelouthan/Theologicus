@@ -21,12 +21,14 @@ My everything
 </div>
 
 I lack.
+
 * I am weak.
 * I have nothing.
 * I am poor.
 * I am dead.
 
 Whatever I have is from you.
+
 * This roof upon my head.
 * Clothes on my back.
 * My warm bed.
@@ -38,6 +40,7 @@ Whatever I have is from you.
 All of it comes from you alone.
 
 But I have everything.
+
 * I am wealthy beyond measure.
 * I am strong.
 * I am the richest.
@@ -58,6 +61,7 @@ He is my beloved
 And I am his.
 
 Keep me close to you.
+
 * Do not let me go.
 * Do what you must
 * to keep me with you.

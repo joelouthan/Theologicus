@@ -1,4 +1,4 @@
-<img class="intro-right" src="../images/logo-theologicus.png">
+<img class="intro-right" src="images/logo-theologicus.png">
 
 <p style="font-size: 2em; margin-bottom: 0px "><strong><a class="header" href="#theologicus-some-expository-thoughts">Theologicus: Some Expository Thoughts</a></strong></p>
 
@@ -9,6 +9,7 @@
 >Psalm 17:15 But I will see your face in righteousness; when I awake, I will be satisfied with your presence.
 
 Corem Deo. I will live before the face of my God. And I know that one day, I will behold my God.
+
 ## The Introduction
 
 Once upon a time, my kids were curious about the books in my office and asked, "Papa, what are all these books about?" I told them, "Mostly, they all say the same thing--that Jesus loves me, this I know, for the Bible tells me so." 

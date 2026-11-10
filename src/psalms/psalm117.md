@@ -23,6 +23,7 @@ Lord
 </div>
 
 For all of my life  
+
 * and all of my days  
 * I will sing of your praises  
 * for you alone have been so good to me  
@@ -30,6 +31,7 @@ For all of my life
 * and you alone have saved me from my wickedness.
 
 For all that is in me  
+
 * I will bless your glorious name  
 * forevermore.
 

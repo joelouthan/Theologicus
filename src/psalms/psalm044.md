@@ -73,22 +73,26 @@ You Are My King
 </div>
 
 Before Christ
+
 * I was without strength
 * I would succumb to the enemy
 * day and night.
 
 Before Christ
+
 * I was without glory
 * I would lose all of my battles
 * and torn to pieces.
 
 Before Christ
+
 * I was filled with sin
 * my consequences
 * and my enemies
 * would have surely put me to death.
 
 But Christ
+
 * stepped in
 * rescued me
 * clothed me
@@ -99,6 +103,7 @@ But Christ
 * everlasting love.
 
 Dear God,
+
 * Let me have your Son
 * as my friend
 * my beloved

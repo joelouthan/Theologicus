@@ -7,6 +7,7 @@
 ## The Text
 
 ## The Devotion
+
 ## Pray Then Like This
 
 >Matthew 6:12 and forgive us our debts,  

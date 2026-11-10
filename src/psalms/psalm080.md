@@ -61,6 +61,7 @@ Restorer
 Save me, O God!
 
 If you do not save me, I will perish  
+
 * For I will die in my iniquity  
 * I will be crushed for my wickedness.
 
@@ -71,14 +72,17 @@ You know I am weak and frail
 You know I cannot turn to you apart from you
 
 You are the only God and there is none beside you  
+
 * and you are the God of grace
 * you are the God of mercy
 * you are the God of steadfast love
 
 Apart from You  
+
 * I will not be saved.
 
 Save me  
+
 * from my sins  
 * from my fallen  
 * from my own life  

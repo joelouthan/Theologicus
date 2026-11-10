@@ -55,23 +55,27 @@ Eternity
 </div>
 
 What is my life, Lord
+
 * that you were so sweet to me
 * that you were so tender
 * that you thought of me
 * and preserved me?
 
 How many times
+
 * should have perished in my own sin
 * should have been destroyed by sin
 * should have been wiped because of others' sin?
 
 I cannot count that high
+
 * my mind cannot comprehend
 * my life is always at risk
 * I shall lose to my life
 * at a mere whim
 
 Once more
+
 * the times I should have died
 * and I shall descend into your just wrath
 * and into the torments of hell
@@ -83,10 +87,12 @@ Once more
 * and my evils.
 
 Why did you spare me?
+
 * Why are you so caring?
 * Why do you love me so?
 
 You took pity upon me
+
 * and you knew I was made from dust
 * and you spared me
 * Moreso, you lifted me up
@@ -95,6 +101,7 @@ You took pity upon me
 * and you gave me everything.
 
 I cannot begin to answer any of these questions
+
 * but I will worship you for all of my days
 * because you are my Lord and my God forever.
 

@@ -93,14 +93,18 @@ that these words would be sweet to your ears.
 I know  
 that you came in this world  
 to save sinners
+
 to rescue your people  
 to pull them out of despair  
 to give your people life  
 to save them from their sins  
 to bring them to you  
 evil
+
 ungodly
+
 worthless
+
 at war with you  
 All of us  
 And I lead this group.  

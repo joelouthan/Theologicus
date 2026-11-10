@@ -37,11 +37,13 @@ My Rightly and Only Divine
 </div>
 
 You, O Lord, are high
+
 * above all the earth
 * you are exalted
 * far above all other gods.
 
 All of the idols that I have worshiped for all of my life
+
 * I place them into your presence
 * so you will break their hands
 * and snap their necks
@@ -49,6 +51,7 @@ All of the idols that I have worshiped for all of my life
 * to kill them all off.
 
 Moreso, I repent of all the times
+
 * I was a god
 * that I made it about me
 * and my needs and desires.
@@ -58,6 +61,7 @@ Moreso, I repent of all the times
 * I would die and fall like any other idol.
 
 I love you, Lord, and all that is in me
+
 * I will bless your holy name forever.
 
 Amen

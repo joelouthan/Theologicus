@@ -34,7 +34,6 @@
 
 ## The Prayer
 
-
 If I cry out for you, will you answer me?
 
 If you alone made the provisions and the sacrifices, will you save me?

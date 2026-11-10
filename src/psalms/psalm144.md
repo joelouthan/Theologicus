@@ -51,11 +51,13 @@ My Only Faithful Love,
 </div>
 
 Just you
+
 * you are my God
 * my very best Friend
 * my one true Love
 
 Keeping saving me
+
 * bring me all the way home
 * so I can reach up 
 * and hold your precious face

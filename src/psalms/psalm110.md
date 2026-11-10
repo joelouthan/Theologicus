@@ -35,6 +35,7 @@ Lord
 </div>
 
 I was a long rejector
+
 * of your great gospel
 * a treason traitor
 * of your great rule
@@ -44,6 +45,7 @@ I was a long rejector
 * of your great holiness.
 
 But you have conquered
+
 * my greatest and only enemy
 * my own sin
 * and have put my sin to open shame
@@ -55,6 +57,7 @@ But you have conquered
 * so I might live to you forever.
 
 Be glorified
+
 * in my life
 * today.
 

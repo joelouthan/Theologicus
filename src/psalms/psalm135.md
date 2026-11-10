@@ -61,6 +61,7 @@ Completely Sovereign God,
 </div>
 
 Look at what you have done!
+
 * you have chosen us
 * to be your beloved
 * treasured possession
@@ -71,11 +72,13 @@ Look at what you have done!
 * and you would be our great God in heaven.
 
 You have saved us
+
 * from the bondage of sin
 * from the destruction of death
 * from the disease of wickedness and shame.
 
 And we know this
+
 * because you sent your only begotten Son
 * Jesus Christ
 * to live and die for us
@@ -84,9 +87,11 @@ And we know this
 * forevermore.
 
 We shall praise you
+
 * all of our days.
 
 We love you
+
 * you are our Father in heaven.
 
 Amen.

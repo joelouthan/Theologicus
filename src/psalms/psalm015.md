@@ -31,6 +31,7 @@ O Lord,
 </div>
 
 How could I possibly worship you?
+
 * I am not worthy to commune with you
 * and even be with you
 * I sin even now
@@ -38,6 +39,7 @@ How could I possibly worship you?
 * My soul wanders
 
 Yet, you, O God, are not far from me
+
 * When I am in the wilderness,
 * you are closer than a whisper
 * When I have fallen
@@ -49,9 +51,11 @@ Yet, you, O God, are not far from me
 * and die in my place for my sins
 
 Worthiness is not a feeling
+
 * Worthiness is an absolute truth
 
 You have justified me
+
 * because I trust your Son
 * You have given me your Son’s righteousness
 * because He received my sin
@@ -61,13 +65,16 @@ You have justified me
 * because of the infinite worth of your Son
 
 I am my Beloved’s 
+
 * and He is mine Forevermore
 
 Let me worship you 
+
 * Let my life be marked in praise to Your holy name 
 * Let my very breath be a sweet sound in your ears
 
 I love you, God
 
 In name of Your mighty Son, I pray
+
 Amen

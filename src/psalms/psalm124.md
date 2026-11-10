@@ -37,10 +37,12 @@ My Savior
 </div>
 
 If I did not have you
+
 * I would have perished
 * in everlasting hell.
 
 Yet you loved me
+
 * so much
 * you gave me your Son
 * so I lift my eyes

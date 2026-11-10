@@ -193,7 +193,7 @@ Upside-down compared to mankind. Wrong way compared to our notions and good inte
 You want upside down? Try this on for size, taken from Luke 3:
 
 Noah begat Shem begat Arphaxad begat Cainan begat Shelah begat Eber begat Peleg begat Reu begat Serug begat Nahor begat Terah begat a wealthy landowner and shepherd named Abram. 
->
+
 ><sup> 29 </sup> Abram and Nahor took wives: Abram’s wife was named Sarai, and Nahor’s wife was named Milcah. She was the daughter of Haran, the father of both Milcah and Iscah. 
 >
 ><sup> 30 </sup> Sarai was unable to conceive; she did not have a child. 

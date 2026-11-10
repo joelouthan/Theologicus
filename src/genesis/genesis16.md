@@ -101,6 +101,7 @@
 >and my innermost being was wounded,  
 >I was stupid and didn’t understand;  
 >I was an unthinking animal, *a beast*, toward you.
+
 ### Yet it is God who sees us not as righteous and good but as wicked and sinners and he saves us
 
 >**13** So she named the Lord who spoke to her: “You are El-roi,” for she said, “In this place, have I actually seen the one who sees me?”

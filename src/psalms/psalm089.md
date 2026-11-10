@@ -125,6 +125,7 @@ Security
 </div>
 
 I know that
+
 * you are my eternity to eternity
 * the steadfast love that has always been there
 * you have created time and space and material
@@ -133,12 +134,14 @@ I know that
 * you have created physics
 
 You have created thought
+
 * the will, the heart, the emotion
 * the power, the bend, the direction
 * the start of study, science, knowledge, and wisdom
 * you have created philosophy
 
 Yet, you have begotten your Son
+
 * who was from eternity to eternity
 * who loved me before creation
 * who saw my wickedness and sin
@@ -149,12 +152,14 @@ Yet, you have begotten your Son
 * and be with you forever.
 
 It is not that I have kept you
+
 * because I have ran away a million times
 * sinned against you a trillion times more
 * warred against you with every fiber of my being
 * and would soon descend into hell then to see you.
 
 But you have kept me
+
 * from before the beginning
 * through creation
 * through the fall of my parents
@@ -167,6 +172,7 @@ But you have kept me
 * you have kept me close to your bosom.
 
 Keep me everlasting to everlasting
+
 * from reach of your hand
 * to the depths of your heart
 * keep me always in your love.

@@ -7,6 +7,7 @@
 ## The Text
 
 ## The Devotion
+
 ## Pray Then Like This
 
 >Matthew 6:9b Our Father in heaven
@@ -143,4 +144,5 @@ Why did You save me? I have not a clue. I did nothing to deserve Your gracious a
 All I know is that I was once lost, now found; once blind, now I can see; once dead; now fully alive in You. All because of what You have done.
 
 I love You, my God.
+
 ```

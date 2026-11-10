@@ -47,6 +47,7 @@ Savior of All
 </div>
 
 I will guard my mouth
+
 * and my heart
 * to not speak ill
 * of those who are in abundance
@@ -54,16 +55,19 @@ I will guard my mouth
 * and live as there is no God
 
 I pray for them
+
 * that you quickly save them
 * as I pray this prayer
 * and say these words
 
 O Lord,
+
 * I need you to be gracious to me
 * heal my broken heart
 * for I continuously sin against you
 
 I went about my days
+
 * being worthless and foolish
 * disobedient to all of your law
 * deceived by the prince of the air
@@ -74,6 +78,7 @@ I went about my days
 * and hating one another
 
 But when you appeared to me
+
 * on that rainy Monday afternoon
 * when I just sinned against you
 * you saved me
@@ -86,6 +91,7 @@ But when you appeared to me
 * to whom there is no end
 
 I bath in your Spirit
+
 * because your Son spoken and gave me Him
 * and now I am a wicked sinner
 * justified by Your grace

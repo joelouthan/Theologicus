@@ -20,6 +20,7 @@ My Only Comfort in Life
 </div>
 
 I will never forget
+
 * the darkness enveloping me
 * my emotions drained out of me
 * I no longer desired life
@@ -28,6 +29,7 @@ I will never forget
 * and I wanted to die.
 
 The deepest despair
+
 * and the darkest night
 * and the most chaotic state
 * and the madness that ensues
@@ -41,6 +43,7 @@ The deepest despair
 * to reach out and ask for help.
 
 But you
+
 * instilled one truth
 * I am lead by your Spirit
 * because you adopted me as your son
@@ -48,6 +51,7 @@ But you
 * and I am no longer in fear
 
 But you
+
 * bear witness with my spirit
 * the spirit you gave me
 * and the life you gave me
@@ -55,10 +59,12 @@ But you
 * and you are mine
 
 And you
+
 * have given me everything
 * because you gave me your precious Son.
 
 I might suffer for a little
+
 * and I cry in despair
 * and my tears flood my pillow
 * but your joy always comes in the morning

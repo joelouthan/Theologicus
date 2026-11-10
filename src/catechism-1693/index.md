@@ -235,6 +235,7 @@ The preface to the ten commandments is in these words; I am the Lord your God wh
 ### Question 49 What does the preface to the ten commandments teach us? 
 
 The preface to the ten commandments teaches us that because God is the Lord, and our God and redeemer, therefore we are bound to keep all his commandments. 
+
 (Luke 1:74, 75; 1 Pet. 1:15-19)
 
 ## Lord's Day 16
@@ -364,6 +365,7 @@ The seventh commandment requires the preservation of our own and our neighbors c
 ### Question 77 What is forbidden in the seventh commandment? 
 
 The seventh commandment forbids all unchaste thoughts, words, and actions. 
+
 (Mt. 15:19, 5:28; Eph. 5:3, 4)
 
 ## Lord's Day 23

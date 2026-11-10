@@ -283,7 +283,7 @@ And here is the love of God for you and me:
 “But the tax collector, standing far off, would not even raise his eyes to heaven but kept striking his chest and saying, **‘God, have mercy on me, a sinner! ’**
 
 - Look at what Christ declares
-  
+
 > I tell you, this one went down to his house justified rather than the other, because everyone who exalts himself will be humbled, but the one who humbles himself will be exalted.”
 
 - This the gospel message of Christ

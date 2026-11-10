@@ -49,28 +49,33 @@ You Are My Dwelling
 </div>
 
 I have been surrounded
+
 * by all iniquity
 * temptation waits for me
 * sin is drawing ever so closely.
 
 The demons seek
+
 * and wait for my moments of weakness
 * which I am continuously frail
 * surely I will be devoured.
 
 Satan attempts one last time
+
 * to destroy your son
 * to crush me
 * with the weight of my own sin
 * surely I will be buried.
 
 But you have appeared
+
 * not just one time rescuer
 * but the all-time destroyer of evil
 * the everlasting protector
 * the risen conquerer.
 
 When I have fallen
+
 * you have lifted my head
 * when I am faithless
 * you have been faithful
@@ -78,6 +83,7 @@ When I have fallen
 * you are the Almighty God.
 
 I will give you praise
+
 * for all of my days
 * because you alone
 * are worthy of my praise.

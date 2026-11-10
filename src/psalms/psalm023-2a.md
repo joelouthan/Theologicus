@@ -22,10 +22,12 @@ My Lord
 You are the Prince of Peace. 
 
 Where you are,
+
 * there I find satisfaction of my wearied soul 
 * and find perfect peace where I can truly rest.
 
 Apart from you, 
+
 * I die and I perish. 
 * Away from you, 
 * I am only tormented by confusion and despair. 
@@ -36,6 +38,7 @@ Apart from you,
 * and by everything around me.
 
 But you, O Lord, 
+
 * call me to enter 
 * through you and abide in you. 
 * Once I am in your good graces, 
@@ -53,6 +56,7 @@ But you, O Lord,
 * that is the Rock of Ages.
 
 Once more, 
+
 * you are the truth. 
 * While my heart strays 
 * and wanders from you, 
@@ -63,10 +67,13 @@ Once more,
 * I have nowhere else to go but to come home with you.
 
 I thank you 
+
 * for healing my broken heart and mind. 
 
 I thank you 
+
 * for opening my eyes, ears, and mouth of your glory and goodness. 
 
 I thank you 
+
 * for giving me strength for you are Christ Jesus my Lord forever.

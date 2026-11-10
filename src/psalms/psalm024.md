@@ -39,10 +39,12 @@
 <div style="font-variant: small-caps;">My Ascended God</div>
 
 All of Creation is yours.
+
 * It belongs to you,
 * And you rule overall.
 
 Yet, despite my own wickedness,
+
 * and corruption
 * you sought me.
 * You would even descend to become man.
@@ -50,15 +52,18 @@ Yet, despite my own wickedness,
 * you would be my righteousness.
 
 You are the Worthy Lamb who was slain.
+
 * Only you, my Lord, can open the gates of heaven.
 * Only you, Jesus, can set the captives free.
 * Only you, my Redeemer, saved a sinner like me.
 
 I will worship you alone
+
 * for salvation belongs to you alone
 * for you are the mighty one who saves.
 
 Who are you, my Lord?
+
 * You are the King of glory
 * Forevermore.
 

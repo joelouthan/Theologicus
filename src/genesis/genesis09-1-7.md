@@ -58,7 +58,7 @@ Here is the simple definition of the covenant: you and I have our parts to do in
 When God makes a covenant, he is always going to hold up his end of the bargain. The commands he gives within the covenant--well, we are going to fail. And listen to be carefully: these are still commands but these then become blessings if you fulfill them or curses if you deny them.
 
 ## God
- 
+
 ><sup> 1 </sup> God blessed Noah and his sons and said to them, “Be fruitful and multiply and fill the earth.
 
 ### The Love of God has blessed us to do his will

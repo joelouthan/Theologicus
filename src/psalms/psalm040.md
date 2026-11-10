@@ -55,10 +55,12 @@ My Lord of All
 </div>
 
 You called upon me
+
 * and I am your servant
 * and I heard your voice
 
 I will wait upon you
+
 * to give me the command
 * to preaching your good news
 * to the lost
@@ -68,6 +70,7 @@ I will wait upon you
 * the prisoner
 
 I have waited for years
+
 * and I will wait
 * until you shower me with grace
 * until you fill me with your Spirit
@@ -84,6 +87,7 @@ I have waited for years
 * and draw everyone to you
 
 So until that faithful day
+
 * when you judged me faithful
 * and appointed to your service
 * I will sit still
@@ -93,6 +97,7 @@ So until that faithful day
 * I will rejoice and be glad in you
 
 I will praise your holy name
+
 * forever and ever
 
 Amen

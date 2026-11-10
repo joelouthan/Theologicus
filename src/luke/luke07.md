@@ -87,5 +87,4 @@ How does God respond to our cries?
 
 As believers, what is the first thing we must do?
 
-
 >2 Corinthians 5:21  He made the one who did not know sin to be sin for us, so that in him we might become the righteousness of God.

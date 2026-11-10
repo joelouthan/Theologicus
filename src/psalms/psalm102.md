@@ -77,6 +77,7 @@ Forever
 </div>
 
 My wars
+
 * I rage against you
 * I have trespasses against you
 * I have sin mightily against you
@@ -84,12 +85,14 @@ My wars
 * I have thought, "I can sin but there is no God and he does not care."
 
 But you looked upon me
+
 * my foolishness
 * my iniquity
 * my rebellion
 * and did the only thing that you are capable of.
 
 You saved me
+
 * you spared my life
 * you revealed your Son
 * and you gave me your heart
@@ -102,6 +105,7 @@ You saved me
 * and love.
 
 And you do it everyday
+
 * now until forever
 * because I am yours
 * you are mine

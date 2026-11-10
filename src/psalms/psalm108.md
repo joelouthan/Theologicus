@@ -47,12 +47,14 @@ Lord
 </div>
 
 I faced my absolute enemies  
+
 * they are crouching  
 * waiting for me to slip and fall  
 * so that they can pounce  
 * and devour my heart and soul  
 
 And I have fallen  
+
 * a million times  
 * this week  
 * this day  
@@ -62,6 +64,7 @@ And I have fallen
 * they chew on my bones  
 
 But all that I know  
+
 * is that your Son  
 * bled and died for me  
 * and has put these dogs  
@@ -70,6 +73,7 @@ But all that I know
 * and I am safe  
 
 No matter what evil befalls me  
+
 * I will sing praises to your name  
 * O Lord  
 * because you alone are worthy  

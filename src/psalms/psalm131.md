@@ -27,6 +27,7 @@ My Comfort
 </div>
 
 Keep me lowly, O Lord,
+
 * keep me gentle
 * keep me like your Son
 * Jesus Christ.

@@ -10,8 +10,6 @@
 
 >Isaiah 48:9–11 I will delay my anger for the sake of my name, and I will restrain myself for your benefit and for my praise, so that you will not be destroyed.  Look, I have refined you, but not as silver; I have tested you in the furnace of affliction.  I will act for my own sake, indeed, my own, for how can I be defiled? I will not give my glory to another.
 
-
-
 >Where do you see God in the text? What does the text say about God?
 
 ## Our God
@@ -95,7 +93,6 @@ In this immense love and grace, receive the gift!
 ### Receive the gift of God's forgiveness
 
 >Ezekiel 36:25–27 I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. 26 I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. 27 I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances.
-
 
 ### Receive the gift of repentance
 

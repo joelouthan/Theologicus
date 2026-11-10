@@ -67,6 +67,7 @@ You Are My Judge
 </div>
 
 My sins before you
+
 * can stretch to the furthest galaxies
 * can fill the oceans
 * can corrupt my soul
@@ -76,6 +77,7 @@ My sins before you
 * can steal any love I have in me.
 
 At one time
+
 * you counted me wicked
 * because I was wicked
 * I was treasonous
@@ -85,6 +87,7 @@ At one time
 * and my desires.
 
 But you, O God
+
 * in your great mercies
 * and your lavish grace
 * gave me your Son
@@ -93,11 +96,13 @@ But you, O God
 * for my sins.
 
 You granted me a new heart
+
 * your Spirit
 * new desires
 * for you.
 
 You have given me faith
+
 * to exalt you
 * to worship you
 * to run to you
@@ -107,6 +112,7 @@ You have given me faith
 * to obey your every word.
 
 Keep your love on me
+
 * Do not let me stray
 * I do not want to lose you love
 * you are all that I have

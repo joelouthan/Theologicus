@@ -41,6 +41,7 @@ My Only Help and Hope
 </div>
 
 When I have called
+
 * you have always answered
 * you have rescued me 
 * more than times than I count.
@@ -48,6 +49,7 @@ When I have called
 You are my only hope and stay.
 
 And I love you, Lord
+
 * and with all that is in me
 * I will forever
 * bless your holy name.

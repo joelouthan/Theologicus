@@ -83,10 +83,12 @@ Lord
 </div>
 
 I am not the one  
+
 * who is upright  
 * and blameless  
 
 I am the one  
+
 * who is wicked  
 * full of malice  
 * and anger  
@@ -96,6 +98,7 @@ I am the one
 * in all of my ways.  
 
 I am the sinful one  
+
 * who wars against you  
 * who battles against your holy name  
 * who trespasses with every beat of my heart  
@@ -103,6 +106,7 @@ I am the sinful one
 * and deserving of your great wrath.  
 
 Nonetheless  
+
 * you saw me in my sin  
 * and you loved me  
 * you saw me as your enemy  
@@ -114,6 +118,7 @@ Nonetheless
 * forever and ever.  
 
 I know this  
+
 * because you have sent  
 * your only begotten Son  
 * to live and die for me  
@@ -121,6 +126,7 @@ I know this
 * forever and ever.
 
 And I know this  
+
 * because your Holy Spirit  
 * dwells in me  
 * never to leave me  
@@ -130,11 +136,12 @@ And I know this
 * forever and ever.
 
 I will always fail  
+
 * but you are the strength of my heart  
 * and my portion forever.  
 
 Save me, Lord  
+
 * I am in need of saving.  
 
 Amen.
-

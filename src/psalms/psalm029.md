@@ -41,17 +41,20 @@
 <div style="font-variant: small-caps;">My Blessed Redeemer,</div>
 
 Who is like you,
+
 *  splendid in majesty
 *  high and exalted
 *  wonderful and amazing
 *  beautiful and all-together lovely.
 
 So I will sing this song,
+
 *  with all of my days
 *  because you are my portion
 *  and you loved me since forever.
 
 How many times have you rescued me
+
 *  from the pit of despair
 *  from the darkness of hell
 *  from the knife edge of death?
@@ -59,6 +62,7 @@ How many times have you rescued me
 I know not the countless times.
 
 But you are faithful in all of your ways,
+
 *  perfect
 *  true
 *  blessed
@@ -70,6 +74,7 @@ And I know you will rescue me countless times more.
 I praise you forever I will praise you.
 
 Forever I will sing
+
 *  you are my beauty
 *  you are my strength
 

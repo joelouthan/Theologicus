@@ -39,6 +39,7 @@ You Are My Dwelling
 </div>
 
 I will sing
+
 * of all of your done
 * of your salvation of my soul
 * of your goodness to me
@@ -46,6 +47,7 @@ I will sing
 * of your presence when I was alone.
 
 I will proclaim
+
 * that you alone are good
 * that you alone are righteous
 * that you alone are worthy
@@ -54,6 +56,7 @@ I will proclaim
 * holy.
 
 I will preach
+
 * that Christ came to save sinners
 * of whom I am the foremost
 * that Christ came to save His people
@@ -64,6 +67,7 @@ I will preach
 * and him crucified.
 
 I will confess
+
 * with a changed heart
 * and a renewed mind
 * and with your Spirit within me
@@ -73,6 +77,7 @@ I will confess
 * there is none like you.
 
 I will live
+
 * unto you alone
 * because you are my precious God
 * and my Lord

@@ -47,6 +47,7 @@ Faith
 </div>
 
 You are the Almighty God
+
 * who rules and reigns
 * over all the earth
 * who demands perfection
@@ -55,6 +56,7 @@ You are the Almighty God
 * in order to dwell with you.
 
 But you demand something
+
 * that is not in us
 * that we cannot make
 * because we are so far from
@@ -64,11 +66,13 @@ But you demand something
 * because we thought we knew our own way.
 
 So you sent your Son
+
 * not only to guide us and teach us
 * but to live for us and die for us
 * so that we would live and give glory to you.
 
 Open our eyes to see
+
 * our ears to hear
 * renew our minds
 * spirit in our bodies

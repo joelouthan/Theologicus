@@ -99,5 +99,4 @@
 
 3. How serious do you think God is in saving you? You think he will be quiet and peaceful or will it be violent?
 
-
 >Ezekiel 36:25-28 I will also sprinkle clean water on you, and you will be clean. I will cleanse you from all your impurities and all your idols. I will give you a new heart and put a new spirit within you; I will remove your heart of stone and give you a heart of flesh. I will place my Spirit within you and cause you to follow my statutes and carefully observe my ordinances. You will live in the land that I gave your ancestors; you will be my people, and I will be your God.

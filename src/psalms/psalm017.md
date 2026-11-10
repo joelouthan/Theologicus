@@ -51,16 +51,19 @@ O Father,
 </div>
 
 You are God of the Universe
+
 * Holy, righteous, just* High above my idols\n* High above my sins
 * High above my faults
 * High above the twisted wickedness of my own heart
 * In no way could I have ever approach you.
 
 But you, O Lord, abundant in mercy and rich in grace, made the way
+
 * You sent your Son to come get me
 * Now I am yours.
 
 I am your son
+
 * You are my Father
 * You attention is quick
 * Your ear inclines to my voice
@@ -72,18 +75,22 @@ I am your son
 * And I am with you forever.
 
 I am your darling
+
 * I am your love.
 
 I was once wicked
+
 * I was once violently opposed your glorious name
 * But you spoke to me, called to me and made me your friend.
 
 Although your enemies try to turn against me, your Son has delivered the killing blow to sin, tragically crippled Satan and his demons, and struck the death-knell unto Death
+
 * My enemies are mortally weak
 * My enemies lack power
 * My enemies are soundly defeated.
 
 Now, I carry out your great commission
+
 * I go forward with the command to love you and love others
 * By your strength, I will run this race well
 * One day, you will come and get me or bring me home
@@ -93,4 +100,5 @@ Now, I carry out your great commission
 I love you.
 
 In your Son’s beautiful name, I pray.
+
 Amen.

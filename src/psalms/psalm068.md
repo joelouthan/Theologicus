@@ -91,6 +91,7 @@ Worthy is Your Power
 </div>
 
 I have seen
+
 * texts
 * empty promises
 * words
@@ -106,6 +107,7 @@ I have seen
 * that could try to fix me.
 
 I was beyond repair
+
 * nothing on this earth
 * would make me whole
 * would seal my heart
@@ -119,12 +121,15 @@ I was beyond repair
 * give me life.
 
 Nothing. Because I have tried it all
+
 * and I found the world wanting.
 
 You gave me your Spirit
+
 * and now I am fully alive in you.
 
 Preserve me, O God
+
 * lay your power upon me
 * to take me to the end
 * when I get to hold your Son's face

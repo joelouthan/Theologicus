@@ -20,6 +20,7 @@ My Living Word
 </div>
 
 How can I keep my way pure?
+
 * By trusting in you
 * For your word says
 * You are the way, the truth, and the life
@@ -30,6 +31,7 @@ How can I keep my way pure?
 * then your wrath remains upon me.
 
 But then how do I believe in the Son *perfectly?*
+
 * I cannot
 * because I was born into sin
 * I have to have someone who was born perfectly
@@ -41,11 +43,13 @@ But then how do I believe in the Son *perfectly?*
 * because I cannot believe perfectly.
 
 But the same Christ
+
 * whom I must trust for eternal life
 * is the same Christ
 * who lived and died for me.
 
 Praise be the name of the Lord
+
 * who is alone
 * is worth to be praised and adored.
 

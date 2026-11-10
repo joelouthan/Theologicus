@@ -20,6 +20,7 @@ My Living Word
 </div>
 
 My entire life
+
 * is filled with shame
 * and guild
 * and regret
@@ -31,6 +32,7 @@ My entire life
 * that has tortured my soul.
 
 But your holy Son
+
 * bore my grief
 * bear my shame
 * took on my guilt
@@ -40,6 +42,7 @@ But your holy Son
 * my sin.
 
 Now I live unto you
+
 * you are my holy God
 * and my Lord
 * forevermore.

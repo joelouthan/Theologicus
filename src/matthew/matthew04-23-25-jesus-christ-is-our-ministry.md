@@ -14,4 +14,3 @@
 ><sup>25</sup> Large crowds followed him from Galilee, the Decapolis, Jerusalem, Judea, and beyond the Jordan.
 
 ## The Devotion
-

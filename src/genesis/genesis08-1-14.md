@@ -211,7 +211,6 @@ when I awake, I will be satisfied with your presence.
 
 ## Our Response
 
-
 ><sup> 13-14 </sup> In the six hundred first year, in the first month, on the first day of the month, the water that had covered the earth was dried up. Then Noah removed the ark’s cover and saw that the surface of the ground was drying. 
 
 ### God restores: the power of the Holy Spirit who saved you is the one that will bring you home to God

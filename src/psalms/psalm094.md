@@ -65,6 +65,7 @@ Vengeance
 </div>
 
 The sins against me
+
 * when the people should have
 * cared for me
 * tender towards me
@@ -72,6 +73,7 @@ The sins against me
 * cherish me
 
 Instead
+
 * I was forgotten
 * forsaken
 * betrayed
@@ -79,6 +81,7 @@ Instead
 * unloved
 
 But you appeared
+
 * you saved me
 * and nothing I have done
 * brought you to me
@@ -86,6 +89,7 @@ But you appeared
 * should have attracted your wrath
 
 Those who forgotten me
+
 * you are closer than whisper
 * those who forsaken me
 * you dwell in me

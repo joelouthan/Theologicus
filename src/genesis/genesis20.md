@@ -38,3 +38,9 @@
 ><sup>17</sup> Then Abraham prayed to God, and God healed Abimelech, his wife, and his female slaves so that they could bear children, 
 >
 ><sup>18</sup> for the LORD had completely closed all the wombs in Abimelech’s household on account of Sarah, Abraham’s wife.
+
+## Our God
+
+## His Gospel
+
+## Our Response

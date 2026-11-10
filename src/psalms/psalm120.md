@@ -35,17 +35,21 @@ My Truth
 </div>
 
 Shall I worry about those
+
 * who would do me harm?
 
 If I did
+
 * then I would worry all of my life.
 
 But what my lying lips
+
 * and deceitful tongue
 * I sin with them constantly
 * and it seems I cannot stop.
 
 But I call to you, LORD
+
 * and you answer me
 * because your Son and Spirit
 * dwell in me
@@ -53,6 +57,7 @@ But I call to you, LORD
 * swiftly and quickly.
 
 You have cleansed me
+
 * from all unrighteousness
 * even with my lying lips
 * which are incapable of speaking the truth
@@ -62,6 +67,7 @@ You have cleansed me
 * that you have commanded me to give.
 
 But you knew that
+
 * you knew I was a sinner
 * ultra weak in the flesh
 * you saved me
@@ -69,6 +75,7 @@ But you knew that
 * all the day long.
 
 I will not worry about
+
 * any one who does me harm
 * cleansed my lips
 * and my tongue
@@ -77,6 +84,7 @@ I will not worry about
 * and my mind
 
 May the words of my mouth
+
 * and the meditations of my heart
 * be acceptable in your sight--
 * and I know they are
