@@ -93,10 +93,7 @@ Nonetheless, God is Creator over all creation, and therefore his rights as Creat
 
 As his creation, we have only the rights given to us by Creator God and nothing more.
 
-<figure style="text-align: center;">
-   <img src="sproul-consent.jpg" style="display: block; float: none; margin: auto; width: 600px;" alt="God doesn't need our consent in order to govern us. He made us. - R.C. Sproul">
-   <figcaption style="font-style: italic; text-align: center;">"God doesn't need our consent in order to govern us. He made us."<br> - R.C. Sproul</figcaption>
-</figure>
+![](images/sproul-consent.jpg)
 
 We think that, because we have free will, we might fool ourselves into thinking we have absolute freedom. God alone has that absolute freedom.
 
