@@ -1260,6 +1260,7 @@
 
 -----------
 
+- [Scripture Index](scripture-index.md)
 - [Bibliography](bibliography/index.md)
 - [Reviews](reviews/index.md)
   - [Cur Deus Homo by Anselm of Canterbury](reviews/cur-deus-homo.md)
