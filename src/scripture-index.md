@@ -8,6 +8,8 @@ Every passage of Scripture cited in this book, in canonical order, with the page
 
 **New Testament:** [Matthew](#matthew) · [Mark](#mark) · [Luke](#luke) · [John](#john) · [Acts](#acts) · [Romans](#romans) · [1 Corinthians](#1-corinthians) · [2 Corinthians](#2-corinthians) · [Galatians](#galatians) · [Ephesians](#ephesians) · [Philippians](#philippians) · [Colossians](#colossians) · [1 Thessalonians](#1-thessalonians) · [2 Thessalonians](#2-thessalonians) · [1 Timothy](#1-timothy) · [2 Timothy](#2-timothy) · [Titus](#titus) · [Hebrews](#hebrews) · [James](#james) · [1 Peter](#1-peter) · [2 Peter](#2-peter) · [1 John](#1-john) · [3 John](#3-john) · [Jude](#jude) · [Revelation](#revelation)
 
+**Coverage:** [Which chapters of the Bible this book cites](#coverage)
+
 ## Genesis
 
 - **Genesis 1** — [1689 Baptist Confession of Faith, Chapter 4.2 The Imagebearers of God](confession-1689/1689-04-2-the-imagebearers-of-God.md) · [1689 Baptist Confession of Faith, Chapter 6.1 The Fall of Mankind](confession-1689/1689-06-1-the-fall-of-mankind.md) · [1680 An Orthodox Catechism: Being the Sum of Christian Religion, Contained in the Law and Gospel](catechism-1680/index.md) · [II. The Weight of Our Sin](doctrine-christ-saves/02-the-weight-of-our-sin.md) · [Genesis 3:1-13 The Gospel Needed](genesis/genesis03-1-13.md) · [Genesis 6:10-22 The Gospel Certainty: The Holiness of God](genesis/genesis06-10-22.md) · [Matthew 1:1 Jesus Christ is the Good News](matthew/matthew01-01-jesus-christ-is-our-gospel.md)
@@ -204,9 +206,9 @@ Every passage of Scripture cited in this book, in canonical order, with the page
 - **Genesis 28:13–15** — [V. The Covenant of God](doctrine-christ-saves/05-the-covenant-of-god.md)
 - **Genesis 28:20–22** — [Second London Baptist Confession of Faith](confession-1689/index.md) · [Chapter 23 Of Lawful Oaths and Vows](confession-1689/1689-23-0-index.md)
 - **Genesis 28:21** — [X. Rescuing Work of Christ](doctrine-christ-saves/10-rescuing-work-of-christ.md)
-- **Genesis 29–30:24** — [Genesis 29-30:24 The Gospel Inheritance](genesis29-30-24.md)
-- **Genesis 30** — [Genesis 29-30:24 The Gospel Inheritance](genesis29-30-24.md)
-- **Genesis 30:25–43** — [Genesis 30:25-43 The Gospel Patience](genesis30-25-43.md)
+- **Genesis 29–30:24** — [Genesis 29-30:24 The Gospel Inheritance](genesis/genesis29-30-24.md)
+- **Genesis 30** — [Genesis 29-30:24 The Gospel Inheritance](genesis/genesis29-30-24.md)
+- **Genesis 30:25–43** — [Genesis 30:25-43 The Gospel Patience](genesis/genesis30-25-43.md)
 - **Genesis 31** — [Genesis 31 The Gospel Separation](genesis/genesis31.md)
 - **Genesis 32:1–23** — [Genesis 32:1-23 The Gospel Payment](genesis/genesis32-1-23.md)
 - **Genesis 32:10** — [Spirit Gives Us Faith](doctrine-christ-saves/12-spirit-gives-us-faith.md)
