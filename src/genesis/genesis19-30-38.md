@@ -31,15 +31,17 @@ No one in their right mind would justify this sort of depravity using the Bible.
 
 Just because God records a sin does not mean he allows the sin. Take, for instance, polygamy. God commands marriage to be one man and one woman. Some heroes of the faith, Abraham, David, or Solomon, to name a few, had multiple wives, but that does not justify their actions. Read those passages with spiritual eyes. What I see and read is that we have men of God who were born of Adam and at the same time, born again of God, but still sinned against God. Shocking news is shocking. Each godly man you read about was doing godly things when they had their first wife: Abraham & Sarah, David & Michal, or Solomon & Pharaoh's daughter (*theoretically*, see 1 Kings 3:1).
 
-I want to make this explicitly clear so that no one can misquote me or take me out of context.  Make no mistake: Polygamy is sin against God. Sex outside the covenant marriage between one man and one woman is sin against God. Homosexuality is sin against God. Sexual immorality is sin against God. God was crystal clear:
+I want to make this explicitly clear so that no one can misquote me or take me out of context. Make no mistake: Polygamy is sin against God. Sex outside the covenant marriage between one man and one woman is sin against God. Homosexuality is sin against God. Sexual immorality is sin against God. God was crystal clear:
 
 >Exodus 20:14 Do not commit adultery.
 
 So when you read in the Bible about our heroes of the faith (Hebrews 11), and you see where they had more than one living wife at a time, just know that these men were sinning against the Lord their God. Yes, even David, who had multiple wives, was "a man after God's own heart" (1 Samuel 13:14), committed the sin of adultery from the moment he treated someone other than Michal as his own wife.
 
-Often I tell my congregation, "I am not a prophet but..." I will then predict what's going to happen based on my understanding of the Scriptures, philosophy, and our modern world. This is one of those times. I am not a prophet, but mark my words -- the current world, here in America, due to so many people sitting under their own spiritual authority, is going to come to the conclusion that polygamy is allowed by the One Holy God. And it will be your own people- Evangelicals. Don't say you read the Bible and then say something so foolish that it's clear you don't understand or read it. 
+Often I tell my congregation, "I am not a prophet but..." Then I predict what's going to happen based on my understanding of the Scriptures, philosophy, and our modern world. This is one of those times. I am not a prophet, but mark my words -- the current world, here in America, due to so many people sitting under their own spiritual authority, is going to come to the conclusion that polygamy is allowed by the One Holy God. And it will be your own people- Evangelicals. Don't say you read the Bible and then say something so foolish that it's clear you don't understand or read it. 
 
-Side note: I stopped and paused at the paragraph above, committed this file on Sunday, October 25, 2026 at 8:09 AM [^1]. A few hours later, a pastor from Wickliffe, Ohio, in front of God and the people of God, announced his second "wife". His first wife stood at the pulpit and introduced her "sister-in-marrrage" as they have been living in a polygamous "marriage" for about three years. [^2026-polygamous-marriage]
+Side note: I stopped and paused at the paragraph above, committed this file on Sunday, October 25, 2026 at 8:09 AM [^1]. A few hours later, a pastor from Wickliffe, Ohio, announced in front of God and the people of God that he had a second "wife". His first wife stood at the pulpit and introduced her "sister-in-marriage," as they have been living in a polygamous "marriage" for about three years. [^2026-polygamous-marriage]
+
+
 
 
 ### The most depraved 
