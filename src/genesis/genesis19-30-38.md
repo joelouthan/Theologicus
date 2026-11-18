@@ -35,7 +35,7 @@ I want to make this explicitly clear so that no one can misquote me or take me o
 
 >Exodus 20:14 Do not commit adultery.
 
-So when you read in the Bible where our heroes of the 
+So when you read in the Bible about our heroes of the faith (Hebrew 11) and you see where they had more than one living wife at a time, just know that these men were sinning against the Lord their God. Yes,
 
 TODO ==🟠continue writing==
 
