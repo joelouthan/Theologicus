@@ -65,9 +65,11 @@ Sin is sin. We are born in sin. We sin all the time. If we broke one law, we hav
 
 Praise be to God that Mary gave birth to a child, and we call him Jesus because he has saved us from our sins (Matthew 1:21).
 
-For Christ has not come for the healthy but for the sick. He is not for the self-righteous but he has come into the world 
+For Christ has not come for the healthy but for the sick. He is not for the self-righteous, but he has come into the world to save sinners.
 
-We are in Christ.
+He has come for us.
+
+Blessed is he comes in the name of the Lord.
 
 [^1]: [Commit 10304a6](https://github.com/joelouthan/Theologicus/commit/10304a6e8f451c300b60cc4c04ff3112fec3b247)
 
