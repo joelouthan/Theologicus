@@ -37,7 +37,7 @@ I want to make this explicitly clear so that no one can misquote me or take me o
 
 So when you read in the Bible about our heroes of the faith (Hebrews 11), and you see where they had more than one living wife at a time, just know that these men were sinning against the Lord their God. Yes, even David, who had multiple wives, was "a man after God's own heart" (1 Samuel 13:14), committed the sin of adultery from the moment he treated someone other than Michal as his own wife.
 
-Often I tell my congregation, "I am not a prophet but..." Then I predict what's going to happen based on my understanding of the Scriptures, philosophy, and our modern world. This is one of those times. I am not a prophet, but mark my words -- the current world, here in America, due to so many people sitting under their own spiritual authority, is going to come to the conclusion that polygamy is allowed by the One Holy God. And it will be your own people- Evangelicals. Don't say you read the Bible and then say something so foolish that it's clear you don't understand or read it. 
+Often I tell my congregation, "I am not a prophet but..." Then I predict what's going to happen based on my understanding of the Scriptures, philosophy, and our modern world. This is one of those times. I am not a prophet, but mark my words -- the current world, here in America, due to so many people sitting under their own spiritual authority, is going to come to the conclusion that polygamy is allowed by the One Holy God. And do not be surprised -- this sudden "revelation" might be one of yours -- either your movement, denomination, church, or even your pastor. We live  
 
 TODO ==🟠continue writing==
 
