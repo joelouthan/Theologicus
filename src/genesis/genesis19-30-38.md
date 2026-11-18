@@ -33,7 +33,9 @@ Just because God records a sin does not mean he allows the sin. Take, for instan
 
 I want to make this explicitly clear so that no one can misquote me or take me out of context.  Make no mistake: Polygamy is sin against God. Sex outside the covenant marriage between one man and one woman is sin against God. Homosexuality is sin against God. Sexual immorality is sin against God. God was crystal clear:
 
->
+>Exodus 20:14 Do not commit adultery.
+
+
 
 TODO ==🟠continue writing==
 
