@@ -39,7 +39,7 @@ So when you read in the Bible about our heroes of the faith (Hebrews 11), and yo
 
 Often I tell my congregation, "I am not a prophet but..." Then I predict what's going to happen based on my understanding of the Scriptures, philosophy, and our modern world. This is one of those times. I am not a prophet, but mark my words -- the current world, here in America, due to so many people sitting under their own spiritual authority, is going to come to the conclusion that polygamy is allowed by the One Holy God. And it will be your own people- Evangelicals. Don't say you read the Bible and then say something so foolish that it's clear you don't understand or read it. 
 
-Side note: I stopped and paused at the paragraph above, committed this file on Sunday, October 25, 2026 at 8:09 AM [^1]. A few hours later, a pastor from Wickliffe, Ohio, announced in front of God and the people of God that he had a second "wife". His first wife stood at the pulpit and introduced her "sister-in-marriage," as they have been living in a polygamous "marriage" for about three years. [^2026-polygamous-marriage]
+Side note: I stopped and paused at the paragraph above, committed this file on Sunday, October 25, 2026 at 8:09 AM [^1]. , announced in front of God and the people of God that he had a second "wife". His first wife stood at the pulpit and introduced her "sister-in-marriage," as they have been living in a polygamous "marriage" for about three years. [^2026-polygamous-marriage]
 
 
 
