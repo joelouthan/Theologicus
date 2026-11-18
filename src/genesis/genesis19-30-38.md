@@ -31,7 +31,7 @@ No one in their right mind would justify this sort of depravity using the Bible.
 
 Just because God records a sin does not mean he allows the sin. Take, for instance, polygamy. God commands marriage to be one man and one woman. Some heroes of the faith, Abraham, David, or Solomon, to name a few, had multiple wives, but that does not justify their actions. Read those passages with spiritual eyes. What I see and read is that we have men of God who were born of Adam and at the same time, born again of God, but still sinned against God. Shocking news is shocking. Each godly man you read about was doing godly things when they had their first wife: Abraham & Sarah, David & Michal, or Solomon & Pharaoh's daughter (*theoretically*, see 1 Kings 3:1).
 
-I want to make this explicitly clear so that no one can misquote me or take me out of context.  P
+I want to make this explicitly clear so that no one can misquote me or take me out of context.  Polygamy is sin against God. Sex outside the covenant marriage between one man and one woman is sin against God. Homosexuality is sin against God. Sexual immora
 
 TODO ==🟠continue writing==
 
