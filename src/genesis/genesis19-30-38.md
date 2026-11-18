@@ -31,7 +31,9 @@ No one in their right mind would justify this sort of depravity using the Bible.
 
 Just because God records a sin does not mean he allows the sin. Take, for instance, polygamy. God commands marriage to be one man and one woman. Some heroes of the faith, Abraham, David, or Solomon, to name a few, had multiple wives, but that does not justify their actions. Read those passages with spiritual eyes. What I see and read is that we have men of God who were born of Adam and at the same time, born again of God, but still sinned against God. Shocking news is shocking. Each godly man you read about was doing godly things when they had their first wife: Abraham & Sarah, David & Michal, or Solomon & Pharaoh's daughter (*theoretically*, see 1 Kings 3:1).
 
-I want to make this explicitly clear so that no one can misquote me or take me out of context.  
+I want to make this explicitly clear so that no one can misquote me or take me out of context.  P
+
+TODO ==🟠continue writing==
 
 (Often I tell my congregation, "I am not a prophet but," I will then predict what's going to happen based on my understanding of the Scriptures, philosophy, and our modern world. This is one of those times. I am not a prophet, but mark my words -- the current world, here in America, due to so many people sitting under their own spiritual authority, is going to come to the conclusion that polygamy is allowed by the One Holy God. And it will be your own people- Evangelicals. Don't say you read the Bible and then say something so foolish that it's clear you don't understand or read it. But I digress.)
 
