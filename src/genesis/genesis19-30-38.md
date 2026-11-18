@@ -41,8 +41,7 @@ Often I tell my congregation, "I am not a prophet but..." Then I predict what's 
 
 Side note: I stopped and paused at the paragraph above, committed this file on Sunday, October 25, 2026 at 8:09 AM [^1]. At the 11AM service for LifeWorks Church (Wickcliffe, OH), Pastor Israel T. Ford proclaimed before God and his people that he had a second "wife." His first wife stood at the pulpit and introduced her "sister-in-marriage," as they have been living in a polygamous "marriage" for about three years. [^2026-polygamous-marriage]
 
-What did Christ tell us? 
-
+What did Christ tell us? We are in the end days (Matthew 24). But do not fear and do not despair -- Christ is with us always unt
 
 ### The most depraved 
 
