@@ -63,9 +63,9 @@ Just because your pastor does something that God has explicitly commanded us not
 
 Sin is sin. We are born in sin. We sin all the time. If we broke one law, we have broken all the laws.
 
-Praise be to God that Mary gave birth to a child and we call him Jesus because he has saved us from our sins (Matthew 1:21).
+Praise be to God that Mary gave birth to a child, and we call him Jesus because he has saved us from our sins (Matthew 1:21).
 
-For 
+For Christ has not come for the healthy but for the sick. He is not for the self-righteous but he has come into the world 
 
 We are in Christ.
 
