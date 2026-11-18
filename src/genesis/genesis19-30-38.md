@@ -39,9 +39,7 @@ So when you read in the Bible about our heroes of the faith (Hebrews 11), and yo
 
 Often I tell my congregation, "I am not a prophet but..." Then I predict what's going to happen based on my understanding of the Scriptures, philosophy, and our modern world. This is one of those times. I am not a prophet, but mark my words -- the current world, here in America, due to so many people sitting under their own spiritual authority, is going to come to the conclusion that polygamy is allowed by the One Holy God. And it will be your own people- Evangelicals. Don't say you read the Bible and then say something so foolish that it's clear you don't understand or read it. 
 
-Side note: I stopped and paused at the paragraph above, committed this file on Sunday, October 25, 2026 at 8:09 AM [^1]. At the 11AM service for LifeWorks Church (Wickcliffe, OH), Pastor Israel T. Ford proclaimed before God and his people that he had a second "wife." His first wife stood at the pulpit and introduced her "sister-in-marriage," as they have been living in a polygamous "marriage" for about three years. [^2026-polygamous-marriage]
 
-What did Christ tell us? We are in the end days (Matthew 24). But do not fear and do not despair -- Christ is with us always unt
 
 ### The most depraved 
 
@@ -56,6 +54,10 @@ What did Christ tell us? We are in the end days (Matthew 24). But do not fear an
 ## Our Response
 
 >2 Peter 2:4-10 For if God didn’t spare the angels who sinned but cast them into hell and delivered them in chains of utter darkness to be kept for judgment; and if he didn’t spare the ancient world, but protected Noah, a preacher of righteousness, and seven others, when he brought the flood on the world of the ungodly; and if he reduced the cities of Sodom and Gomorrah to ashes and condemned them to extinction, making them an example of what is coming to the ungodly; and if he rescued righteous Lot, distressed by the depraved behavior of the immoral (for as that righteous man lived among them day by day, his righteous soul was tormented by the lawless deeds he saw and heard) — then the Lord knows how to rescue the godly from trials and to keep the unrighteous under punishment for the day of judgment, especially those who follow the polluting desires of the flesh and despise authority.
+
+I stopped and paused at the paragraph above, committed this file on Sunday, October 25, 2026 at 8:09 AM [^1]. At the 11 AM service for LifeWorks Church (Wickcliffe, OH), Pastor Israel T. Ford proclaimed before God and his people that he had a second "wife." His first wife stood at the pulpit and introduced her "sister-in-marriage," as they have been living in a polygamous "marriage" for about three years. [^2026-polygamous-marriage]
+
+What did Christ tell us? We are in the end days (Matthew 24). But do not fear and do not despair -- Christ is with us always, to end of the days (Matthew 28:20).
 
 [^1]: [Commit 10304a6](https://github.com/joelouthan/Theologicus/commit/10304a6e8f451c300b60cc4c04ff3112fec3b247)
 
