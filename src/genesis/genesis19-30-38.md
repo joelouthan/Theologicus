@@ -39,7 +39,7 @@ So when you read in the Bible about our heroes of the faith (Hebrews 11), and yo
 
 Often I tell my congregation, "I am not a prophet but..." I will then predict what's going to happen based on my understanding of the Scriptures, philosophy, and our modern world. This is one of those times. I am not a prophet, but mark my words -- the current world, here in America, due to so many people sitting under their own spiritual authority, is going to come to the conclusion that polygamy is allowed by the One Holy God. And it will be your own people- Evangelicals. Don't say you read the Bible and then say something so foolish that it's clear you don't understand or read it. 
 
-Side note: I stopped and paused at the paragraph above, committed this file on Sunday, October 25 2026 at 8:09AM [^1] On Sunday, October 25, 2026, a pastor from Wickliffe, Ohio, took to the Internet to publicly announce his second wife, introduced to his congregation by his first wife as "sister in marriage," and had been living in a polygamous marriage for three years. [^2026-polygamous-marriage]
+Side note: I stopped and paused at the paragraph above, committed this file on Sunday, October 25, 2026 at 8:09 AM [^1]. Within a few hours later, a pastor from Wickliffe, Ohio, took to the Internet to publicly announce his second wife, introduced to his congregation by his first wife as "sister in marriage," and had been living in a polygamous marriage for three years. [^2026-polygamous-marriage]
 
 
 ### The most depraved 
@@ -56,7 +56,7 @@ Side note: I stopped and paused at the paragraph above, committed this file on S
 
 >2 Peter 2:4-10 For if God didn’t spare the angels who sinned but cast them into hell and delivered them in chains of utter darkness to be kept for judgment; and if he didn’t spare the ancient world, but protected Noah, a preacher of righteousness, and seven others, when he brought the flood on the world of the ungodly; and if he reduced the cities of Sodom and Gomorrah to ashes and condemned them to extinction, making them an example of what is coming to the ungodly; and if he rescued righteous Lot, distressed by the depraved behavior of the immoral (for as that righteous man lived among them day by day, his righteous soul was tormented by the lawless deeds he saw and heard) — then the Lord knows how to rescue the godly from trials and to keep the unrighteous under punishment for the day of judgment, especially those who follow the polluting desires of the flesh and despise authority.
 
-[^1]: [# Commit 10304a6e](https://github.com/joelouthan/Theologicus/commit/10304a6e8f451c300b60cc4c04ff3112fec3b247)
+[^1]: [# Commit cbc57a5 ](https://github.com/joelouthan/Theologicus/commit/cbc57a51d67db2439020c0809329dff5aec2f7f1#diff-872858d3e580210b873514bf21acb103ef100b6b1c3b11974c4748ed157589cb)
 
 [^2026-polygamous-marriage]: “Pastor’s Wife Surprises Congregation by Introducing ‘Second Wife’ During Service, Describing It as ‘Polygamous Marriage,’” _People.Com_, last modified November 5, 2026, accessed November 18, 2026, [https://people.com/pastors-wife-surprises-congregation-by-introducing-second-wife-during-service-12202546](https://people.com/pastors-wife-surprises-congregation-by-introducing-second-wife-during-service-12202546).
 
