@@ -35,7 +35,7 @@ I want to make this explicitly clear so that no one can misquote me or take me o
 
 >Exodus 20:14 Do not commit adultery.
 
-
+So when you read in the Bible where our heroes of the 
 
 TODO ==🟠continue writing==
 
