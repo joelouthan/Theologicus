@@ -39,7 +39,7 @@ So when you read in the Bible about our heroes of the faith (Hebrews 11), and yo
 
 Often I tell my congregation, "I am not a prophet but..." Then I predict what's going to happen based on my understanding of the Scriptures, philosophy, and our modern world. This is one of those times. I am not a prophet, but mark my words -- the current world, here in America, due to so many people sitting under their own spiritual authority, is going to come to the conclusion that polygamy is allowed by the One Holy God. And it will be your own people- Evangelicals. Don't say you read the Bible and then say something so foolish that it's clear you don't understand or read it. 
 
-
+TODO ==🟠continue writing==
 
 ### The most depraved 
 
@@ -61,7 +61,9 @@ Just because you see your heroes of the faith doing something God has explicitly
 
 Just because your pastor does something that God has explicitly commanded us not to do does not give you or me permission to do so.
 
-How can we respond to this insanity in the world?What did Christ tell us? We are in the end days (Matthew 24). But do not fear and do not despair -- Christ is with us always, to the end of the days (Matthew 28:20).
+How can we respond to this insanity in the world? What did Christ tell us? We are in the end days (Matthew 24). But do not fear and do not despair -- Christ is with us always, to the end of the days (Matthew 28:20).
+
+We are in Christ.
 
 [^1]: [Commit 10304a6](https://github.com/joelouthan/Theologicus/commit/10304a6e8f451c300b60cc4c04ff3112fec3b247)
 
