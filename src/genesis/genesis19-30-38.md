@@ -43,12 +43,6 @@ Side note: I stopped and paused at the paragraph above, committed this file on S
 
 What did Christ tell us? 
 
->Matthew 24:11-14 Many false prophets will rise up and deceive many. Because lawlessness will multiply, the love of many will grow cold. But the one who endures to the end will be saved. This good news of the kingdom will be proclaimed in all the world as a testimony to all nations, and then the end will come.
-
->Matthew 24:23-28 “If anyone tells you then, ‘See, here is the Messiah! ’ or, ‘Over here! ’ do not believe it. For false messiahs and false prophets will arise and perform great signs and wonders to lead astray, if possible, even the elect. Take note: I have told you in advance. So if they tell you, ‘See, he’s in the wilderness! ’ don’t go out; or, ‘See, he’s in the storerooms! ’ do not believe it. For as the lightning comes from the east and flashes as far as the west, so will be the coming of the Son of Man. Wherever the carcass is, there the vultures will gather.
-
-
-
 
 ### The most depraved 
 
