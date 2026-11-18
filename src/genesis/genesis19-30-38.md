@@ -43,6 +43,10 @@ Side note: I stopped and paused at the paragraph above, committed this file on S
 
 What did Christ tell us? 
 
+>Matthew 24:11-14 Many false prophets will rise up and deceive many. Because lawlessness will multiply, the love of many will grow cold. But the one who endures to the end will be saved. This good news of the kingdom will be proclaimed in all the world as a testimony to all nations, and then the end will come.
+
+
+
 
 ### The most depraved 
 
