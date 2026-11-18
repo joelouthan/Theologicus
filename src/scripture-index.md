@@ -290,7 +290,7 @@ Every passage of Scripture cited in this book, in canonical order, with the page
 - **Exodus 20:12** — [The Baptist Catechism 1693](catechism-1693/index.md)
 - **Exodus 20:12–17** — [Romans 13:8-10 Ours to Do: Love One Another](romans/romans13-08-10.md)
 - **Exodus 20:13** — [The Baptist Catechism 1693](catechism-1693/index.md)
-- **Exodus 20:14** — [The Baptist Catechism 1693](catechism-1693/index.md) · [1 Samuel 1:1-18 The Work That Is Done For A King](samuel-1/samuel-1-01-01-18.md)
+- **Exodus 20:14** — [The Baptist Catechism 1693](catechism-1693/index.md) · [Genesis 19:30-38 The Gospel Reach](genesis/genesis19-30-38.md) · [1 Samuel 1:1-18 The Work That Is Done For A King](samuel-1/samuel-1-01-01-18.md)
 - **Exodus 20:16** — [The Baptist Catechism 1693](catechism-1693/index.md)
 - **Exodus 20:17** — [The Baptist Catechism 1693](catechism-1693/index.md) · [1680 An Orthodox Catechism: Being the Sum of Christian Religion, Contained in the Law and Gospel](catechism-1680/index.md)
 - **Exodus 21:14** — [1680 An Orthodox Catechism: Being the Sum of Christian Religion, Contained in the Law and Gospel](catechism-1680/index.md)
@@ -551,6 +551,7 @@ Every passage of Scripture cited in this book, in canonical order, with the page
 - **1 Samuel 8:4–7** — [Matthew 2:1-12 Jesus Christ is Our Ruler](matthew/matthew02-01-12-jesus-christ-is-our-ruler.md)
 - **1 Samuel 8:6–7** — [1689 Baptist Confession of Faith, Chapter 8.1 The Pleasure of God](confession-1689/1689-08-1-the-pleasure-of-god.md)
 - **1 Samuel 13:13–14** — [Mark 8:14–21 Jesus Gives Us New Hearts So That We Might Receive God](mark/mark08-14-21.md)
+- **1 Samuel 13:14** — [Genesis 19:30-38 The Gospel Reach](genesis/genesis19-30-38.md)
 - **1 Samuel 15:11** — [1689 Baptist Confession of Faith, Chapter 8.1 The Pleasure of God](confession-1689/1689-08-1-the-pleasure-of-god.md)
 - **1 Samuel 15:22** — [The Baptist Catechism 1693](catechism-1693/index.md) · [1680 An Orthodox Catechism: Being the Sum of Christian Religion, Contained in the Law and Gospel](catechism-1680/index.md)
 - **1 Samuel 15:22–23** — [1680 An Orthodox Catechism: Being the Sum of Christian Religion, Contained in the Law and Gospel](catechism-1680/index.md)
@@ -5028,7 +5029,7 @@ Every passage of Scripture cited in this book, in canonical order, with the page
 - **Hebrews 10:38** — [Spirit Gives Us Faith](doctrine-christ-saves/12-spirit-gives-us-faith.md)
 - **Hebrews 10:38–39** — [Romans 1:16-17 God Alone Saves His People](romans/romans01-16-17.md)
 - **Hebrews 10:39** — [The Baptist Catechism 1693](catechism-1693/index.md)
-- **Hebrews 11** — [13.1 What God Does: The Father Conforms Us](confession-1689/1689-13-1-God-does-conforms.md) · [17.3 Our God Saves: All in His Son](confession-1689/1689-17-3-Son-of-God.md)
+- **Hebrews 11** — [13.1 What God Does: The Father Conforms Us](confession-1689/1689-13-1-God-does-conforms.md) · [17.3 Our God Saves: All in His Son](confession-1689/1689-17-3-Son-of-God.md) · [Genesis 19:30-38 The Gospel Reach](genesis/genesis19-30-38.md)
 - **Hebrews 11:1–2** — [V. The Covenant of God](doctrine-christ-saves/05-the-covenant-of-god.md) · [Genesis 10 The Gospel Certainty: The Lineage of God](genesis/genesis10.md)
 - **Hebrews 11:1–3** — [The Apostles' Creed: The Creator of Heaven and Earth](creed-apostles/apostles02-Creator.md) · [1680 An Orthodox Catechism: Being the Sum of Christian Religion, Contained in the Law and Gospel](catechism-1680/index.md) · [Mark 7:7-13 The Word of God is Law](mark/mark07-07-13.md)
 - **Hebrews 11:3** — [1689 Baptist Confession of Faith, Chapter 5.3 The Freedom of God](confession-1689/1689-05-3-the-freedom-of-God.md) · [The Baptist Catechism 1693](catechism-1693/index.md) · [Genesis 1:6-13 Our Forever Home](genesis/genesis01-6-13.md) · [Genesis 1:20-25 Our Forever Creator](genesis/genesis01-20-25.md)
@@ -5461,14 +5462,14 @@ Ezra · Obadiah · Philemon · 2 John
 | Book | Coverage | Cited | Pages | Uncited chapters |
 | --- | --- | --- | --- | --- |
 | Genesis | ▓▓▓▓▓▓▓▓▓▓ | 50/50 | 245 | ✓ all |
-| Exodus | ▓▓▓▓▓▓░░░░ | 22/40 | 51 | 1–2, 4–5, 9–11, 13, 18, 25–27, 30, 35–39 |
+| Exodus | ▓▓▓▓▓▓░░░░ | 22/40 | 52 | 1–2, 4–5, 9–11, 13, 18, 25–27, 30, 35–39 |
 | Leviticus | ▓▓▓▓▓▓▓░░░ | 18/27 | 27 | 3–4, 8, 12–15, 23, 27 |
 | Numbers | ▓▓▓░░░░░░░ | 10/36 | 19 | 1–5, 7–10, 13, 17–19, 22, 24–35 |
 | Deuteronomy | ▓▓▓▓▓▓▓░░░ | 24/34 | 57 | 1, 11, 13, 15–16, 19–20, 22, 31, 33 |
 | Joshua | ▓▓▓░░░░░░░ | 7/24 | 9 | 2–5, 8, 11–21, 23 |
 | Judges | ▓▓▓▓░░░░░░ | 9/21 | 7 | 3, 5, 7–12, 14–16, 18 |
 | Ruth | ▓▓▓▓▓▓▓▓▓▓ | 4/4 | 13 | ✓ all |
-| 1 Samuel | ▓▓▓▓░░░░░░ | 12/31 | 22 | 9–12, 14, 18–31 |
+| 1 Samuel | ▓▓▓▓░░░░░░ | 12/31 | 23 | 9–12, 14, 18–31 |
 | 2 Samuel | ▓▓▓░░░░░░░ | 8/24 | 27 | 2–6, 8, 10–11, 13–14, 16–20, 22 |
 | 1 Kings | ▓▓▓▓░░░░░░ | 9/22 | 14 | 2, 4–6, 9–16, 20 |
 | 2 Kings | ▓▓▓░░░░░░░ | 8/25 | 13 | 1–2, 4, 6–7, 9, 11–17, 22–25 |
@@ -5522,7 +5523,7 @@ Ezra · Obadiah · Philemon · 2 John
 | 2 Timothy | ▓▓▓▓▓▓▓▓▓▓ | 4/4 | 84 | ✓ all |
 | Titus | ▓▓▓▓▓▓▓▓▓▓ | 3/3 | 95 | ✓ all |
 | Philemon | ░░░░░░░░░░ | 0/1 | 0 | all |
-| Hebrews | ▓▓▓▓▓▓▓▓▓▓ | 13/13 | 184 | ✓ all |
+| Hebrews | ▓▓▓▓▓▓▓▓▓▓ | 13/13 | 185 | ✓ all |
 | James | ▓▓▓▓▓▓▓▓▓▓ | 5/5 | 74 | ✓ all |
 | 1 Peter | ▓▓▓▓▓▓▓▓▓▓ | 5/5 | 57 | ✓ all |
 | 2 Peter | ▓▓▓▓▓▓▓▓▓▓ | 3/3 | 41 | ✓ all |
