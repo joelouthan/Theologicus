@@ -39,7 +39,7 @@ So when you read in the Bible about our heroes of the faith (Hebrew 11) and you 
 
 Often I tell my congregation, "I am not a prophet but..." I will then predict what's going to happen based on my understanding of the Scriptures, philosophy, and our modern world. This is one of those times. I am not a prophet, but mark my words -- the current world, here in America, due to so many people sitting under their own spiritual authority, is going to come to the conclusion that polygamy is allowed by the One Holy God. And it will be your own people- Evangelicals. Don't say you read the Bible and then say something so foolish that it's clear you don't understand or read it. But I digress.
 
-(I stopped writing for a few weeks right in this spot after writing the above paragraph. Guess what happened? A)
+(I stopped writing for a few weeks right in this spot after writing the above paragraph. Guess what happened? )
 ### The most depraved 
 
 ### The most wicked 
