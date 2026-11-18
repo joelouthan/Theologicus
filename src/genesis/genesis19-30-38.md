@@ -61,7 +61,7 @@ Just because you see your heroes of the faith doing something God has explicitly
 
 Just because your pastor does something that God has explicitly commanded us not to do does not give you or me permission to do so.
 
-How can we respond to this insanity in the world? What did Christ tell us? We are in the end days (Matthew 24). But do not fear and do not despair -- Christ is with us always, to the end of the days (Matthew 28:20).
+Sin is sin. We are born in sin. We sin all the time. If we broke one law, we have broken all the laws.
 
 We are in Christ.
 
