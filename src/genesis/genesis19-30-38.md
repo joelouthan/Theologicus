@@ -63,6 +63,10 @@ Just because your pastor does something that God has explicitly commanded us not
 
 Sin is sin. We are born in sin. We sin all the time. If we broke one law, we have broken all the laws.
 
+Praise be to God that Mary gave birth to a child and we call him Jesus because he has saved us from our sins (Matthew 1:21).
+
+For 
+
 We are in Christ.
 
 [^1]: [Commit 10304a6](https://github.com/joelouthan/Theologicus/commit/10304a6e8f451c300b60cc4c04ff3112fec3b247)
