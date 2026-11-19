@@ -1,4 +1,4 @@
-<img class="intro-right" src="../images/book-ccss-3.jpg">
+<img class="intro-right" src="../images/art-christ-the-good-shepherd.jpg">
 
 <p style="font-size: 2em; margin-bottom: 0px "><strong><a class="header" href="#shepherds-call">The Shepherd's Call</a></strong></p>
 
