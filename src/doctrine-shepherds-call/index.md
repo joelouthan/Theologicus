@@ -2,7 +2,7 @@
 
 <p style="font-size: 2em; margin-bottom: 0px "><strong><a class="header" href="#shepherds-call">The Shepherd's Call</a></strong></p>
 
-<p style="font-size: 1.6rem; margin-top: 0px "><i>An Exposition of the calling & commands of Christ upon his under-shepherds according to John 21:15-19</i><p>
+<p style="font-size: 1.6rem; margin-top: 0px "><i>An Exposition of the calling and commands of Christ upon his under-shepherds according to John 21:15-19</i><p>
 
 >John 21:15–19
 ><sup>15</sup> When they had eaten breakfast, Jesus asked Simon Peter, “Simon, son of John, do you love me more than these?” “Yes, Lord,” he said to him, “you know that I love you.” “Feed my lambs,” he told him.  
