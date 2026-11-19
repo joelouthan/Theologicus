@@ -256,6 +256,7 @@
   - [XV. Spirit Gives Us Life Forever](doctrine-christ-saves/15-spirit-gives-us-life-forever.md)
   - [XVI. What Shall We Say to These Things?](doctrine-christ-saves/16-what-shall-we-say.md)
   - [Bibliography](doctrine-christ-saves/bibliography.md)
+- [The Shepherd's Call]()
 
 # Commentaries
 
