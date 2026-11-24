@@ -23,7 +23,7 @@
 
 ## The Introduction
 
-- [ ] TODO Add introduction
+- [x] DONE Add introduction
 
 I am not sure if we, Christians, still believe this or not. But for the sake of covering my bases, let me state this.
 
@@ -51,7 +51,7 @@ And if is filled with these things--all life, glory, goodness, blessedness--then
 >
 >R. C. Sproul. Truths We Confess. 55-57.
 
-- [ ] TODO more
+- [x] DONE more
 
 ### all-sufficient, not standing in need of any creature which he hath made, nor deriving any glory from them
 
