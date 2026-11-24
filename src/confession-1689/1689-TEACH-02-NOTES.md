@@ -23,7 +23,7 @@
 
 ## The Introduction
 
-TODO: Add introduction
+- [ ] TODO Add introduction
 
 I am not sure if we, Christians, still believe this or not. But for the sake of covering my bases, let me state this.
 
@@ -35,7 +35,7 @@ God does not need us.
 
 I could try to paint a picture of a perfectly content Father and a perfectly content Son in perfect harmonious community joined by the Holy Spirit. To be honest, it would be a feeble attempt. Because we cannot imagine such a relationship on this side of heaven.
 
-TODO: Transition from Triune relationship to marriage/divorce OR come up with a better way to transition
+- [ ] TODO Transition from Triune relationship to marriage/divorce OR come up with a better way to transition
 
 Take for one example: marriage. Or the covenant of marriage broken--divorce. I could walk into any room with any amount of people and ask for a show of hands who here has known anybody who has gotten divorced. The raised hands would be 100%. Yet, when God gave marriage to mankind, his intention and design was always forever. Never broken. Never fractured.
 
@@ -51,7 +51,7 @@ And if is filled with these things--all life, glory, goodness, blessedness--then
 >
 >R. C. Sproul. Truths We Confess. 55-57.
 
-TODO: more
+- [ ] TODO more
 
 ### all-sufficient, not standing in need of any creature which he hath made, nor deriving any glory from them
 
@@ -68,7 +68,7 @@ TODO: more
 >
 ><sup>28</sup> For in him we live and move and have our being, as even some of your own poets have said, ‘For we are also his offspring.’
 
-TODO: Something not that
+- [ ] TODO Something not that
 
 ### but only manifesting his own glory in, by, unto, and upon them
 
